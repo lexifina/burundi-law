@@ -1,0 +1,7 @@
+# Article 16 2
+
+Direction - Gestion.
+
+Le Conseil d'Administration peu t choisir dans son sein ou en dehors de celui-ci un comité de direction dont il fixe la rémunération et le mode de fonctionnemen't. Administrateurs-délégués ou administrateurs t-e urs-générau x, chargés de l'exécution des décisions du Conseil; il peu t également confier la direction de l'ensemble ou d'une partie des affaires sociales à un ou plusieurs directeurs. Il peu t déléguer à une ou plusieurs personnes, étrangères ou non à la société, tout mandat ou pouvoir, permanent ou temporaire pour des affaires générales ou spéciales. Ces délégations sont en tou t temps révocables par le Conseil. Le Conseil détermine, à charge des frais généraux, les émoluments et indemnités attachés aux mandats, pouvoirs, délégations ou missions qu'il confère. Art; 17. Responsabilité des Administrateurs.
+
+Les Administrateurs ne sont que les mandataires de la société, dans l'exercice de leur mandat, ils n'engagent que celle-ci et ne contractent aucune obligation personnelle. ]Js ne répondent que de l 'exécu tion de leur mandat et des fau tes commises dans l'exercice de leurs fonctions Ils sont solidairement responsables, soit en vers la société. soit envers les tiers. des infractions aux lois et aux statuts'régissant la présente société; ils ne sont dét;hargés de cette responsabilité, quant aux infractions auxquelles ils n'ont pas pris parts, que si aucune faute ne leur est imputable et s'ils ont dénoncé ces infractions à l'Assemblée Générale la plus prochaine après qu'ils en auront eu connaissance.

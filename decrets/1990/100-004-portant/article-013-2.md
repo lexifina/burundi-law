@@ -1,0 +1,3 @@
+# Article 13 2
+
+Vacance. En cas de vacance d'un mandat d'administrateur, les administrateurs restants et le ou les commissaires réunis en Conseil Général peuvent y pourvoir provisoirement. Il sera procédé à l'élection définitive pour l'achèvement du mandat, lors de la prochaine Assemblée Générale. Chaque membre empêché ou absent peut, par lettre ou télégramme, donner à l'un de ses collègues, pouvoir de le représenter à une séance du Conseil Général et d'y voter en seS lieu et place. Les procurations sont annexées au procès-verbal de la réunion. Tou t mandataire peu t représenter plusieurs de ses collègues.

@@ -1,0 +1,9 @@
+# Article 24 2
+
+Assemblée Généra le extraordinaire.
+
+Le Conseil d'Administration peut convoquer extraordinairement l'Assemblée Générale autant de fois que l'intérêt social l'exige. Outre les cas de dissolution. il est tenu de la convoquer dans les quatre semaines. s'il en est requis par le collège des commissaires ou par des propriétaires de parts sociales représentant au moins un cinquième du capital social. Cette dernière demande de convocation doit énoncer l'objet précis de la proposition, les noms, prénoms et domiciles des signataires, les numéros de leurs parts sociales Art 25. Convocations.
+
+Les COn vocations pour tou te Assemb lée Génér ale contiennent l'ordre du jour qui est arrêté par le Conseil d'Administration. Les convocations sont faites par lettres recommandées adressées aux propriétaires de parts sociales, quinze joures francs au moins avant l'Assemblée .; Art 26. Ordre du jour. L'Assemblée Générale ne peut délibérer que sur proposi tions énoncées dans l'ordre du jour. Sauf accord du Conseil d'Administration, aucune proposition faite par les propriétaires de parts sociales n'est portée à l'ordre du jour, si elle n'est pas signée par des actionnaires possédant ensemble un cinquième du capital social et si elles n'a été communiqueée au Conseil d'Administration en temps utile pour être insérée dans les convocations Art 27. Représentation. Tout propriétaire de part sociale peut se faire représenter à l'Assemblée Générale par un mandataire spécial, ayant lui-même le droit d'y assister. ., Les mineurs, les in terdi ts, les sociétés peu ven t être représentés par un mandataire non-actionnaire.
+
+Le Conseil d'Administration peut arrêter la formule des procurations èt exiger que celles-ci soient déposées au lieu indiqué dans les c~vocations, cinq jours fran~ aU moins avant .l'Assemblée. L'Assemblée Générale statue, s'il échet, sU,r les contestations relatives aux qualités des votants

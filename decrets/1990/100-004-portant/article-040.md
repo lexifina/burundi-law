@@ -1,0 +1,3 @@
+# Article 40
+
+La société peut être dissou te en tou t temps par décision de l'Assemblée Générale extraordinaire COnvoquée et délibérant dans les formes et conditions requises pour les modifications au x statu ts. En cas de perte de la moitié du capital social, les. administrateurs SOnt tenus de provoquer la réunion de l'Assemblée Générale extraordinaire, dans les conditions citées à J'alinéa précédent, à J'effet de décider s'il y a lieu de prononcer la dissoJution de la société. Si la perte atteint les trois quarts du capital social la dissolu tion pourra être prononcée par les propriétaires de parts sociales possédant un quart des titres représentées à l'Assemblée.
