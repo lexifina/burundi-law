@@ -1,0 +1,3 @@
+# Article 5 2
+
+Ukutwara ikawa kwose kutegerezwa kugenda kwerekeye i L'évacuation du café des lieux de stockage doit se faire Bujumbura kandi kukakwirikira inzira yahafi kandi itumbere_ .obligatoirment en d:rection de Bujumbura, par la route la plus ye ifatanya ikibanza c'ububiko na BUjumbura. directe reliant l'entrepôt à Bujumbura. ..~.;jjA , ,-" '4. . ~-4~4ao ~aFF Ing'ngo ya 6. Uwutorenga ir'itegeko nshikirangoma azohanwa nkuko bi~ vugwa mu ngingo ya 7 y'itegeko nshikirangoma nO II1/B/88 ryo ku wa 29 Rusama 1962. . Bujumbura, italiki ya 23 Ndamuklza 1964. Umushikirangoma w'Ubutunzi n'Amafaranga,
