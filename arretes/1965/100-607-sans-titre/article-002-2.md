@@ -1,0 +1,7 @@
+# Article 2 2
+
+-Le siège de l'association est établi au Centrale Social et Educatif, Avenue du Peuple Murundi, RP. 1.292 Bujumbura. et peut être transféré dans tout autre endroit de l'agglomération pré- . citée, par décisiQn du conseil d'administration. L'association exerce ses activités dans le pays du Burundi. Buts. 2 Art· 3. - L'association des Boy-Scouts du Burundi est un mouvement de jeunesse dont les buts sont les suivants : 1(> Développer l'éducation chez les jeunes sous tous les aspects de la vi,e physique, intellectuelle, civique et religieuse, morale et familiale, prL!zession,nelle et sociale. u Développer le scoutisme au Burundi conformémettlt au programme arrêté le vingt trois-décembre mil neuf cent soixante et un, par le conseil national du groupement. .
+
+3° L'association des Boy-Scouts du Burundi ne poursuit aucun but politique. Respectueuse de toutes les opinions, elle permet d'accueiller tous les groupements scouts, sans de race, de langue, de classe ni de parti.
+
+4° Former le caractère des jeunes et favoriser en même temps leur développement physique har~ monieux par des exercices appropriés de plein air ; fortifier chez eux habituer à ~ne saine discipline tout en encourageant leurs initiatives ; contribuer efficacement ft faire d'eux des citoyens loyaux, bons, utiles et capables de pouvoir à forces. 5" La collabor~tion avec les institutions publiques et privées en vue de aux buts du mouvement. 6" La stricte observation des principes du scoutisme mondiaL Principe de base.
