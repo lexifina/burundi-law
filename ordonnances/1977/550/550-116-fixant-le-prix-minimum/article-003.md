@@ -1,0 +1,13 @@
+# Article 3
+
+Pour les aqtres localités du Burundi, les prix minima sont fixés comme suit, compte ten~ de l'évaluation forfaitaire des frais de transporta .. 451' E,,,O .. B. N· 9 bis/77 PROVINCE DE BuJUMBURA Mwisal. 89,67 Rwibaga 89,43 Kabezi 89,77 Kitaza 89,64 PROVINC'E DE BHRURI Burur1 88,za Rumonge 8.9,08 Matana 88~53 Makamba 87,56 Nyanza-Lac 88,39 Binyuro 88,48 Tora 88,93 Minago 89,35 Dunga B7,30 Vugizo 87,09 Hunini 87,96 Muhweza 87,69 PROVINCE DE MURAMVYA MuramTya 89,38 Mwaro 89,05 Kibimba 89,OZ Muyaga 88,96 Bukey. 89,35 Kiganda 89,10 PROVINCE DE MUYINGA Muyinga 87,-,1 Mwakiro 87,82 Kirundo 87,43 Mukenke 86,81 Muyange 87,75 NyagatoTu 87,78 Gisenyi 87}22 Giteranyi 86,70 Rugari 87,1C Muramba 87,01 Butihinda 87,07 Gitobe ... 86,8fl PROVINCE DE BUBANZA Buballza 89,48 Musigati 89,27 Rugombo 89,04 Butara 88,57 Muzinda 89,20 .Gihanga 89,74 PROVINCE DE GITEGA Gitega 88,61 Mutaho 88,60 Buhiga 87,93 Bukirasazi 88,z6 Bitare 88,39 Nyarusange 88.86 (Giheta) Bugenyuzi 88,15 Nyabiker. 88,27 Gishubi 88,50 Maramvya 88,48 PROVINCE DE NGOZI Ngozi 88,35 Kayanza 88,74 Birambi 87,93 Rukago 88,86 Mihigo 88,37 Rwegura 88,56 Gisha 89,02 Bumba 89,22 Ruhinga 88,48 Mwirango 88,76 PROVINCE DE RUIIG! Ruyigi 87,83 Cankuzo 87,83 Gisagara 86,91 Nyakayi' 87,43 Giauru 87,14 Ki:ayi:aya 87,7Z Rutana 87,75 Giharo 87,01 Mwishanga 87,92 Kihofi 87,45 Muror • 86,88 Pc~r tout mou~aDt ~ tob:,"l~ à payer ';lH teü:t' selu~.i que 'sEt iTA~'~ ion dè;Gimn>l~~ ~5't (i';era. arr"'HUa/' ·~·dJ iaf6f:$~ *tt'~-<'~, • mlniaterielle n° 5Itûj1;!1 du IDai <1j'l'( complé,tan:t;. :t'ordonnance Ç:,'tl 2!t ;'IH'U·.$i~1; ~i;Gorda,nt ga:t<f),fl.ti8 lie l'Etat à l'emprunt de 750.000 DM contra.: 'P1,tl" l~l. .:siUl"U~ f\I~l t;, 'iii de Dé'feloppement Economique auprès de la Kredi'(;an~'tAl!:. fUr w'tèdîlLra'l.tftoi.'lld de Jl'ran.:rfort/Main.
+
+Le Ministre de l'Economie et d~s F:nance&
+
+Vu le décret-loi nO 1/186 du 26 novembre 1976 portant organisation des pouvoirs législatif et réglementaire ;
+
+Vu le décret-loi nO 500/200 du 2 janvier 1'73 fixant le5 çonditiona dans lesquelles l'Etat peut emprunter ou earantir le capital et les intérêts d'un emprunt, spécialement en son article 6 ;
+
+Vu l'ordonnance ministérielle n~ 5~/47 du 2~ mars 1975 accordant la garantie de l'Etat à l'emprunt de 750.000 DM contracté par la Banque Nationale de Développement Economique 4~prèa de la Kreditanstalt fUr Wiederaufbau de FrancfoFt/Main, Ordonne : Art. unique ..
+
+La garantie de l'Etat accordée par l'ordonnance ministérielle nO 540/47 du 24 mars 1975 pOL'te également sur le J"isque de chance .• Bujumbura. le 31 mai 1911 ~~mlnique SHIRAHANGA. un/~ tion ..\
