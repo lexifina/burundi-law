@@ -1,0 +1,5 @@
+# Article 22
+
+Les sous-Officiers ont pour devoir: d'aLcomplir pcrsonnellement conSCleliCleLlSe ment leur tâche, d"exécuter les ordres de lelll" supérieurs.
+
+- d'être dignes et de faire preuve tant dans leurs rapports avec leurs supérieurs, leurs égaux et leurs inférieurs, que dans leurs rapports avec le public, de la plus grande politesse ; - d'éviter dans leur vie privée, dans le service, tout ce qui pourrait ébranler la confiance du publice ou compromettre l'honneur et h dignité de leur fonction ; , - de veiller à ce que leurs épouses, leurs descendants ou toute personne agissant à leur place, n'exerce une occupation qui serait de nature à nuire à l'accomplissement des devoirs de leurs fonctions ou qui ne se concilierait pas avec celle-ci ; - dans les limites de l~urs compétences de provoquer la répression des abus, des négligences ou des infractions aux lois et réglements qu'ils seraient amenés à constater dans et en dehors de l'exercice de leurs fonctions; - de respecter les consignes et les directives données par les autorités des Forces Armées; .. 126-l:J.OB. no 7 à 9/82
