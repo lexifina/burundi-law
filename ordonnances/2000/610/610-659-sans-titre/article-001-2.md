@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommés membres du Conseil Provincial de l'Enseignement en Province de RUTANA: i".ésident : Monsieur NDAYISHIMIYE Pie, Conseiller - Socio-Culturel du Gouverneur, représentant du Gouverneur de Province. -------------_._~....._-~~-_._~.__ .~ 10. Monsieur Onésime CIZA, représentant des comités des parents de la Commune GISURU. Il. Monsieur Simon NYANDWI, représentant des comités des parents de la Commune KlNYINYA. 12. Madame Yolande SORONGO, représentante des comités des parents de la Commune BUTlHINDA. 13. Monsieur Léopold NZIZUBUSA, représentant des comités des parents de la Commune RUYIGI. 14. Monsieur Venant BANKURUNAZE, représentant des syndicats des enseignants.
