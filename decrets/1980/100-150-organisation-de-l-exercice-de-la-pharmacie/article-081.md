@@ -1,0 +1,3 @@
+# Article 81
+
+Les autorisations d'importation ou d'exportation seront délivrées par le pharmacien inspecteur général des pharmacies ou son délégué pour le territoire du Burundi. Ces autorisations doivent être demandées avant l'importation effective et une copie de demande d'autorisation sera adressée Ã la direction de la pharmacie. L'autorisation d'importation des médicaments délivrée par les autorités du Ministère de la santé publique figure comme document exigé par la Banque de la République pour accorder la licence d'importation, exception faite des importations urgentes couvertes par les licences globales.

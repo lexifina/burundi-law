@@ -1,0 +1,3 @@
+# Article 50
+
+Les établissements de commerce en gros de produits pharmaceutiques sont des établissements qui distribuent en gros aux établissements pharmaceutiques mentionnés Ã l'article 6, alinéas 1 et 3, les substances, produits ou articles mentionnés Ã l'article 5. Ils peuvent également se livrer au commerce de produits para-pharmaceutiques selon une liste fixée par le Ministre de la santé publique. Il leur est interdit de vendre directement au public. Les coopératives de pharmacies constituées en vue d'approvisionner les officines faisant partie de ces coopératives sont considérées comme établissements de commerce en gros Ã l'égard de leurs membres.

@@ -1,0 +1,3 @@
+# Article 38
+
+Les industriels et les pharmaciens qui emploient des stupéfiants pour en extraire des alcaloïdes ou pour les transformer en préparations pharmaceutiques sont tenus d'indiquer ces opérations dans un registre spécial de fabrication. Dans ce registre seront inscrites : les quantités de matières premières introduites dans la préparation avec la date de mise en oeuvre, les quantités fabriquées, leur teneur en alcaloïdes et la date de leur sortie, les pertes éventuelles au cours de la fabrication. Ces préparations porteront un 'numéro de lot permettant leur identification et la marque distinctive des stupéfiants.

@@ -1,0 +1,3 @@
+# Article 29
+
+L'importation des stupéfiants et soporifiques est subordonnée Ã une autorisation préalable du pharmacien inspecteur général des pharmacies ou de son délégué. L'autorisation d'importer est délivrée sur une demande écrite et distincte pour chaque importateur, énonçant la nature, la quantité, le titre alcaloïdique des stupéfiants Ã importer, le nom et l'adresse de l'importateur. Une copie de l'autorisation d'importer est Ã envoyer Ã l'Inspection générale des pharmacies du pays de l'exportateur. Lâ€™importateur ne pourra prendre possession des stupéfiants que sur production de lâ€™autorisation dâ€™importer. La vérification dâ€™un agent compétent pourra toujours avoir lieu. Des échantillons pourront être prélevés aux fins d'expertise.
