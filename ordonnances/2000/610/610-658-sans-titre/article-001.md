@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres du Conseil Provincial de l'Enseignement en Province de MUYINGA : Président: Monsieur Valentin KAJABWAMI, Conseiller Socio-Culturel du Gouverneur de Province. Vice-Président: Monsieur Blaise Pascal BIGIRIMANA, Directeur Provincial de l'Enseignement en Province de MUYINGA. Membres: 1. Monsieur Télésphore MBONIBARIRA, Inspecteur Provincial de l'Enseignement Primaire. 2. Monsieur Sosthène NKURUNZIZA, Administrateur de la Commune MUYINGA, représentant des Administrateurs Communaux. 3. Monsieur l'Abbé Gérard NIBIGIRA, Recteur du Séminaire de MUYINGA, représentant des Directeurs d'écoles secondaires et techniques.
