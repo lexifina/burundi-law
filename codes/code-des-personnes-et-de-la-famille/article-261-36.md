@@ -1,0 +1,3 @@
+# Article 261 36
+
+(53) Tout enfant qui est temporairement ou définitivement privé de son milieu familial, ou qui, dans son propre intérêt, ne peut être laissé dans ce milieu, a droit à une protection et une aide spéciale de l’Etat. Cette protection de remplacement peut avoir la forme du place-ment dans une famille, du placement dans un établissement ap-proprié pour enfants ou de l’adoption. Toutefois, si le placement ou l’adoption est impossible au Bu-rundi, l’adoption à l’étranger peut être envisagée comme un autre moyen d’assurer les soins nécessaires à l’enfant, si celui-ci ne peut être placé dans une famille nourricière ou adoptive burundaise ou être convenablement élevé.

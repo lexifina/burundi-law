@@ -1,0 +1,3 @@
+# Article 261 17
+
+(34) L’adopté a, dans la famille de l’adoptant, les mêmes droits et les mêmes obligations qu’un enfant légitime.

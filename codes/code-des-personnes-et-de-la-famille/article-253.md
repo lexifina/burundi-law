@@ -1,0 +1,3 @@
+# Article 253
+
+(9) L’adoption plénière de l’enfant du conjoint n’est permise que lorsque cet enfant n’a de filiation légalement établie qu’à l’égard de ce conjoint.

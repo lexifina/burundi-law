@@ -1,0 +1,3 @@
+# Article 192
+
+Le juge vérifie la sincérité et la pertinence des allégations des parties quant aux motifs de leur demande et aux mesures propo-sées dans l’intérêt des enfants et pour la liquidation des intérêts patrimoniaux en cause. Il propose tous amendements aux dispositions envisagées pour les rendre conformes à l’intérêt des enfants et à l’équité. A défaut d’accord sur ces amendements, il ajourne les parties à comparaître à nouveau dans un délai compris entre deux et six mois. Il prend en même temps toutes mesures provisoires conformes â l’intérêt des enfants, à la sauvegarde des intérêts des époux, et à leur rési-dence séparée. Ces mesures provisoires peuvent être modifiées à tout moment à la requête des intéressés, s’il survient des éléments nouveaux.

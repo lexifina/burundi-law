@@ -1,0 +1,5 @@
+# Article 233
+
+Le consentement à une reconnaissance à titre posthume, donné par un descendant postérieurement à l’établissement de l’acte de reconnaissance, fait l’objet d’un acte spécial de l’état civil. A cette occasion, l’officier de l’état civil se fait remettre une copie de l’acte de reconnaissance. Si celui-ci ne fait pas mention du des-cendant déclarant, l’officier de l’état civil ne peut recevoir le consentement que s’il résulte de l’acte de naissance du déclarant qu’il possède effectivement la qualité d’enfant légitime, naturel ou adoptif de la personne reconnue à titre posthume. Mention du consentement est portée en marge de l’acte de nais-sance du déclarant et de l’acte de reconnaissance à titre posthume. Ces mentions sont faites conformément au prescrit de l’article 231 La copie de l’acte de reconnaissance et, le cas échéant, celle de l’acte de naissance du déclarant, sont versées au dossier du consentement à la reconnaissance.
+
+Section 5 De l’action en recherche de paternité
