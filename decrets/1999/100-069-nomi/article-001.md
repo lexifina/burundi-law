@@ -1,0 +1,3 @@
+# Article 1
+
+Est nommé Gouverneur de Province BUJUMBURA-RURAL: Major Balthazar NTAMAHUNGIRO, S0576 de la matricule. ...
