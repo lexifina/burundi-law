@@ -1,0 +1,5 @@
+# Article 5
+
+Endéans les 15 jours de l'entrée en vigueur du présent arrêté, les exploitants ou gérants de réservoirs, tanks ou ci~ ternes répondant aux conditions prévues par les articles 1,2,3 et 4 du présent arrêté sont tenus de se faire connaître au Directeur du Département du Travail, Cio B.P. 824 à Bujumbura. Ils lui adresseront à cet effet, par voie postale et par lettre recommandée, un relevé comportant, par récipient, les renseignements suivants : " - désignation (réservoir, tank, citerne) - dimensions 1 - capacité; - nom et adresse du constructeur ; ' - année de cons.truction ; ~ numéro distinctif attribué par le propriéaire 1 - utilisation: a) transpo~t - par eau 1
+
+b) entreposage Les plis ainsi adressés doivent être postés, au plus tard le I3e jour qui suit le jour de l'entrée en vigueur du pré_ sent arrêté. '" " , 1 •"i c, - par route. - à l'air libre (lieu) placé dans une fos_ - - en (lIeu) en rés réservoirs couverts ervoirs souterrans : - enfoui directement dans le sol (lieu) - 1 se (lieu). /J.B. N° '1/66 - 112

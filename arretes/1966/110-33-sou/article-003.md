@@ -1,0 +1,5 @@
+# Article 3
+
+Tous les réservoirs, tanks et citernes souterrains d'une capacité de moins de 20.000 litres en exploitation sur le terri·toire du Royaume et servant à l'entreposage de liquides inflammables doivent faire l'objet d'une épreuve d'étanchéité constatée par un test volumétrique obtenu par le remplissage de l'installation avec le carburan·t d'origine. Tous les orifices, sauf un, étant hermétiquement bouchés, l'orifice restant ouvert étant ..l'empli à ras bord, fermé et scellé, l'essai étant à effectuer à température constante à 24 heures d'intervalle. L'épreuve se fera en conformité des dispositions de l'a_ rticle 69 de l'ordonnance n° 41/65 du 21 mai 1957 visés à l'article premier.
+
+Le délai de quinze ans à expiration duquel, en vertu de l'article 35 de l'ordonnance n° 41/65 du 21 mai 1957, les réservoirs, tanks et citernes visés à l'alinéa premier devront à nouveau être soumis à une épreuve d'étanchéité, com_ mencera à courir'le lendemain du jour de la signature par , l'agent visiteur, du prOCès_verbal dressé à la suite de l'é_ preuve elfectuée en exécution du présent article.
