@@ -1,0 +1,3 @@
+# Article 16 2
+
+Après la clôture du vote et la mise des scellés sur les urnes ainsi que sur le contenu des bulletins de vote non utilisés et nuls, le chef du bur eau électoral les transmet immédiatement par la voie la plus sûre et la plus rapide au président du bureau électoral chargé du dépouillemen t. Ce dernier réceptionne les objets ci-haut cités et constate en présence de ses assesseurs et de deux témoins choisis parmi les électeurs que les scellés apposés sur les urnes et les plis sont intacts. Mention en est faite sur le procès-verbal est conçu comme l'indique l'annexe VIII de la présente ordonnance.

@@ -1,0 +1,3 @@
+# Article 5
+
+Conformément aux dispositions des articles 118 et 119 du code électoral, Je nombre de sièges à pourvoir dans chaque circonsclÎption est fixé comme suit: (155.182 habi tants) 2 sièges (430.988 habitants) 5 sièges (330.292 habitants) 4 sièges (114.806 habitants) 1 siège (197.567 habitants) 2 sièges (539.247 habitants) 7 sièges (188.345 habitants) 2 sièges (459.345 habitants) 6 sièges (336.342 habitants) 4 sièges (158.327 habitants) 2 sièges (406.417 habitants) 5 sièges (246.962 habitants) 3 sièges (370.539 habitants) 5 sièges (126.370 habitants) 2 sièges (178.404 habitants) 2 sièges 52 sièges

@@ -1,0 +1,3 @@
+# Article 3 2
+
+Le Collège Electoral Provincial est chargé d'arrêter, après délibérations, la liste des candidats aux présen t décret qui en tre en vigueur le Jour de sa signature. Bujumbura, le 3 septembre 1982. Jean-Baptiste BAGAZA, COLONEL. Par Le Président de la République, Le Ministre de l'Intérieur, Le Ministre de la Justice, Stanislas MANO\. Lauren t NZEYIMANA. élections à soumettre au Bureau Politique du Comité Central du Parti. Cette liste doit comporter un nombre égal au double des sièges prévus pour chaque circonscription. 11 organisera à cet effet, à l'intention des candidats, une in terview sur les problèmes généraux du pays.
