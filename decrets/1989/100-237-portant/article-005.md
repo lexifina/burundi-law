@@ -1,0 +1,3 @@
+# Article 5
+
+,Dans le cadre de la politique économique et sociale déterminée par le Gou vernement et sous .réserve des pouvoirs reconnus au Ministre de tutelle, le Conseil d'Adiministration détient tous les pouvoirs d'Administration et de gestion de la COGERCO. Il définit les orientations de l'action de la COGERCO, adopte et modifie son règlement d'ordre intérieur et celui de la Compagnie, vote le budget prévisionnel de l'exercice à venir, approuve après examen les comptes de l'exercice écoulé et veille à l'exécution de ses décisions. Il décide de l'affectation des résultats sous réserve d'approbation du Ministre de tutelle. Il peut autoriser de contracter des emprunts ou solliciter des avances bancaires nécessaires au financement des campagnes. ..'f, 1
