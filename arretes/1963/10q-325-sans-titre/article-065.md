@@ -1,0 +1,5 @@
+# Article 65
+
+L'ordonnance nO 111/121 du 30 mai 1.961 est abrogé. Donné à Bujumbura. le 15 nov~mbre 1963.
+
+Le Ministre de la Justice, KARISABlYE Prançois. ~.. j~ .., •••• QSt &4-4»> e 'ff",*,4 Q _4 A P. -4. s 4 :;PUCiQ Se L . . , . -462 - Itegeko rytUmushikirangoma nO 040/~47 ryo kwti~ taliki 15 Kigarama 1963 rishinga ikiguzi kitare~ nwzako ctamata akozwe neza. Umushikirangoma w'Ubutunzi n'Ubucuruzi, Aravye ishimikiro ry'amateka y'Ingoma y'j Burundi Aravye itegeko nshingamateka n° 41/251 ryo kw'italiki Il Myandagaro 1949 riraba ubucunzi bw'ibiguzi ; Asubiye kwihweza itegeko n° 441/106 ryo kw'italîki 15 Ruheshi 1959 rishinga ikiguzi kitarenzwako c'amata akozwe neza; Arategetse ! Ingingo ya 1. 1 Bujumbura ikiguzi kitarenzwako c'amata akozwe neza a~ havuye hose gishinzwe ku mafaranga Il (amafaranga icumi na rimwe) icupa rimwe rifun:dikiye ry litiro. Ingingo ya 2. Itegeko n° 441/106 ryo kw'italiki 15 Ruheshi 1959 rirakuweho. Ingingo ya 3. Ir'itegeko nshikirangoma rizotangura gukurikizwa kw'itali ya 15 Kigarama 1963. Bujumbura, ku wa 15 Kigarama 1963. Umushikirangoma w'Ubutunzi n'Ubucuruzi,

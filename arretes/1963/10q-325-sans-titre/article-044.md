@@ -1,0 +1,3 @@
+# Article 44
+
+Le Ministre de la Justice décide de la création et de la sup* pressJon d'àteliers pénitentiaires et de culture vivrières entre. tenues par la main d'oeuvre pénitentiaire. P. PEClJI:.E;· ~-« Art."'4S~ D'ànslès 'prisôn~ qu'l11:lésigne.destinles à recevoIt' de3' dé.retins -tôni:llfmnés'tl de longue!! peines. le Ministre de la JtnltI# cè pèurdêctdér ~ les détenus définitivement \::ondamnés à Wle' peine de servitude pénale bénéficieront pour ehaque jour.; née de travail d'une allocation dont la moitié sera affectée à la constitution d'un pécule remis aux détenus au moment de leur libération.
