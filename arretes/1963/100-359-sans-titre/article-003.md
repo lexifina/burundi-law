@@ -1,0 +1,3 @@
+# Article 3
+
+' Messieurs SAIDÎ JUMA MUHEHE, cODlmerçant !le- aatIonallté Murundl résidant au Buyenzi, et KASESA Juuia, des.. sinateur d~ no.tionalité Congolaise résidant .au Buyenit. tdbt . re~~èctivèmênt âgrii~ 'eû qu~lité de représentant Ûgal ",' , ' représentant Ugal suppleant de la susdite ' ." ..... . .... ,~;,....;_iiiOiii................ ...,~ ... ....... _ ·•... ........--,'1'i.---""""~,:;;::_~"" ·.~···-;-,~~~,·'::"··-:'-:-:·~r:':'.;:'-::;::~:::'·~....-::;~r;::',.·.,."'·.-,.:.··:-·~~::;;?J.Jii&lI".'t-:"...., "'_-.)N _"... · · - , ~':~-~7......., :.....o!iliir__ _.""......... ....... ·""' i If ' ~ ~ ~ ." , .;.... R.O.R. N" 1/64 ' -3Ingingo ya 4.
