@@ -1,0 +1,3 @@
+# Article 3
+
+L article 3, paragraphe 1er, du décret du 25 novem~ bre 1958 sur la collation des grades académiqles, tel que modifié à ce jour, est cemplété rar le texte suivant : « candidat à la licence d'enscignemel't en :ettres pour le groupe français-anglais, français-kirundi ou histoire-géognl}:hie ; candidat à la liceJ1ce en psychologie et à la licence en sciences de l'éducation cand idat à la 1icence d'ens~ignement en éducation physique et sports: candidat à la licence d'enseigne~ ment en sciences pour le groupe mathématiques physique ou biologie-chimie» à insérer après le membre de phrase « à 1examen de candidat en philosophie et 1ettres »
