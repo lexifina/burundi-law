@@ -1,0 +1,5 @@
+# Article 3
+
+Bureaux Auxiliaiore BUBANZA MURAMVYA .. BUJUMBURA 2 -,~~~----" Le présent arrêté' entrera en vigueur le 16 août 1963. Bujumbura, le 30 juillet 1963.
+
+Le Ministre des Communications. KATIKATI Félix. Itegeko Nshikirangoma nO 100/234 ryo ku wa 12 Mukakaro 1963 rigira bamwe bamwe bo mu Bushikirangoma bw'lmibano Abacamanza nsu~ miZÎ batafise ubukuru bunini cane. Umushikirangoma w'Ubutungane, Aravye ishimikiro ry'amareka ylngoma y'Burundi ; Aravye cane cane mu ngingo y'9 y'ibwirizwa ryo ku wa 26 Mukakaro 1962 ryerekeye ukuringaniza n'ubukuru vya sentare; Kubera ko vyasabwe n'Umushikirangoma w'imibano. ATEGETSE: 1ngingo ya 1. Baragizwe abacamanza nsumizi : CIZANYE Thoma NDABAGOYE Fideli RWABAYE Simeo, bose bafise grade ya « chef de division» muri Ministeri yïmibano. Ingingo ya 2. Ubukuru bwabo n'ubwo kurondera no kwandika abarenze amabwirizwa yerekeye ivyimibano. Ingingo ya 3. Ubukuru bafise bugera aho ingoma y'j Burundi igera. Ingingo ya 4. • Iri tegeko ritangura gukurikizwa umunsi barishiriyeko umukono. Umushikirangoma w'Ubutungane, Ryatangiwe i Bujumbura, ku wa 12 Mukakaro 1963.

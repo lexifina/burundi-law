@@ -1,0 +1,3 @@
+# Article 1
+
+Il est créé une sous-perception des Postes à Kayanza Art. 2, Le tableau annexée à l'ordonnance n" 69/418 du 24 août 1959 est modifié comme suit en ce qui concerne les bureaux de poste du Burundi ; 1.1.8. N° 7/63. Perception 1 Sous-Perception Bureaux 1 Perception 1 Sous-Perception Auxiliaire -",-'---' ----;'-------,-,-, KITEGA NGOZI BUJUMBURA 1 BURURI RUTANA RUYIGI KAYANZA KIRUNDO MUHINGA BUJUMBURk AEROGARE Ingingo ya 3. BUBANZA MURAMVYA NGAGARA BUJUMBURA 2 Iri tegeko rjzotangura kukurikizwa ku wa 16 Myandagaro 1963. Bujumbura, 30 Mukakaro 1963. Umushikirangoma w'amaposita na Télécommunicatio, KITEGA NGOZI BUJUMBURA 1 BURURI RUTANA RUYIGI KAYANZA KIRUNOO MUHINGA BUJUMBURk AEROGARE
