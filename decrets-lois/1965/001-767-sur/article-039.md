@@ -1,0 +1,3 @@
+# Article 39
+
+Lors de la première mise en place des bourgmestres selon les modalités de la présente loi et chaque fois qu'il écherra de désigQer un nouveau bourgmestre, le choix du Roi se portera . sur un des conseillers élus dans la Commune, sachant lire et écrire le Kirundi, âgé d'au moins 25 ans et qui ac_ cepte. Au conseil communal. le conseiller nommé comme bourgmestre sera remplacé :par son suppléant. Le Roi peut toutefois, par décision motivée et après avoir pris les avis du Gouverneur de province et du Commissaire d'Arrondis_ sement, nommer une personne qui n'a jamais été élue comme conseiller.

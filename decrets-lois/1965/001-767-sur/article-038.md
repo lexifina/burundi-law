@@ -1,0 +1,3 @@
+# Article 38
+
+Le Bourgmestre est un fonctionnaire, hiérarchiquement soumis au Commi.ssaire d'Arrondissement, au Gouverneur de Province et au Ministre de l'Intérieur. Il est soumis au sta_ tut des fonctionnaires de l'Administration sauf les exceptions , prévues par la présente loi. Les bourgmestres sont nommés par le Roi, après avis du Gouvemeur de province et du Ministre de J'Intérieur. Les bourgmestres appartiennent à un cadre administratif spécial. Ils ne peuvent être transférés dans un autre cadre administratif sans passer par les modalités statutaires d'engagement et doivent notamment satisfaire aux conditions de recrutement fixées pour le grade qu'ils bri_ gl!ent dans cet autre cadre·

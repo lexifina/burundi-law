@@ -1,0 +1,3 @@
+# Article 5
+
+Le conseil communal comprend un Conseiller par tranche rde deux mille éleèteurs enrôlé~ lors des dernières élections législatlvesl un conseiller supplémentaire peut être désigné si la tranche restantê' est supérieure à mUle; toutéfois le nombre des corueillers ne peut être inférieur à huit, ni supérieur à quinze. Sur la base renseignée à l'alinéa précédent. le Gou.. verileur de 'provincearrête le nombre de conseillers Pour chaque commune de sa province> Les conseillers communaux et leurs $uppléants'~t élus au 'suffrage universel mais suivant un mode de. votation simplié dont les modalHés~sont fixées par arrêté ·royal. . En cas de néceasité, des élections pàrtielles peuvent être teaues, en cours de mandat, pour compléter le conseil COIn_ \ munal. . .
