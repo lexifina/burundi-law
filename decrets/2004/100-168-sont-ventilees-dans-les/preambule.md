@@ -1,0 +1,9 @@
+# Décret n°100/168 du 31 décembre 2004
+
+SONT VENTILEES DANS LES
+
+tableaux C 1 et C2 annexés à la présente Loi . Conformément au concept du Budget uniflé, aux règles et principes de l'Unité budgétaire, de l'annualité et de l'universalité de trésorerie de l'Etat, le Budget Général de l'Etat, en recettes et dons, en dépenses courantes, en dépenses en capital et Prêts nets, en Financement est préparé et exécuté par le Ministre des Finances, Ordonnateur unique de l'ensemble des dépenses de l'Etat. L'Ordonnateur-Trésorier du Burundi est comptable principal de l'Etat. Il commissionne les comptables spécialisés des organismes et Etablissements autonomes et les comptables des projets. Toute tranche mensuelle accordée à ces organismes doit être justifiée par la communication, aux fins de reddition des comptes de l'Etat, des extraits du livre journal de caisse dont la présentation est o~ligatoire à l'octroi des tranches suivantes.
+
+Les ressources en dons ~t prêts extérieurs sont budgétisées, nomenclaturées et codifiées comme recettes du Budget Général de l'Etat. Toutes les dépenses, courantes et en capital, imputables sur ces mêmes ressources sont totalement budgétisées, nomenclaturées et , codifiées comme dépenses du Budget Général de l'Etat. En vue d'assurer l'exécution des présentes dispositions, le Ministre des Finances est habilité à négocier avec les Bailleurs de Fonds pour décider de l'allocation des ressources et à prendre par Ordonnance les mesures d'ordre réglementaire pour le suivi et la comptabilisation compatible avec les clauses de fmancement , les accords de crédits et les lois en vigueur .
+
+Les ressources du Fonds Routier National sont budgétisées comme recettes du Budget Général de l'Etat. Toutes les dépenses imputables sur ces mêmes ressources sont aussi budgétisées . comme dépenses du Budget Général de l t Etat. Les ressources et les dépenses

@@ -1,0 +1,9 @@
+# Article 15
+
+~ 1 1 1 émenre des bons du Trésor conformément à la convention du 22 juin 2006 signée entre le Ministre des Finances et le Gouverneur de la BRB ; recourir en dernier ressort aux avances de la BRB ; L'encours toeal des bons du Trésor et des avances de la BRB à l' Eeat ne peut pas dépasser 25 % des recettes de l'exercice précédent.
+
+- contracter des prêts auprès des Bailleurs de Fonds Etrangers;
+
+- négocier les autres sources de tinancements extérieurs en accordant la priorité aux dons. Dans la limite du déticit budgéeaire de la gestion 2007. le Ministre des Finances est autorisé à : émettre des obligations du Trésor dans le public suivant la convention du 22 juin 2006 signée entre le Ministre des Finances et le Gouverneur de la BRB ; recourir aux concours extérieurs dans l'ordre de prétërence suivant: dons, prêts à long terme à des conditions concessionnelles et autres prêts. Il est institué une prime à tO:!lte personne qui révèle une fraude fiscale. La prime est fixée à 10% des moneants perçus par les impôts suite à cette révélation. Elle est payée dans un délai ne dépassant pas un mois à partir de la clôture du dossier. Il est institué une prime à toute personne qui révèle une fraude douanière. La prime est fixée à 10% des montants perçus par les douanes suite à la révélation. Elle est payée dans un délai ne dépassant pas un mois à partir de la clôture du dossier.
+
+Les opérations fmancières· de l'Etat telles qu'elles sont définies à l'article 6 du Décret-Loi nO 1/039 du 30 Décembre 1989 et décrites dans les comptes gouvernementaux sont rattachées au Budget Général de l'Etat. Elles participent à la reddition mensuelle des comptes de l'Etat. Le crédit de chaque compte doit faire apparaître la distinction entre les ressources propres et transferts reçus, le débit doit ventiler les charges entre dépenses courantes et dépenses en capital. .j! / -II "!'·'!'·····'jl .1
