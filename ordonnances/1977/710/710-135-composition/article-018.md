@@ -1,0 +1,3 @@
+# Article 18
+
+Aucun paiement ne peut être effectué par le Comptable sans le visa préalable du Directeur ou du Directeur-adjoint. Le Ministre de Tutelle 'D sur proposition du 'Comi té de Gestion fixe le plafond de l'en.caisse autorisée pour le Comptable. Les sommes excédent cette encaisse sont déposées en compte courant à la Banque de la RépUblique .. Toutefbis cl.~H; comptes peuvent 3tre ouverts dans les établissements bancaires pour la facilité des opérations. Tout chèque tiré sur un compte bancaire ouvert au no. de la SOBECOV doit porter outre la signature du Comptable 9 celle du Directeur ou du Directeur-adjoint.

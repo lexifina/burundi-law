@@ -1,0 +1,3 @@
+# Article 13
+
+Le Directeur représente la SOBECOV auprès des tiers et en justice. Outre les attributions qui lui sont spécialement déléguées par le Conseil d'Administration, il établit les états mensuels de prévisions de recettes et de dépenses, surveille les opérations du Compt&ble, organise le service, engage le personnel, passe les contrats tant avec les fournisseurs qu'avec les clients de, la SOBECOV• Toutefois les contrats engageant une dépense excédent le plafond déterminé par la réglementation des mp,rchés publies- et adjudications doivent 3tre passés conformément à cette l';~ erllentation.
