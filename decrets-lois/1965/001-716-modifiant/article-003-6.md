@@ -1,0 +1,3 @@
+# Article 3 6
+
+Les dates de rassemblement et leur périodicité sont fixées conformément au calendrier ci-annexé. Art. 4, Les personnes autorisées par les Gouverneurs de Provin. ces délégués à réceptionner le coton n.on égrené dans les centres de rassemblement aux termes de l'article 36 du dé. cret, sont désignées poUr verser ravance prOVisionnelle, dont le montant par kilogramme de coton non égrené doit· étre affiché dans les dits centres. Les bordereaux: mentionneront les résultats des pesées par planteur, par, commune et ,par séance. Un exemplaire 'des bordereaux sera remis au repré. sentant du Gouvernement, l'autre étant Gonservé par la «Ruzizi Jo.

@@ -1,0 +1,3 @@
+# Article 3 4
+
+Les entreprises visées à l'article 2. 1° ci-dessus dont le siège est à Bujumbura, devront se proçurer les imprimés de formules de. recensement, .modèle 1 pour les entreprises commerciales et modèle Il pour les \entrepri,ses industriel· les. au bttreau de recensement ouvert: au Ministère de l'Economie. Département du Commerce Intérieur Les chefs d'entrepriBes ou leurs préposés auront à se prése~ter en pero sonne à l'agent chargé de la distribution des imprimés. Il ne pourra être attribué plus de quatre e:Jl;emplaires d'imprimés à une même entreprise. Licence modo D 7.800 F Licence modo E' 3.900 F . Licence modo F 7.800 P Licence med. G 3.900 F Licence modo H 41000 P Licence modo J 4.000 F Licence modo K 4.000 F 1 '1
