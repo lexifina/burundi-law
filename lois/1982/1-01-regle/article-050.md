@@ -1,0 +1,3 @@
+# Article 50
+
+Les amendements présentés par le Gouvelnement ou par la Commission saisie au fond ont priorité de discussion sur 1es amendemen ts des Représentants. Art 51. Lorsque plusieurs amendements, exclusifs l'un de l'autre, sont en concurrence, le Président peut les soumettre à une discussion commune au cours de laquelle les au teurs obtiennen t successivement la parole avant la mise aux voix, également successive, de leur s amendemen ts. ArL 52. Lorsque le Gûu vernement déclare l'urgence au sujet de l'examen d'un projet, le Président en donne immédiatement connaissance à l'Assemblée. Le Bureau modifie l'ordre du jour en conséquence, CHAPITRE IV. Procédures abrégées : vote sans débat et dé bat restrei nt.

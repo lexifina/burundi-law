@@ -1,0 +1,5 @@
+# Article 87 2
+
+Le défrichement des réserves boisées, dont la conservation est imposée au propriétaire en vertu des dispositions de l'article 83 donne lieu à une amende prévue à l'article 86. En cas d'inexécution dans un délai maximum de trois ans des travaux de reboisement sur d'autres terrains, imposés en application des articles 83 et 86, les lieux défrichés doivent être rétablis en nature de bois dans un délai fixé par le Service Forestier. Ce délai ne peut excéder deux années. L'autorité administrative peut, en outre, dans les conditions fixées à ['alinéa précédent, ordonner la remise en nature de bois des terrains devant être maintenus à l'état de réserves boisées. Faute, par le propriétaire, d'effectuer la plantation ou le semis, prévus par l'article 83 et 85 et par le présent article, dans le délai prescrit par la décision administrative, il y est pourvu à ses frais par l'administration qui arrête le mémoire des travaux faits et le rend exécutoire contre lui.
+
+d) L'article 88 (ancien article 86) devient
