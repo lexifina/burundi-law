@@ -1,0 +1,3 @@
+# Article 58
+
+JI est ensuite procédé au décompte dc!> suffI age" ~elon de~ modalités qui ,eront fixées par le Ministl e de l' rntérieur en fonction des di"positions spéciales à chaque type de scrutin précisées au Titre 11 du présent code et en respectant les principes suiv"nts : 1 0 publicite des opérations de dépouillement, les portes du local oil eIles se déroulent devant rest~r ouvertes pendant toute leur durée ; 2" double enregistrement des suffrages et comparaison des résultats obtenus afin de déct'ler et d'éviltr toute évelltudle erreur. Seuls les suffrages pris en compte pLut notamment, pour le requises.

@@ -1,0 +1,3 @@
+# Article 137
+
+Le procès-verbal de déroulement visé à l'article 52 est établi en un original et en quatre copies certifiées. L'original et deux copies certifiées son t adressés au Gouverneur de Province, 1 copie est adressée au Président de la Commission visée à l'article 63, et le dernier exemplaire étant conservé sur place. Les modalités desdites transmissions sont précisées par le Ministre de l'Intérieur. Dans le cas visé au second alinéa de l'article 30 et aux articles 53 et 54, l'original et la copie destinée au Gouverneur de Province d'un procès-verbal établi par un bureau secondaire, son t transmis sous couvert • du Président du Bureau Electoral chal du dépouillement, qui les annexe au procès-verbal de déroulelement dudit Bureau.

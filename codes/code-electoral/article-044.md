@@ -1,0 +1,3 @@
+# Article 44
+
+L'électeur qui, bien que porteur de sa carte d'électeur et régulièrement inscrit "ur le rôle électoral, ne peut produire les documents requi" pour justifier de son identité, peut être admis néanmoins à voter par décision du Bureau Electoral lorsque son identité est parfaitement connue d'au moins trois membres duai1 Burcdu. L'électeur qui, porteur des documents requis pour justifier de son ide11tité et régulièr~ment inscrit sur !e rôle électorat, ne peut produire sa cal te d'électeur, peut être admis à voter par décision du Bureau Electoral. L'électeur qui n'est porteur, ni de sa carte d'électeul, ni des documents requis pour justifier de son identité, ne peut être admis à voter.
