@@ -1,0 +1,89 @@
+# Article 7
+
+Sont nommés au grade de Commandant à la dàte du 01 juillet 2000, les Capitaines dont les noms suivent: o Edouard RlVUZUMW AMI S0754 o Apollinaire NDAYITWA YEKO S0766 o Angelo NTIBIGARURA S0843
+
+• Philippe NIYUNGEKO S0846
+
+- Isidore SABUKWIGURA S0849
+
+• Salvator BUROMO S0867
+
+• Joseph VYANDARAYE S0873
+
+• Aloys BIZINDAVYI S0874
+
+- Ildéphonse MBISAMATORE S0875
+
+- Cyriaque SABUSHIMlKE S0877
+
+- Callixte MUGISHA S0878
+
+• Diomède NDAGIJIMANA S0879
+
+- Stanislas BA VUGAMENSHI S0880 -Déo BARAGABIRIJE S0881
+
+- Nestor NIBOGORA S0882
+
+- Martin MUDOMO S0883
+
+- Edouard SIMBIZI S0884
+
+- Cyriaque BIKORIMANA S0885
+
+- Léonidas GITATUZI S0886
+
+- Cyriaque NZOBATINYA S0887
+
+• Serge MPAWENAYO S0888
+
+- Léonard NDAYIZEYE S0890
+
+- Pierre-Claver NDUWAYO S0892
+
+• Salvator KANSHAHU S0893
+
+• Cyriaque SINDA YIHEBURA S089{
+
+- Déogratias NIZIGIYlMANA S0895
+
+- Juvénal NDUWAYO S0896
+
+- Ephraïm NDA YISHIMIYE S0897
+
+- Georges HAKIZlMANA S0898
+
+- Frédéric BUDOMO S0899
+
+- Léonidas NIYUNGEKO S0901
+
+- Grégoire NDIKUMAZAMBO S0902
+
+- Ernest SABUSHIMlKE S0903
+
+- Herménégilde HARIMENSHI S0905
+
+- Léonidas SINDARUSIBA S0906 -Côme NIYONIZIGIYE S0907
+
+- Onésime NDA YEGAMIYE S0908
+
+- Juvénal HARUSHIMANA S0912
+
+- Serge KABAN);'URA S0913
+
+- Samuel NDAYISABA S0914
+
+- André NDUWAMUNGU S0915
+
+- Jean-Pierre SINDA YIGA YA S0917
+
+- Rénovat NTIBESHA S0918
+
+- Sylvestre MANlRAKIZA S0925
+
+- Salvator BARAMBURIYE S0971
+
+- Ildéphonse MUTUNGWA S1017
+
+- Ildéphonse HAKIZlMANA S1018
+
+- Frédéric BIZINDAVYI S1079

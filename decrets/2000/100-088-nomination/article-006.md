@@ -1,0 +1,89 @@
+# Article 6
+
+Sont nommés au grade de Major à la date du 01 juillet 2000, les Commandants dont les 'noms suivent:
+
+- Salvator BIZIMANA S0503
+
+- Grégoire NIVYUBU S0532 o Déogratias NTIY ANKUNDIYE S0574 ~
+
+• Gervais NDIKURIYO S0627
+
+- Dismas BARIKORE ~0631
+
+- Léonidas NIYONGABO S0633
+
+• Bonaventure NTEREKWA S0639
+
+- Léonce BASERUKIYE S0642
+
+- Cassien KARERWA S0649
+
+- Edouard CISHAHAYO S0650
+
+- Gabriel BUNYUNDO S0654
+
+- Laurent BARUTWANAYO S0657
+
+- Anatole BA VUGIRUHOZE S0667
+
+• Herman NDEKATUBANE S0668
+
+• Serge KANDEKE S0671
+
+- Gervais MURINGA S0674
+
+- Athanase MBONIMPA S0675
+
+- Paul NDITIJE S0676
+
+- Jean Bosco KIRAZUNGA S0680
+
+- Albert BISAGANYA S0686 o Déogratias NIYIREMA S0687
+
+- Déogratias BIGIRUMWAMI S0691
+
+- Venant NDABIRORERE S0694
+
+- Tite SERUDUGO S0696
+
+• Déogratias NIYUNGEKO S0700
+
+- Augustin NIBARUTA S0701
+
+- Egide NJEJIMANA S0706
+
+- Rémy NDA YISHIMIYE S0712 o Pierre-Claver NDUWAYO S0717
+
+- Michel KAZUNGU S0718
+
+- Tharcisse RUSUGURU S0719
+
+- Callixte TWAGIRA YEZU S0720
+
+- Adrien KADENDE S0723
+
+- Aloys KANDEKE S0725
+
+- Emmanuel NAYUBU S0726
+
+- Juvénal BAYISABE S0729
+
+- Jean-Pierre GISHIKIZO S0731
+
+- Salvator BAHENDUZI S0733
+
+- Jean BIGIRIMANA S0737
+
+- Augustin BIZURU S0739
+
+- Jean-Baptiste SINDA YIHEBURA S0740 o Léonce MUSAVYI S0743 o Egide NDIKUMASABO S0744 o Salvator SIYABO S0747
+
+- Thimothée NTIJIMANA S0749 o Frédéric BARUTW ANA YO S0761
+
+- Michel SIBONIYO S0762
+
+- Déogratias BARANCIRA S0763
+
+- Jean-Baptiste NZEYIMANA S0802 o Diomède NT ASUMBUMUYENGE S0803
+
+- Gervais GAHONGANO S0871 •
