@@ -1,0 +1,3 @@
+# Article 2
+
+La Cellule a pour mission notamment de : L Récolter, traiter et diffuser tous les renseignements statistiques relatifs à l'enseignement formel et non formel, public et privé. 2. Mener des études en vue d'évaluer le système éducatif burundais et fournir les indicateurs de son efficacité interne et externe. 3. Préparer et élaborer les plans éducatifs à court, moyen et long terme sur base des techniques de la carte scolaire. 4. Recommander une utilisation rationnelle des ressources disponibles ou prévisibles. 5. Centraliser la préparation des projets relatifs au développement des ressources humaines, en fonction des besoins socio-économiques du pays.
