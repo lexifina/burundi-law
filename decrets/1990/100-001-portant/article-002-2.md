@@ -1,0 +1,3 @@
+# Article 2 2
+
+Le Fonds a pour objet de faciliter la promotion des entreprises agricoles individuelles ou collecti ves ainsi que les petites et moyennes entreprises artisanales, industrielles ou de services en accordant sa garantie ou sa contre-garantie aux crédits à court, ."l) moyen et long terme sans garantie réelle ou person-'!ft nelle suffissante, qui leur sont accordés par les Banques et les autres institutions financières du Burundi. En outre, le Fonds pourra bonifier les taux d'intérêts des crédits octroyés aux entreprises visées à l'alinéa précédent et participer éventuellement au financement de leurs activités.

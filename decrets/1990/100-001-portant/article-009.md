@@ -1,0 +1,3 @@
+# Article 9
+
+Les ressources du Fonds sont gérées sur trois guichets dans les limites déterminées par l'Assemblée Générale. 10 Le guichet ouvert au titre de la garantie ou de la contre garantie. Il emploie ses ressources à l'octroi de la garantie ou de la contre-garantie aux 1er crédits visés au paragraphe de l'article 2 ci-dessus. 20 Le guichet ouvert au titre de la bonification. Il emploie ses ressources à la bonificaation d'intérêts d'emprunts souscrits auprès des insti tu tions financières pour la réalisation de projets essentiellement agricoles mais dont la rentabilité financière ne permet pas le remboursement aux taux ,d'intèrêts du marché. 30 Le guichet ouvert au titre de la participation éventuelle.
