@@ -1,0 +1,3 @@
+# Article 6
+
+La Direction Générale du Plan est placée sous l'autorité d'un Directeur Général. La direction générale du Plan a pour tâche : la formulation des objectifs, tant quantitatif que qualitatif, de développement et la détermination des ressources financières et humaines susceptibles de les réaliser. - le choix des projets à soumettre aux financemen ts tant intérieurs qu'extérieurs. - le contrôle d'exécution des programmes sectoriels du plan de Développement. - l'appui des Ministères Techniques dans l'Etablissement des priorités lors de j'élaboration du Plan Quinquennal, des tranches annuelles d'exécution du Plan et de la préparation de la loi des Finances. - l'encadrement des Ministères Techniques dans les études de projets.

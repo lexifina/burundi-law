@@ -1,0 +1,3 @@
+# Article 2 2
+
+Dans le cadre du programme mentionné à l'art ide précédent et sur base des spécifications chiffrées contenues dansle dossier présenté aux avis de laCommission Nationale des Investissements, la HAYDRY INDUSTRIES est autorisée à bénéficier de l'avantage particulier sui vant en application de l'article 19 du code des Investissements du Burundi : Exonération des droits d'entrée et fiscaux à l'importation des équipements dont la liste est annexée à la présen te ordonnance. Ces équipements doivent être importés et déclarés en consommation dans un délai de 18 mois à compter de la date de la signature de la présente ordonnance.

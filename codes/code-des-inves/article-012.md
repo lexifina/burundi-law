@@ -1,0 +1,3 @@
+# Article 12
+
+Le Département de la Planification et de l'Aménagement du Territoire est chargé de la définition d'une stratégie de développement à moyen et long terme. Il est chargé notamment de la préparation du Plan Quinquennal de Développement Econominomique et Social. A cet effet, il doi t faire de la prévision : assurer la colleete permanente des données concernant l'évolution à moyen et long terme de l'économie du pays et des relations économiques internationales. A partir des données de la prévision, le Département de la Planification et de l'Aménagement du Territoire doit fournir une expression chiffrée des directives données par le pouvoir politique.

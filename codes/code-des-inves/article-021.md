@@ -1,0 +1,3 @@
+# Article 21
+
+La Cellule des Budgets est chargée de la préparation des tranches annuelles d'exécution du Plan, en particulier quan t aux choix et à la détermination des degrés de priorité respective des projets d'investissemen t. A cet effet, elle s'occupe de l'élaboration des prévisions du budget d'investissement, y compris celles relatives aux contreparties en espèces incombant au Burundi dans l'exécution des projets bénéfician t d'une aide financière ou technique extérieure. Elle devra également épauler le Ministre des Finances pour la détermination des dépenses de fonctionnement et d'entretien résultant de la réalisation des projets d'investissement.
