@@ -1,0 +1,3 @@
+# Article 1
+
+Par application de l'article 3 de la loi du 17 février '1964 relative à J'impôt réel, les conditions auxquelles doivent se --._,.. soumettre les sociétés et associations sportives. sont détermi~ nées comme suit: l' elles doivent soumettre leurs statuts à l'approbat:on du Ministre des Finances ; 2" elles doivent compter un minimum de quinze membres ; 3' elles doivent exiger de leurs membres une cotisation ; 40 eUes ne peuvent allouer aucune rémunération aux mem~ bres faisant paree de comités d'administration, de di~ rection, etc. : 5~ elles doivent exhiber leurs livres comptables à toutes ré. quisitions des fonctionnaires désignés pour procéder à la vérification des déclarations à l'impôt réel.
