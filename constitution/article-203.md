@@ -1,0 +1,3 @@
+# Article 203
+
+L’Assemblée Nationale peut présenter une motion de censure contre le Gouvernement, à une majorité de deux tiers de ses mem-bres. Elle peut être dissoute par le Chef de l’Etat. Une motion de défiance peut être votée à une majorité de deux tiers des membres de l’Assemblée Nationale contre un membre du Gouvernement qui accuse une défaillance manifeste dans la ges-tion de son département ministériel, ou qui pose des actes contrai-res à l’intégrité morale ou la probité ou qui, par son comportement, gêne le fonctionnement normal du Parlement. Dans ce cas, le membre du Gouvernement présente obligatoire-ment sa démission.

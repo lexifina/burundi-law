@@ -1,0 +1,9 @@
+# Article 191
+
+Dans les matières visées à l’article 187, I et 3, le texte adopté par l’Assemblée Nationale est transmis pour adoption au Sénat par le Président de l’Assemblée Nationale.
+
+Le Sénat adopte le projet, dans un délai ne pouvant dépasser les trente jours, soit sans amendement, soit après l’avoir amendé. Si le Sénat adopte le projet sans amendement, le Président du Sé-nat retourne le texte adopté au Président de l’Assemblée Nationale qui le transmet dans les quarante-huit heures au Président de la République aux fins de promulgation. Si le Sénat adopte le projet après l’avoir amendé, le Président du Sénat le transmet à l’Assemblée Nationale pour un nouvel exa-men. Si les amendements proposés par le Sénat sont adoptés par l’As-semblée Nationale, le Président de l’Assemblée Nationale trans-met, dans les quarante-huit heures, le texte définitif au Président de la République aux fins de promulgation. Lorsque, par suite d’un désaccord entre les deux chambres, un projet ou une proposition de loi n’a pu être adopté, le Président de l’Assemblée Nationale et le Président du Sénat créent une commis-sion mixte paritaire chargée de proposer un texte commun sur le tout ou la partie du texte restant en discussion, endéans 15 jours ouvrables.
+
+Le texte élaboré par la commission mixte paritaire est soumis pour approbation aux deux chambres. Aucun amendement n’est recevable. Chacun des deux chambres l’approuve séparément. Si la commission mixte ne parvient pas à l’adoption d’un texte commun, ou si ce texte n’est pas adopté par l’une ou l’autre Cham-bre, le Président de la République, peut, soit demander à l’Assem-blée Nationale de statuer définitivement, soit déclarer caduc ce projet ou la proposition de loi. L’Assemblée Nationale adopte ce texte à la majorité des deux tiers.
+
+TITRE VII DES RAPPORTS ENTRE L’EXÉCUTIF ET LE LÉGISLATIF

@@ -1,0 +1,3 @@
+# Article 19
+
+Les droits et devoirs proclamés et garantis, entre autres, par la Déclaration universelle des droits de l’homme, les Pactes interna-tionaux relatifs aux droits de l’homme, la Charte africaine des droits de l’homme et des peuples, la Convention sur l’élimination de toutes les formes de discrimination à l’égard des femmes et la Convention relative aux droits de l’enfant font partie intégrante de la Constitution de la République du Burundi. Ces droits fonda-mentaux ne font l’objet d’aucune restriction ou dérogation, sauf dans certaines circonstances justifiables par l’intérêt général ou la protection d’un droit fondamental.
