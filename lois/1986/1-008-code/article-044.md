@@ -1,0 +1,3 @@
+# Article 44
+
+Si le fonds est tenu à bail ou en occupation provisoire, la mitoyenneté peut être acquise pour le propriétaire du fonds par le preneur ou l'occupant ayant un droit actuel ou conditionnel à devenir propriétaire. Lorsque le fonds n'est pas cédé en propriété à l'acquéreur de la mitoyenneté, une indemnité égale à la valeur du bien acquis est due à ce dernier à l'expiration du droit en vertu duquel il occupe le fonds. A l'égard des biens ainsi acquis, le preneur ou l'occupant exerce les mêmes droits et supporte les mêmes charges que ceux qu'il exerce et supporte à l'égard du fonds lui-même.

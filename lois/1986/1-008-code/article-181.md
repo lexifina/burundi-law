@@ -1,0 +1,3 @@
+# Article 181
+
+En cas de décès du créancier hypothécaire, est considéré comme lui ayant succédé dans ses droits sur la créance, l 'héritier ou le légataire au nom duquel le transfert de la créance est opéré par une inscription portée sur le certificat d'enregistrement. Si, au jour de l'échéance, le transfert n'est pas opéré, le débiteur peut se libérer par le dépôt de ce qu'il doit, au Trésor Public, sans formalité préalable. En ce cas, le transfert de la créance ne peut être opéré qu'en vertu d'une ordonnance du Président du Tribunal de Grande Instance dans le ressort duquel est situé l'immeuble. L'ordonnance n'est rendue que sous les conditions, après les délais et dans les formes prévues par les dispositions relatives aux mutations immobilières.

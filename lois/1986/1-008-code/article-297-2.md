@@ -1,0 +1,3 @@
+# Article 297 2
+
+Le cessionnaire ou le concessionnaire peut adresser ses observations ou ses propositions à l'autorité compétente qui apprécie et peut, si elles lui paraissent fondées, renoncer à la mesure envisagée ou, dans le cas contraire, la prendre à ['expiration du délai de mise en demeure. Dans le premier cas, les propositions du cessionnaire ou du concessionnaire sont consignées dans un avenant au contrat de cession ou de concession. Si le cessionnaire ou le concessionnaire ne respecte pas dans les délais les engagements ainsi souscrits, la procédure de résolution ou de résiliation peut être reprise sans nouvelle mise en demeure.

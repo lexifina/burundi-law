@@ -1,0 +1,3 @@
+# Article 276
+
+La superficie indiquée dans le con trat de cession ou de c::>ncession n'est donnée qu'à titre indicatif, sauf lorsque Ile est constatée dans une décision juridictionnelle irrévocable ou dans un certificat d'enregistrement antérieur. Toutefois, 1<: montant du prix, le loyer, la redevance ou toute autre contrepartie due par le cessionnaire ou le concessionnaire est révisé en hausse ou en baisse lorsque la différence entre la superficie réelle et celle stipulée au contrat est égale ou supérieure à un dixième de cette dernière. Paragraphe 2. Obli'gations du cessionnaire ou du co ncessio na ire.

@@ -1,0 +1,3 @@
+# Article 427
+
+La remise des biens expropriés peut être, en cas de refus de l'Administration, ordonnée par la juridiction compétente: - soit sur la déclaration de l'Administration que les biens ne sont pas destinés à servir à la réalisation de l'opération d'utilité publique antérieurement en visagée et pour laquelle ils avaient été acquis; - soit lorsqu'il est prouvé que ces biens sont utilisés par le bénéficiaire de l'expropriation à une fin autre que celle initialement prévue; - soit lorsque l'opération d'utilité publique n'est pas entreprise dans l'année suivant le déguerpissement du dernier des propriétaires ou occu· pants de la terre expropriée.

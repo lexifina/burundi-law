@@ -1,0 +1,3 @@
+# Article 275
+
+L'Etat est tenu envers le cessionnaire ou le concessionnaire aux obligations relatives aux conventions en général et aux obligations spéciales prescri tes par le présent code et par la convention de cession ou de concession. Il en est ainsi notamment de l'obligation de délivrance et de l'obligation de garantie contre l'éviction. Toutefois, les terres cédées ou concédées le sont sans garantie quant à leur valeur agricole, commerciale ou résidentielle. Il n'y a non plus aucune garantie de l'Etat quant au maintien de l'affectation, cette dernière pouvant toujours être modifiée dans l'intérêt général par application des dispositions relatives aux plans d'aménagement du territoire.

@@ -1,0 +1,3 @@
+# Article 42
+
+Le vOIsin qui n'a pas contribué à l'exhaussement peut en acquérir la mitoyenneté en payant la moitié de la valeur de la construction nouvelle et du sol fourni pour l'excédent d'épaisseur.

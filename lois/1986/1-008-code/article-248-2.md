@@ -1,0 +1,3 @@
+# Article 248 2
+
+Le présent chapitre définit le régime juridique des cessions ou des concessions de droits foncier portant sur des terres du domaine privé de l'Etat. Ne sont toutefois pas soumises aux présentes dispositions: 1 0 Les cessions ou concessions effectuées par l'Etat au profit des communes et celles effectues par l'Etat ou les communes au profit des établissements publics et des sociétés de droit publics. 2 0 les concessions spéciales soumises à une législation, particulière, notamment les concessionsde recherche ou d'exploitation minière ou pétrolière, les concessions de distribution d'eau ou d'électricité, les concessions des droits d'usage et d'occupation des eaux et lits des lacs et cours d'eau, et les concessions de pêche ou de chasse, • B.O.B. 7 il 9/86

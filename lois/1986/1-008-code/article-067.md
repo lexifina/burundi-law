@@ -1,0 +1,3 @@
+# Article 67
+
+Si l'usufruit comprend des bois aménagés en taillis, l'usufruitier est tenu d'observer l'ordre et la quotité des coupes, conformément à l'aménagement ou à l'usage constant du propriétaire, sans indemnité toutefois en faveur de l'usufruitier ou de ses héritiers, pour les coupes ordinaires, soit de taillis, soit de baliveaux, soit de futaie, qu'il n'aurait pas faites pendant sa jouissance. les arbres qu'on peut tirer d'une pépinière sans la dégrader. ne font partie de l'usufruit qu'à la charge pour l'usufruitier de se conformer aux usages des lieux pour leur remplacement. 135 B.O.B. 7 à 9/86

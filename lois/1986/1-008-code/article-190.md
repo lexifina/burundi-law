@@ -1,0 +1,3 @@
+# Article 190
+
+Tout créancier hypothécaire est tenu de faire élection de domicile au Chef-lieu d'une circonscription foncière à défaut de quoi toute les significations et notifications relatives à l'iGscription pourront être faites par affichage au bureau du Conservateur des Titres Fonciers et publication au Bulletin Officiel du Burundi. Il est loisible, à celui au profit duquel une inscription existe ou à son représentant, de changer le domicile par lui élu, à cor.dition d'en indiquer un autre ua chef-lieu d'une circol1scription foncière, Le Conservateur des Titres Fonciers fait annotation du domicile élu sur le certificat d'enregistrement.

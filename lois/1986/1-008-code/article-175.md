@@ -1,0 +1,3 @@
+# Article 175
+
+Le transport d'une créance hypothécaire et son acceptation par le débiteur n'engagent pas le cessionnaire à l'égard des tiers. Nulle dation en gage ou cession d'une créance hypothécaire ne peut être opposée aux tiers, à défaut d'acte authentique ou de jugement passé en force de chose jugée et à défaut d'inscription sur le certificat d'enregistrement. Néanmoins, la transmission ou la dation en gage d'une créance hypothécaire n'est opposable au débiteur que du jour où il a reçu signification d'un certificat du conservateur des Titres Fonciers constatant le transfert ou la dation en gage.

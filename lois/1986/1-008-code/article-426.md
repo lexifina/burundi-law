@@ -1,0 +1,3 @@
+# Article 426
+
+Les biens expropriés ne peuvent être utilisés par le bénéficiaire de l'expropriation qu'à la destination d'utilité publique énoncée dans la déclaration provisoire d'utilité publique et dans la décision d'expropriation. Si les biens expropriés pour cause d'utilité publique ne reçoivent pas cette destination, l'Administraf tion notifie aux expropriés la faculté qui leur est offerte de les reprendre et publie à cet effet un avis au Bulletin Officiel du Burundi. L'avis indique la situation des biens et les noms des anciens propriétaires. Dans les trois mois de la notification ou de la publication, les anciens propriétaires ou leurs ayants droit qui veulent réacquérir les dits biens sont tenus de le déclarer sous peine de déchéance.

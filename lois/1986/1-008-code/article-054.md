@@ -1,0 +1,3 @@
+# Article 54
+
+L'emphytéote peut être déchu de son droit, avec dommages-intérêts, s'il y a lieu; 1C pour défaut de paiement de trois redevances annuelles conséculives, ou même pour tout défaut de paiement, si l'emphytéote tombe en faillite ou en déconfiture; 2" pour négligence grave dans l'exécution de la charge de mettre et d'entretenir le fonds en valeur ;' 3" pour tout a,bus grave de jouissance. Les créanciers de "emphytéote peuvent intervenir pour la conservation de leurs droits; ils peuvent offrir le paiement des redevances arriérées, la réparation des abus commis et des garanties pour l'avenir.

@@ -1,0 +1,3 @@
+# Article 410
+
+La déclaration provisoire d'utilité publique est • effectuée et l'expropriation ordonnée pour chaque opération: - par le Gouverneur de Province pour une superficie de terre rurale inférieure ou égale à quatre hectares. par le Ministre de l'Agriculture ct de l'Elevage pour une superficie de terre rurale supérieure à quatre hectares et n'excèdant pas cinquante hectares; - par le Ministre ayant l'Urbanisme dans ses attributions pour une superfie de terre urbaine n'excédant pas dix hectares; par décret pour les terres rurales d'une superficie supérieure à cinquante hectares et les terres 11rbaines d'une supérificie supérieure à dix hectares.

@@ -1,0 +1,3 @@
+# Article 33
+
+L'article précédent ne s'applique pas aux clôtures mitoyennes, ni aux puits, citernes, cours, passages et chemins dépendant de plusieurs fonds.

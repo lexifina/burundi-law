@@ -1,0 +1,3 @@
+# Article 272
+
+Le contrat de cession ou de concession mentionne d'une part les nom, prénoms et qualité de l'autorité compétente, et d'autre part les noms, prénoms et domicile du cessionnaire ou du concessionnaire ou, le cas échéant, sa raison sociale et son siège; Il indique la date de la demande, de l'ouverture et de la clôture de l'enquête de vacance et, le cas échéant, le décret d'autorisation prévu à l'article 255 ou la décision judiciaire irrévocable statuant sur le recours prévu à l'article 270; Il indique en outre la situation sommaire du terrain et sa superficie; Il précise la nature du droit foncier cédé ou concédé, la durée éventuelle, le caractère onéreux ou gratuit ainsi que les conditions financières de la convention. Paragraphe 4. Enregistrement et frais.

@@ -1,0 +1,3 @@
+# Article 431
+
+Tout acte d'occupation, d'usage ou de jouissance d'une terre quelconque sans titre ni droit, commis de mauvaise foi, toute contrevention aux prescriptions • ---_..._~--._ •..__.._----B.O.B. nO 7 à 9/86 des plans d'aménagement du territoire, constituent des infractions punissables d'une servitude pénale de un mois à six mois et d'une amende de mille à dix mille francs ou de l'une de ces deux peines seulement. L'Administration ou les intéressés, selon le cas, peuvent en outre ordonner ou demander au Tribunal compétent la suppression de toute installation, construction, plantation ou cultures a érigées, aux frais du contrevenant.

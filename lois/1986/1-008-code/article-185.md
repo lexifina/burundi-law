@@ -1,0 +1,3 @@
+# Article 185
+
+En cas de ven te volon taire, d'échange ou de donation, le conservateur raye d'offi.:e les inscriptions hypothécaires : 10 Si, dans l'année du transfert, le nouveau propriétaire consigne le plÎx ou la valeur de l'immeuble entle les mains du conservat~ur des Titres Fonciers et requicrt celui-ci de notifier à tOliS les créanciers inscrits, l'existcnce du dépôt en joignant à la notification copie de l'acte qui a servi de base au transfert ainsi qu'un extrait du certificat d'enregistrement; 2" Si, dans les quatre mois de cette notification, aucun des créanciers hypothécaires n'a requis le COilservateur des Titres Fonciers de mettre l'immeuble aux enchères publ iques.

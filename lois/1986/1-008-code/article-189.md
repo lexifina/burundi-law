@@ -1,0 +1,3 @@
+# Article 189
+
+Pour l'inscription constitutive de l'hypothèque le créancier indique, d'une façon précise au bas de la copie ;,;ertifiée conforme de la convention, les sommes pour lesquelles l'inscription est demandée, L'inscription constitutive de l'hypothèque est de plus subordonnée à la présentation du certificat d'enregistrement délivré au propriétaire de l'immeuble grevé. Cette inscription est portée tant sur le certificat délivré au propriétaire que sur celui conservé au bureau des Titres Fonciers. Toute demande d'incription d'hypothèque est fai. te par écrit ou actée par le Conservateur, sauf dans le cas prévu par l'article 162 où le conservateur procède d'office à l'inscription.
