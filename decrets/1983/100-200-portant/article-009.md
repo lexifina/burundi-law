@@ -1,0 +1,3 @@
+# Article 9
+
+Dans le cadre de la politique définie par le Gouvernement, le Conseil d'Administration détermine les orientatiol1s de l'Office et prend toutes les décisions nécessaires à son objet et à sa bonne administration. Il a notamment les pouvoirs d'arrêter le règlement d'ordre intérieur de l'Office. de voter les budgets annuels et d'approuver les comptes d'exploitation de l'Office ; d'examiner et d'approuver les programmes généraux annuels d'action ainsi que les programmes d'investissement et de renouvellement des installations et du matériel de l'Office de disposer des biens de l'Office et de c01lsentÎr des droits réels sur ces biens ; - d'autoriser au comité de Direction à contracter tout emprunt destiné au financement du programme d'investissement de l'Office.
