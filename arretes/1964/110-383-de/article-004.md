@@ -1,0 +1,3 @@
+# Article 4
+
+Les administrateurs de J'association sont: Pr~sident ; M, KANDIKANDI Joseph, député national rê~ sidant â Songa. Vice~Président : M, NDANIMANGA Antoine, fonction~ nalre résidant â Bujumbura, Trésorier: M. KABAYABAYA Dominique, instituteu ré. sidant â Bututsi. Trésorier-adjoint ; M. NIYUNGEKO Paul, fonctionnaire rêsidant à Bujumbura. Secrétaire: M, MPANGAJE Damase, fonctionnairerési· dant à Bujumbura. Secrétaire-adjoint : M. CIZA Raphaël, instituteur résidant â Songa. Premier ConseUler : M. BAHAGARA Paul. instituteur résidant à Songa. Deuxième Conseiller : M. NTETURUYE Jean-Baptiste, cultivateur rêsidant à Songa.
