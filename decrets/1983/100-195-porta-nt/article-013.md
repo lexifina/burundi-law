@@ -1,0 +1,3 @@
+# Article 13
+
+LE BUREAU D'ETUDES ET PROGRAMMES DE L'ENSEIGNEMENT SECONDAIRE (B.E.P. E.S.) est chargé de : - Animer, coordonner et contrôler les activités relatives à la réforme de l'enseignement secondaire, et à l'amélioration de sa qualité. - Concevoir et élaborer les matériels didactiques nécessaires à la réussite de la réforme de l'enseignement secondaire. - Organiser la formation continue et le perfectionnement des enseignants du secondaire. Superviser les différents ateliers ou sections chargées de la conception, de l'expérimantation de la diffusion et de l'évaluation des matériels didactiques.

@@ -1,0 +1,3 @@
+# Article 4
+
+L'Inspection Générale de l'Enseignement est placée sous l'autorité d'un Inspecteur Général et a pour mission de : encadrer pédagogiquement les professeurs et les enseignements et suivre l'application des programmes et des cours élaborés par les bureaux pédagogiques ; travailler en étroi te collaboration avec les bureaux pédagogiques pour l'organisation de séminaires de formation et le recyclage des professeurs et enseignant8 ; contrôler l'application par les professeurs et enseignants des instructions relatives au contrôle des connaissances des élèves ; assurer l'inspection pédagogique et administrati ve des écoles ;

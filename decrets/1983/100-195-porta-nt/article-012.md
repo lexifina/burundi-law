@@ -1,0 +1,3 @@
+# Article 12
+
+Le Département de l'Enseignement Technique a les attributions sui vantes : Superviser et contrôler les directeurs des écoles techniques et professionnelles. - Organiser et contrôler le bon fonctionnement des écoles techniques et professionnelles, tant sur le plan administratif que pédagogique. Préparer et gérer le budget ordinaire. En collaboration avec le Département de la Planification et les autres services concernés, préparer les requêtes à présenter à l'assistance bilatérale et multilatérale. Participer à la conception et mettre en œuvre la politique de développement de l'enseignement technique et professionnel.
