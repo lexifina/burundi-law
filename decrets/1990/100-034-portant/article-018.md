@@ -1,0 +1,3 @@
+# Article 18
+
+Le Ministre de Tutdle doit annuler toute décision du Conseil d'Administration ou de la Direction COn~ traite aux lois et règlements d'ordre public applicables en la matière. La décision d'annulation est oppo· sabJe aUX tiers concernés. Il peut suspendre ou annuler toute décision du Conseil d'Administration ou de la Direction qu'il estime contraire à l'intérêt général ou qui parait de nature à compromettre l'équilibre financier du régIme de sécurité sociale. Sa décision doit intervenir dans les quinze jours suivant la notification de la décision en Cause au Ministre de Tutelle. Cette annulation ou suspension n'est pas opposable aux tiers de bonne foi.

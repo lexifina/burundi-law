@@ -1,0 +1,3 @@
+# Article 2
+
+1. L'Institut est chargé de la gestion du régime de sécurité sociale institué par le Décret-Loi nO......... du ..................... 1990 portant réforme du régime général de sécurité sociale et de toute autre gestion sociale qui pourrait lui être confiée légalement. 2. A cette fin. l 'Institu t perçoit les cotisations de sécurité sociale dans les conditions fixées par les disposi tions du Décret-Loi r appelé au paragr aphe précédent. 3. Aussi l'Institut aSSure le service des prestations aux assurés sociaux assujettis et à leurs ayantsdroit dans les conditions fixées par les dispositions du Décret-Loi précité au premier alinéa.
