@@ -1,0 +1,3 @@
+# Article 19
+
+Les.fonctionnaires de la catégorie de collaboration et de Direction peuvent être mis en non activité de service pour une durée indéterminée par le Ministre de la Défense Nationale soit dans l'intérêt du service, soit pour motif de convenance pel sonnelle, soit pour motif de maladies ou d'infirmité, soit en raison d'infractions établies, pour mise à la disposition de la justice ou pour motifs disciplinaires. La durée de mise en non activité de service pour motif de convenance personnelle est fixée d'un mois à 1 an, elle n'est pas renouvelable. Celle de mise en non activité pour raison de maladies est de 12 mois maximum; elle est renouvelable s'i! est prouvé que la maladie a été occasionnée par le service.

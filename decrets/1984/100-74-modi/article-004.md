@@ -1,0 +1,5 @@
+# Article 4
+
+L'article 31 du décret-loi n° 1/23 du 1"' avril 1970 est remplacé par le texte ci-après :
+
+La notation des magistrats est établie au premier et au second degré par leurs supérieurs hiérarchiques et au dernier degré par le Ministre de la Justice. Toutefois pour les présidents des tribunaux de Grande Instance, de Province et de Résidence ainsi que pour les Procureurs de la République, la notation est établ ie au premier degré par leur chef hiérarchique, au second par le Gouverneur de Province du siège de leur ressort, et au dernier degré par le Ministre de la Justice. Pour les Conseillers à la Cour Suprême, les Substituts Généraux près cette Cour, les Présidents des Cours d'Appel et les Procureurs Généraux près les dites Cours, la notation est établie au premier degré respectivement par le Président de la Cour Suprême et le Procureur Général de la République, le deuxième et dernier degré étant réservé au Ministre de la Justice Le Président de la Cour Suprême et le Procureur Général de la République sont notés au premier et dernier degré par le Ministre de la Justice.
