@@ -1,0 +1,3 @@
+# Article 4
+
+Les membres effectifs seuls siègent valablement. ToutefOis tout membre effectif qui se troUVe dans l'impossibilité d'assister à la séance, est tenu d'en avertir d'urgence le Prési~ dent et d'en informer en m&1e temps-son suppléant. Dans ce cas le membre suppléant est tenu de remplacer le mem_ bre effectif et il siège valablement. Le membre suppléant qUi se trouve dans l'impossibilité d'assister à la séanCe est tenu, à son tour, d'en avertir d'urgence le Président. Art. 5, En cas de séance extraordinaire, et si l'urgence le justifie, 'les convocations peuvent être adressées .par câble avec ré~ panse payée,

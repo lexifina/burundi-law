@@ -1,0 +1,3 @@
+# Article 12
+
+Toute imputation de mauyaise intention et toûte attaque personnefle sont interdites ; elle pourront être rayées du procès_verbaL Art. 13, Les votes ont lieu, sauf décision contraire du Président, par appel neminal et à haute voix. Sauf lorsque le vote est secret, J'énoncé du résultat du vote comporte l'indication nominative des membres qui ont émis un avis affirmatif ou négatif et de ceux qui se sont abstenus. Tout membre qui, présent au Comité lorsqu'une question est mise aux voix. s' abstîent de voter, peut être invité par le Président à faire connaître les motifs de son abstention.

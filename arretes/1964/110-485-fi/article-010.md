@@ -1,0 +1,3 @@
+# Article 10
+
+Les séances se tiennent à huis clos. Néanmoins, les mem~ bres suppléants sont toujours autorisés à assister aux séanCes sans droit de vote, mais sous réserve de ce qui est prévu à l'article 4. Le Président peut décider d'inviter à partici_ per à une séance toutes personnes dont il souhaite prendre ravis en raison d'une compétence spéciale. Ces personnes ne participent pas aux votes. Art. lI, Les membres du Comité .peuvent demander, soit au cours des séances. soi~ en dehors de celles_cl, tous les renseigne_ ments qu'ils jugent utiles à leurs travaux. Le Président y donne suite dans toute la mesure et avec toute la célérité que permettent les possibilités des services compétents.

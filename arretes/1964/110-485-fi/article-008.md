@@ -1,0 +1,3 @@
+# Article 8
+
+Le procès~verball d'une séance est adressé aux membres effectifs et suppléants dans un délai de hUit jours-calendrier. Sa rédaction est approuvée dtfinitivement par le Comité au cours de la séance suivante. Est irrecevable tOute contesta~ tion visant à modifier, quant au fond, la rédaction du ,pro~ cès~verbal. Le Président tranche souverainement tout dif_ férend qui peut surgir à ce sujet. Art. 9, Les messages, lettres et autres envois destinés au Comité de Patronage sont adressés au Président. Celui~ci en donne connaissance au Comité à la première séance, à J'exception des écrits anonymes.
