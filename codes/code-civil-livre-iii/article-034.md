@@ -1,0 +1,5 @@
+# Article 34
+
+Les conventions obligent non seulement à ce qui y est exprimé, mais encore à toutes les suites que l’équité, l’usage ou la loi don-nent à l’obligation d’après sa nature.
+
+Section 2 De l’obligation de donner

@@ -1,0 +1,5 @@
+# Article 477
+
+Si l’emprunteur ne rend pas les choses prêtées, ou leur valeur au terme convenu, il en doit l’intérêt du jour de la demande en justice.
+
+CHAPITRE III DU PRÊT À INTÉRÊT

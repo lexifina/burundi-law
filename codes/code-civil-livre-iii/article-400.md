@@ -1,0 +1,3 @@
+# Article 400
+
+S’il a été convenu, lors du bail, qu’en cas de vente l’acquéreur pourrait expulser le fermier ou locataire, et qu’il n’ait été fait aucu-ne stipulation sur les dommages et intérêts, le bailleur est tenu d’indemniser le fermier ou locataire de la manière suivante.

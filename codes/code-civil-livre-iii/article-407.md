@@ -1,0 +1,5 @@
+# Article 407
+
+L’acquéreur à pacte de rachat ne peut user de la faculté d’expul-ser le preneur, jusqu’à ce que, par l’expiration du délai fixé pour le réméré, il devienne propriétaire incommutable.
+
+Section 2 Des règles particulières aux baux à loyer

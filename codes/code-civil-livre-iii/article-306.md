@@ -1,0 +1,3 @@
+# Article 306
+
+Dans le même cas de stipulation de non-garantie, le vendeur, en cas d’éviction, est tenu à la restitution du prix, à moins que l’acqué-reur n’ait connu lors de la vente le danger de l’éviction, ou qu’il n’ait acheté à ses périls et risques.

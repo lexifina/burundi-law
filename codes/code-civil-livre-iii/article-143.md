@@ -1,0 +1,3 @@
+# Article 143
+
+Le débiteur d’un corps certain et déterminé est libéré par la re-mise de la chose en l’état où elle se trouve lors de la livraison, pour-vu que les détériorations qui y sont survenues ne viennent point de son fait ou de sa faute, ni de celle des personnes dont il est res-ponsable, ou qu’avant ces détériorations il ne fût pas en demeure.

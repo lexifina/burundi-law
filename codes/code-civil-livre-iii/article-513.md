@@ -1,0 +1,3 @@
+# Article 513
+
+La preuve par témoin peut être reçue pour le dépôt nécessaire, même quand il s’agit d’une valeur au-dessus de deux mille francs.

@@ -1,0 +1,5 @@
+# Article 137
+
+Le paiement doit être fait au créancier, ou à quelqu’un ayant pouvoir de lui, ou qui soit autorisé par la justice ou par la loi à re-cevoir pour lui.
+
+Le paiement fait à celui qui n’aurait pas pouvoir de recevoir pour le créancier, est valable, si celui-ci le ratifie, ou s’il en a profi-té.

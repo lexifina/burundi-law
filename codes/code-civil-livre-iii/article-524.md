@@ -1,0 +1,3 @@
+# Article 524
+
+L’établissement d’un gardien judiciaire produit, entre le saisis-sant et le gardien, des obligations réciproques. Le gardien doit ap-porter pour la conservation des effets saisis les soins d’un bon père de famille. Il doit les représenter, soit à la décharge du saisissant pour la vente, soit à la partie contre laquelle les exécutions ont été faites, en cas de mainlevée de la saisie. L’obligation du saisissant consiste à payer au gardien le salaire fixé par la loi.

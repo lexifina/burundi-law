@@ -1,0 +1,3 @@
+# Article 390
+
+Il répond de l’incendie, à moins qu’il ne prouve: que l’incendie est arrivé par cas fortuit ou force majeure, ou par vice de construc-tion; ou que le feu a été communiqué par une maison voisine.

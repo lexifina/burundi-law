@@ -1,0 +1,3 @@
+# Article 323
+
+Si le vendeur ignorait les vices de la chose, il ne sera tenu qu’à la restitution du prix et à rembourser à l’acquéreur les f rais occasion-nés par la vente.

@@ -1,0 +1,3 @@
+# Article 599
+
+On peut donner en gage toutes choses mobilières qui sont dans le commerce, incorporelles et corporelles, pourvu qu’elles soient susceptibles de possession.

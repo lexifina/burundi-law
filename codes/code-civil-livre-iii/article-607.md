@@ -1,0 +1,3 @@
+# Article 607
+
+Toute clause qui autoriserait le créancier à s’approprier le gage ou à en disposer sans les formalités ci-dessus prescrites est nulle.

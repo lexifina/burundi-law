@@ -1,0 +1,3 @@
+# Article 340
+
+En cas de revente, le vendeur à pacte de rachat peut revendiquer l’immeuble contre le second acquéreur.

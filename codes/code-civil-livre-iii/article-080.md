@@ -1,0 +1,3 @@
+# Article 80
+
+Lorsque l’obligation a été contractée sous une condition suspen-sive, la chose qui fait la matière de la convention demeure aux ris-ques du débiteur qui ne s’est obligé de la livrer que dans le cas de l’événement de la condition. Si la chose est entièrement périe sans la faute du débiteur, l’obli-gation est éteinte. Si la chose s’est détériorée sans la faute du débiteur, le créancier a le choix, ou de résoudre l’obligation, ou d’exiger la chose dans l’état où elle se trouve, sans diminution du prix. Si la chose s’est détériorée par la faute du débiteur, le créancier a le droit, ou de résoudre l’obligation, ou d’exiger la chose dans l’état où elle se trouve, avec des dommages et intérêts. Paragraphe 3 De la condition résolutoire

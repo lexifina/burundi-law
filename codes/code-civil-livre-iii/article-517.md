@@ -1,0 +1,5 @@
+# Article 517
+
+Ils ne sont pas responsables des vols faits avec force armée ou autre force majeure.
+
+CHAPITRE III DU SÉQUESTRE Section 1 Des diverses espèces de séquestre

@@ -1,0 +1,5 @@
+# Article 180
+
+Ce que le créancier a reçu d’une caution pour la décharge de son cautionnement doit être imputé sur la dette et tourner à la déchar-ge du débiteur principal et des autres cautions.
+
+Section 4 De la compensation

@@ -1,0 +1,3 @@
+# Article 480
+
+Le taux de l’intérêt conventionnel est déterminé librement par les parties contractantes; il se prouve d’après le droit commun.

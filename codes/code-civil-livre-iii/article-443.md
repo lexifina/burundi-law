@@ -1,0 +1,3 @@
+# Article 443
+
+Mais le propriétaire est tenu de payer en proportion du prix por-té par la convention, à leur succession, la valeur des ouvrages faits, et celle des matériaux préparés, lors seulement que ces travaux ou ces matériaux peuvent lui être utiles.

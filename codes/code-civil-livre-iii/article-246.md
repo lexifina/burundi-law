@@ -1,0 +1,11 @@
+# Article 246
+
+Certains engagements se forment sans qu’il intervienne aucune convention, ni de la part de celui qui s’oblige, ni de la part de celui envers lequel il est obligé.
+
+Les uns résultent de l’autorité seule de la loi; les autres naissent d’un fait personnel à celui qui se trouve obligé.
+
+Les premiers sont les engagements formés involontairement, tels que ceux entre propriétaires voisins.
+
+Les engagements qui naissent d’un fait personnel à celui qui se trouve obligé résultent ou des quasi-contrats, ou des délits ou qua-si-délits; ils font la matière du présent titre.
+
+CHAPITRE I DES QUASI-CONTRATS

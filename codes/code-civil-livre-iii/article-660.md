@@ -1,0 +1,3 @@
+# Article 660
+
+Les dispositions du présent livre ne sont applicables en matière de propriétés foncières que pour autant qu’elles ne sont pas contraires aux lois particulières sur le régime foncier.

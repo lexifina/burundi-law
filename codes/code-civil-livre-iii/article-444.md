@@ -1,0 +1,3 @@
+# Article 444
+
+L’entrepreneur répond du fait des personnes qu’il emploie.

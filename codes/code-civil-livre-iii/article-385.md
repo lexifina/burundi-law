@@ -1,0 +1,7 @@
+# Article 385
+
+Le preneur est tenu de deux obligations principales:
+
+1° d’user de la chose louée en bon père de famille, et suivant la destination qui lui a été donnée par le bail, ou suivant celle présu-mée d’après les circonstances, à défaut de convention;
+
+2° de payer le prix du bail aux termes convenus.

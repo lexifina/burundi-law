@@ -1,0 +1,9 @@
+# Article 226
+
+La présomption légale est celle qui est attachée par une loi spé-ciale à certains cas ou à certains faits; tels sont:
+
+1° les cas dans lesquels la loi déclare la propriété ou la libération résulter de certaines circonstances déterminées;
+
+2° l’autorité que la loi attribue à la chose jugée;
+
+3° la force que la loi attache à l’aveu de la partie ou à son ser-ment.

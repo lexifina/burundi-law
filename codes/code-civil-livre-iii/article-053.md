@@ -1,0 +1,7 @@
+# Article 53
+
+Néanmoins, les revenus échus, tels que fermages, loyers, pro-duisent intérêt du jour de la demande ou de la convention.
+
+La même règle s’applique aux restitutions de fruits et aux inté-rêts payés par un tiers au créancier en acquit du débiteur.
+
+Section 5 De l’interprétation des conventions

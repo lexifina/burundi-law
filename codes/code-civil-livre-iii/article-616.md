@@ -1,0 +1,3 @@
+# Article 616
+
+Celui qui ne peut aliéner ne peut renoncer à la prescription ac-quise.

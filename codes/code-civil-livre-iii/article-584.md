@@ -1,0 +1,3 @@
+# Article 584
+
+Pour transiger, il faut avoir la capacité de disposer des objets compris dans la transaction.

@@ -1,0 +1,3 @@
+# Article 636
+
+La prescription peut être interrompue ou naturellement ou civi-lement.

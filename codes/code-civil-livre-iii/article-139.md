@@ -1,0 +1,3 @@
+# Article 139
+
+Le paiement fait au créancier n’est point valable s’il était incapa-ble de le recevoir, à moins que le débiteur ne prouve que la chose payée a tourné au profit du créancier.

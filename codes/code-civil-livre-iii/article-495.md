@@ -1,0 +1,3 @@
+# Article 495
+
+Le dépositaire n’est tenu, en aucun cas, des accidents de force majeure, à moins qu’il n’ait été mis en demeure de restituer la cho-se déposée.

@@ -1,0 +1,3 @@
+# Article 230
+
+L’aveu qui est opposé à une partie est ou extrajudiciaire ou judi-ciaire.

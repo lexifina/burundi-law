@@ -1,0 +1,3 @@
+# Article 618
+
+La prescription peut être opposée en tout état de cause, même en instance d’appel, à moins que la partie qui n’aurait pas opposé le moyen de la prescription ne doive, par les circonstances, être pré-sumée y avoir renoncé.

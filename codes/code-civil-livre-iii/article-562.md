@@ -1,0 +1,3 @@
+# Article 562
+
+La caution qui requiert la discussion doit indiquer au créancier les biens du débiteur principal, et avancer les deniers suffisants pour faire la discussion.
