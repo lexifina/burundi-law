@@ -1,0 +1,3 @@
+# Article 21
+
+,:i i" Le Ministre de tutelle doit suspendre ou annuler les décisions du Conseil d'Administration ou du Directeur Général qu'il estime contraires aux lois et règlements d'ordre public applicables en la matière. L'annulation de la décision illicite est opposable aux ~ J,1 tiers concernés. ':1 " Il peu t en outre suspendre ou annuler les décisions qu'il estime contraires à l'intérêt général et de nature à compromettre l'équilibre financier de la Loterie. Cette annulation n'est pas opposable aux tiers de bonne foi. Si aUCune décision ,n'a été prise dans un délai de dix jours dès la communication de la décision du Conseil d'Administration, celle-ci devient définitive et exécu toire.

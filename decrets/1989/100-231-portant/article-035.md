@@ -1,0 +1,3 @@
+# Article 35
+
+Les Commissaires aUx Comptes'peuvent consulter sur place tous les documents et écritures de l'Etablissement, demander toutes justifications et renseignements sur les activités et les comptes de l'Etablissement. Ils établissent avant le 15 mars de chaque année un rapport circonstancié sur les comptes de l'exercice de l'année précédente, donnant leur avis sur la régularité des opérations, la qualité de la gestion et les perspectives pour l'exercice suivant. Ce rapport est adressé au Ministre des Finances. aux membres du Conseil d'Administration, à l'organe de Direction et au Chef Comptable de l'Etablissement.
