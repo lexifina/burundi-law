@@ -1,0 +1,3 @@
+# Article 7
+
+-Les msents statuts ne peuvent être modifiés que sur décision de la majorité des mem~ bres effectifs. , Art. 8, - La majorité des-deux tiers des membres effectifs est requise pour prononcer la dissolu~ tion de l'association. Dans cette hypothèse, l'avoir. social sera attribué à une oeuvre philanthropique poursuivant le même but au Burundi. La liquidation, s'opérera par les soins d'un liquidateur qui exerce~ ra-ses fonctions en vertu d'une décision de la majClrité des deux tiers des. membres effectifs. Bujumbura, le Ù juin 196.3-. . Représentant légal, (~.) Arthur DODZWE)T. - Représentant légal suppléant. (~.SEMU~TWA André" . .. ,V' ",•• ; ~ -~'t';~-'11~~.ia·I'iIIdr:~. . - .... -~

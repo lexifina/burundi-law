@@ -1,0 +1,3 @@
+# Article 3
+
+DODZWEIT Arthur, umupastori mukuru, kavukire k'AMessieurs DODZWEIT Arthur, missionnaire de nationamerika aba i Bujumbura aremewe kuba uwuserukira nyakuri lité américaine résidant à Bujumbura, et SEMUTWA André, iryo sh'rahamwe, SEMUTWA Andereya, umupastori kavu1 pasteur de nationalité ruandaise résidant à Bujumbura, sont kire k'Urwanda aba i Bujumbura, aremeWe kuba icegera c'userukira nyakuri c'iryo shirahamwe. Ingingo ya i. lri tegeko rikurikizwa kuva ku musi rishiriweko umukollo. . r , Rigiriwe i Bujumbura, ku wa 19 Ntwarante 1964. i· .j Umushikirangoma w'Ubutungane, i respectivement agréés en qualité de représentant légal et de représentant légal suppléant de la susdite association.
