@@ -1,0 +1,3 @@
+# Article 14
+
+Les manquements à l'ordre ou au règlement peuvent être sanctionnés par l'exclus:on temporaire des travaux du Conseil. Cette mesure est prononcée,.par le Président et mention_ née au procès_verbal de la séance. Elle porte SUr trois séances consécutives au maximum. Cette mesure est renouvelable. Le membre qui a encouru trois exclusions peut être exclu définitivement. Art . .15. L'ordre du jour et le rang de priorité de ses différents .points sont déterminés par le Président. L'ordre du jour peut tou_ jours être modifié ou complété par le Président qui en infor_ me aussitôt les membres du conseil.
