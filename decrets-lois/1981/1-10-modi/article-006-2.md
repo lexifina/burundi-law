@@ -1,0 +1,3 @@
+# Article 6 2
+
+Dans le cadre de la politique économique définie par le Gouvernement, le Conseil d'administration détermine les orientations de l'action de l'EPIMABU et prend toutes décisions nécessaires à son administration. Il vote le budget prévisionnel de l'exercice à venir et approuve, après examen, les comptes de l'exercice écoulé et décide de l'affectation des résultats. Il établit le règlement intérieur de l'entreprise. Il détermine les conditions d'engagement, de rémunération et de service des di verses catégories de personnel, dans le respect de la législation du travail et des con~ ventions collectives applicables. Il peut réserver à sa compétence ou à son approbation tout acte de gestion quotidienne.

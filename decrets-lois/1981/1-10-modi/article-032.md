@@ -1,0 +1,3 @@
+# Article 32
+
+Les Commissaires aux compte peuvent consulter sur place tous les documents et écritures de l'Etablissement, demander toutes justifications et renseignements sur les activités et les comptes de celui-ci. A van t le 1cr mars de chaquc année ils établissent un rapport circonstancié sur les comptes de l'exercice écoulé, donnant leur a vis sur la régulari té des opérations, la qualité de la gestion et les perspectives pour l'exercice suivant, Ce rapport es t adressé au Minis tre de tu telle, au Ministre ayant les finances dans ses attributions, aux membres du Conseil d'administration, au Commissaire du Gouvernement, au Directeur et au Chef comptable.

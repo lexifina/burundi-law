@@ -1,0 +1,3 @@
+# Article 8
+
+Le comité de vente publiera ad val vas de la S .. I.P., la liste des maisons à vendre. Cette liste renseignera Décret-loi n° 1/11 du 7 juillet 1981 portant ratification de J'accord de prêt conclu le 11 mai 1981 entre le Gouvernement de la République du Burundi et le Fonds Mricain de Développement en vue de Financer la totalité des coûts en devises et une partie des coûts locaux du projet de construction d'un tronçon de la route Ngozi-Kobero (Carrefour R.N. 6/R I.G. 14 - MUYINGA) - la situation de chaque maison, le prix de vente de l'immeuble et le cas échéant du mobilier meublant.

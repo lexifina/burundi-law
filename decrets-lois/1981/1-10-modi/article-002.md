@@ -1,0 +1,3 @@
+# Article 2
+
+Il est créé un comité de vente composé comme suit: - Un représentant du Ministre ayant le logement dans ses attributions : Président Un représentant du Ministre des Finances membre. Un représentant du Ministre ayant les Titres Fonciers et le Cadastre dans ses Attributions : membre. - Un représentant du Ministre de la Fonction Publique dans ses attributions : membre. - Un représentant du Ministre de la Justice : membre. - Un représentant du Ministre de la Défense Nationale : membre. - Un représentant du Secrétariat Général du Parti: membre . - Un représentant de la SIP: Secrétaire. E.O.B. nO 3 à 6/82
