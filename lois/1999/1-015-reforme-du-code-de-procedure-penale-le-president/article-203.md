@@ -1,0 +1,5 @@
+# Article 203
+
+L'assignation ou la citation à prévenu est un acte de procédure dressé et signé par un greffier ou un huissier sur base d'un projet d'assignation ou de prévention dont un Tribunal est saisi à l'initiative du Ministère Public. Elle contient un résumé succint des charges retenues contre l'inculpé auquel elle s'adresse en le sommant de comparaître devant le Tribunal saisi de la poursuite à une date et heure déterminées, pour y présenter ses moyens de défense. Paragraphe 10: Du procès-verbal de saisie Article 201<.
+
+Le procès-\'erbal de saisie est une pièce judiciaire dressée à l'occasion d'une enquête ou d'une instruction par un Officier de Police Judiciaire ou un Magistrat du parq uet, et qlIi constate la liste et la nature des objets saisis susceptibles de contribuer à la manifestation de la vérité tant qu'ils peuvent constituer des pièces à con\'iction, Le procès-verbal de saisie est conjointement signé par l'Omcier Public saisissant et le détenteur des objets saisis. Il indique le lieu Olt ceux-ci ont été saisis. Paragraphe Il : Du procès-verbal de remise d'objets saisis.

@@ -1,0 +1,3 @@
+# Article 1 45
+
+Il est sursis à l'exécution du jugement par défaut jusqu'à l'expiration du délai fixé par l'article 140, alinéa l, et, en cas d'opposition, jusqu'au jugement sur recours. Il est de même sursis à la poursuite de la procédure en appel engagée par le Ministère Public, la partie civilement responsable ou la partie civile contre un jugement de condamnation prononcé par déf,:!ut à l'égard du prévenu. Lorsque le jugement n'est par défaut qu'à l'égard de la partie civilement responsable ou de la partie civile, l'opposition de ces dernières ne suspend pas l'exécution du • duperaient contre le prévenu.

@@ -1,0 +1,3 @@
+# Article 176
+
+L'état des frais est dressé par le Greffier. S'il Y a partie civile, cet état indique les frais à retenir sur les sommes consignées par elle et ceux à percevoir amagarama akurwa ku mahera yatanzwe n'uwusaba indishi n'ayarihishwa uwaciriwe igihano. Urwandiko ruharura directement contre le condamné. L'état des frais est amagarama rurasuzumwa kandi rukemezwa n'umucavérifié et visé par le Juge. manza. En cas d'appel, l'état des frais est dressé par le Greffier de la juridiction d'appel et visé par le Président de cette amagarama rutegurwa n'umwanditsi w'imanza wa sentare j urid iction. y'iyungururizo kandi rukemezwa n'umukuru w'iyo sentare.

@@ -1,0 +1,5 @@
+# Article 146
+
+Lorsque l'opposition émane du prévenu et qu'elle est reçue, le jugement par défaut est considéré comme non avenu et le juge statue à nouveau sur l'ensemble de l'affaire. Lorsqu'elle émane de la personne civilement responsable ou de la partie cïvile, l'opposition reçue ne met le jugement à néant que dans la mesure où il statue à l'égard de ces parties. Dans tous les cas, les frais et dépenses causés par l'opposition, y compris le coût de l'expédition et de la signification du jugement par défaut, seront laissés à charge de l'opposant lorsque le défaut lui est imputable.
+
+Section 2 : De l'appel

@@ -1,0 +1,3 @@
+# Article 208
+
+Lorsque le délai légal expire un jour où le greffe est fermé, l'acte y est valablement reçu le plus prochain jour d'ouverture de ce grefIè.

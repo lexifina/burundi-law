@@ -1,0 +1,3 @@
+# Article 158
+
+La juridiction d'appel qui réforme la décision entreprise pour un motif autre que la saisine irrégulière ou l'incompétence du premier juge, connaît du fond de l'affaire.

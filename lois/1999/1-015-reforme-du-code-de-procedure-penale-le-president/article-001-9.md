@@ -1,0 +1,3 @@
+# Article 1 9
+
+5S. Il est sursis à l'exécution du jugement jusqu'à l'expiration des délais d'appel et, en cas d'appel, jusqu'à la décision sur ce recours. Toutefois le délai de trois mois prévu à l'article 150, alinéa 2, n'emporte pas sursis à l'exécution. L'appel interjeté quant aux intérêts civils ne fait pas obstacle à l'exécution des condamnations pénales, -

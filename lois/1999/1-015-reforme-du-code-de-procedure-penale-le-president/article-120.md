@@ -1,0 +1,7 @@
+# Article 120
+
+Lorsque la juridiction de jugement est saisie de l'action publique, la partie lésée peut la saisir de l'action en réparation du dommage en se constituant partie civile.
+
+La partie civile peut se constituer à tout moment depuis la saisine du Tribunal jusqu'à la clôture des débats, par une déclaration reçue au 'greffe ou faîte à l'audience, et dont il lui est donné acte. Au cas de déclaration au greffe, celui-ci en avise les parties intéressées, La constitution de partie civile peut aussi être faite valablement devant le magistrat instructeur. Dans tous les cas, la constitution de partie civile donne lieu au versement de f'rais de (:onsignation entre les mains du greffier par la partie qui désire se constituer.
+
+Section li : Des audiences Article I:.!L Le prévenu comparaît en personne. Toutefois, dans les poursuites relatives à des infractions à l'égard desquelles la peine de servitude pénale prévue par la loi n'est pas supérieure à deux ans, le prévenu peut comparaître par un avocat porteur d'une procuration ou par un fondé de poumir agréé par le Juge, Nonobstant la comparution par mandataire, le Tribunal peut toujours ordonner par jugement sur les bancs, la comparution personnelle du prévenu à l'endroit et au moment qu'il détermine. Le prononcé du jugement en présence du mandataire vaut citation, La personne civilement responsable peut, dans tous les cas, comparaître soit par un avocat porteur d'une procuration ou par un fondé de pouvoir agréé par le Juge,

@@ -1,0 +1,3 @@
+# Article 93
+
+L'inculpé et la partie civile peuvent se faire assister d'un conseil de leur choix au cours des actes d'instruction. Ce dernier peut communiquer librement avec l'inculpé, même détenu, hors la présence de toute personne et prendre connaissance du dossier de la procédure Le Magistrat Instructeur ne peut en aucun cas, transmettre le dossier au conseil. Il peut néanmoins apprécier l'opportunité soit de le laisser consulter sur place le dossier entier; soit de lui délivrer en copie certaines pièces de la procédure au frais du conseil. Ces copies portent la paraphe du magistrat instructeur.

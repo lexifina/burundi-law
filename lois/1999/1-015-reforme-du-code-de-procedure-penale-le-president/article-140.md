@@ -1,0 +1,3 @@
+# Article 140
+
+Le condamné par défaut peut faire opposition au jugement dans les trente jours qui suivent celui de la signification à personne, outre les délais de distance fixés par l'article 1 III. . . Lorsque la significl\tion n'a pas été faite à personne, l'opposition peut être faite dans les dix jours, outre les délais de distance, qui suivent celui où l'intéressé aura eu connaissance de la signification. S'il n'a pas été établi qu'il en a eu connaissance, il peut faire opposition jusqu'à l'expiration des délais de prescription de la peine quant aux condamnations pénales et jusqu'à l'exécution du jugement quant aux condamnations civiles.

@@ -1,0 +1,3 @@
+# Article 175
+
+Lors même que la partie civile ne succomberait pas, nza akura amagarama mu mahera yari yatanzwe n'uwusales frais seront retenus par le Greffier sur les sommes par ba indishi, nawe akaba afise uburenganzira bwo kuyielle consignées, sauf droit d'en poursuivre le recouvreshuza uwaciriwe igihano. ment contre le condamné. Toutefois, si la partie civile n'a pas été que partie mburano z'umushikirizamanza, umwanditsi w'imanza jointe, les seuls frais qui sont retenus par le Greffier sont amutangisha gusa amagarama ku \'yakozwe bisabwe ceux des actes faits à sa requête. n'uwusaba indishi.

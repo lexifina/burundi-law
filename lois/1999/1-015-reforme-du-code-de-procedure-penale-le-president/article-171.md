@@ -1,0 +1,7 @@
+# Article 171
+
+Il est disposé des choses frappées de confiscation spéciale, conformément à la loi. Article 17':l.
+
+La partie civile qui désire fàire exécuter la contrainte par corps prononcée à son profit doit avoir préalablement consigne entre les mains du greffier, Le Ministère Public ne fait saisir le débiteur qu'au vu de la quittance constatant le versement du montant de la consignation. L'exécution de la contrainte par corps est poursuivie d'office lorsque le créancier de la somme réclamée est l'Etat ou tout autre organisme exempté de la consignation par la loi, Chapitre VIII: Des frais de justice et du droit proportionnel Article liS. L'opposition et l'appel de la partie civilement responsable des dommages-intérêts, de même que l'action, l'opposition et l'appel de la partie civile ne sont recevables • que si ces parties ont consigné entre les mains du Greffier la somme nécessaire pour le paiement des frais. En' cas de contestation sur le montant de la somme réclamée par le Greffier, le Président de la juridiction yishuzwa n'umwanditsi w'imanza, Umukuru wa Sentare décide. niwe afata ingingo.
+
+Les suppléments à parfaire dans le cours de la buranishwa, umucamanza niwe ayashinga, agatangwa, procédure sont appréciés par le Juge et consignés comme nkuko bitegekanijwe mu gace ka mbere k'iyi ngingo, il est dit à l'alinéa 1er, à défaut de quoi, il ne sera procédé adatanzwe naho, ntagishobora gusubira gukorwa cerekeà aucun acte nouveau de procédure à la requête de ces ye urwo rubanza gisabwe n'abo baburanyi. parties.

@@ -1,0 +1,3 @@
+# Article 149
+
+Dans tous les cas où l'action civile est portée devant la • juridiction d'appel, toute partie intéressée peut, jusqu'à la clôture des débats sur l'appel faire appel incident quant aux intérêts civils .en cause, par conclusions prises à l'audience.

@@ -1,0 +1,5 @@
+# Article 38
+
+Le Procureur de la République a autorité sur tous les Officiers du Ministère Public du ressort du Tribunal de Grande Instance. . Les Officiers et Agents de Police Judiciaire du ressort du Tribunal de Grande Instance sont placés sous la surveillance du Procureur de la République. Il peut les charger, dans l'étendue de son ressort, de recueillir tous renseignements ou de procéder à toutes enquêtes qu'il estime utiles à une bonne administration de la justice. Article S9.
+
+Le Procureur de la République reçoit les plaintes et les dénonciations et apprécie la suite à leur donner, notamment l'opportunité de la poursuite. Lorsqu'il classe une affaire sans suite, il en avise par écrit ou verbalement le plaignant ou la victime ou les deux, selon ce qu'il échet. Toute autorité constituée, tout Agent ou Officier Public qui, dans l'exercice de ses fonctions acquiert la connaissance d'une infraction à la loi pénale est tenu d'en donner avis sans délai au Procureur de la République et de lui transmettre de même tous les renseignements, procès-verbaux, actes et pièces qui y sont relatifs,

@@ -1,0 +1,7 @@
+# Article 46
+
+En cas de découverte d'un cadavre, qu'il s'agisse ou non d'une mort violente, mais si la cause en est inconnue ou suspecte, l'Officier de Police Judiciaire qui en est a\'isé en informe si possible le Procureur de la République avant de se transporter, sur les lieux et de procéder aux premières constatations. L'Officier de Police Judiciaire doit se transporter sur les lieux et procéder aux constatations lorsqu'il lui a été impossible de prendre contact avec le Procureur de la République. Le rapport de constat doit être communiqué à celui-ci sans délai.
+
+Le Procureur de la République se rend sur place> s'il le juge nécessaire et se fait assister de tout médecin, expert ou technicien capable d'apprécier la nature, la clause et les circonstances du décès. Toutefois, il peut déléguer aux mêmes fins un Officier de Police Judiciaire de son choix. Lorsque les circonstances de la mort sont restées inconnues, que l'infraction soit ou non constituée le Procureur de la République peut procéder à l'ouverture d'une instruction pour rechercher des causes de la mort.
+
+Section 5 : Des enquêtes Article 4ï. L'Officier du Ministère Public peut faire citer devant lui toute personne dont il estime J'audition nécessaire. - La personne régulièrement citée est tenue ùe comparaître et de satisfaire à la citation. Sont dispensées de témoigner, les personnes qui sont dépositaires par état ou par profession des secrets qu'on leur confie.

@@ -1,0 +1,7 @@
+# Article 55
+
+L'Officier du Ministère Public s'assure du contenu des objets saisis en vertu de l'article 54, après avoir, s'il le juge possible, convoqué le destinataire pour assister à l'ouverture. En cas de réintégration de ces o~iets dans le service intéressé, l'Officier du Ministère Public les revêt au préalable d'une annotation constatant leur saisie et, le cas échéant, leur ouverture.
+
+Section 7 : Des explorations corporelles Article 56, Hors les cas d'infraction f1agrante, l'Officier du Ministère Public ne peut faire procéder à aucune exploration corporelle qu'en vertu d'une ordonnance motivée du «président du Tribunal de Grande Instance,), Toutefois, en cas de nécessité, pareille ordonnance peut être délinée par tout autre chef d'une juridiction ordinaire, sans qu'aucun compte soit tenu de la compétence personnelle de celle-ci sur la personne objet de la mesure, Cette autorisation n'est pas requise dans le cas de consentement exprès de la personne intéressée ou, si elle est âgée de moins de seize ans, de la persomle sous l'autorité parentale ou tutélaire de qui elle se trouve. Ce consentement doit être constaté par écrit, L'exploration corporelle ne peut être effectuée que par - un médecin, Dans tous les cas, la personne qui doit être l'objet d'une exploration corporelle peut se faire assister par un médecin de son choix ou par un parent ou allié ou par toute autre personne majeure du même sexe qu'elle se choisit parmi les résidents de l'endroit.
+
+Chapitre III : De la rétention, de la détention pendant la phase préjuridictionnelle
