@@ -1,0 +1,3 @@
+# Article 44
+
+-En cas de perte de la moitié du capital, les administrateurs sont tenus de convoquer rassemblée générale des actionnaires, à l'effet de décider s'il ya lieu de prononcer la dissolution de la société. A défaut de convocation par les adm!nistrneurs, le collège des commissaires peut ::éunir l'as~ semblée générale. Celle~ci délibère suivant les d's}:ositions et conditions stipulées à l'art:de trente~six. Si la perte atteint les trois~qua::ts du cap;tal, lé' d~ssolution pourra être prononcée pa:: les action~ naires possédant un quart des titres représentés à rassemblée. , " TITRE VI. Dissolution ~ pouvoirs des liquidateurs. f
