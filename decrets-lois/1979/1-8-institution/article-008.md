@@ -1,0 +1,3 @@
+# Article 8
+
+Le Conseil tieo t sa réunion ordinaire une fois par trimestre sur convocatÎon de son Président. Il tient égalemen t des réunions ex traordinaires chaque fois que de besoin à l'initiative de son Président ou d'un tiers de ses membres. La lettre de convocation doit préciser l'ordre du jour, la date et l'heure de la tenue de la réunion et parvenir aux membres une semaine à l'avance. Le Conseil peut inviter à ses réunions toute personne compétente dont l'avis lui paraît utile pour un point inscrit àl'ordre du jour. Ces invités ne participent pas aux votes. CHAPIRTE 3. Organisation financière.
