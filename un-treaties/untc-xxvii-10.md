@@ -2,3 +2,4 @@
 UN Treaty Collection reference: XXVII-10.
 Depositary: Secretary-General of the United Nations.
 Signature: 1994-10-14.
+Ratification: 1997-01-06.
