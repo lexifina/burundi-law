@@ -1,0 +1,5 @@
+# Article 2
+
+Sont nommé~ Commandants d'Unité:
+
+- Cinquième Bataillon d'Infante] ie : Commandant Diomède HARERIMANA, 80629 de la matricule. Dix-septième Bataillon d'Infanterie: Commandant Diomède NDEGEYA, S0713 de la matricule. Dix-huitième Bataillon d'Infanterie: Commandant Pierre-Claver NDUWAYO, SO 717 de hl matricule. ~ Vingt-cinquième Bataillon Commando: Commandant Michel KAZUNGU, S0718 de la ma tri cule. - Vingt-sixième Bataillon d'Infanterie: Comm,mdant Martin HARERIMANA, S0613 de la matricule. Ttente-quatnème Bataillon Commando: Commandant Théodore KANDEREGE, S0600 de la matricule. - B.O.B. nO 9/97 - Quarante-deuxième B:ttaillon d'Infanterie: Commandant Sylvestre MIKORORO, S0625 de 1a ma tricule. ~ Cinquante-quattième Bataillon d'Infanterie: Commandant Canisius KAZEYIMANA, S0664 de la matricule Cinquante-cinquième Bataillon Commando Commandant Joseph NIBAYEMERE, S0636 de la mntricule. Ba taillon de Réserve BURUR 1 : Commandant Serge KANDEKE, S0671 de 1'1 matricule. - CeIltre d'Instruction de MURAMVYA : Commandant Félix MVUKIYE, S0661 de la matricule.

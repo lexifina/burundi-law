@@ -1,0 +1,3 @@
+# Article 1 3
+
+Sont nommés Inspecteuls Cantonaux de l'Ensei· gnement Primaire: -- Monsieur SINDATUMA SébRstien Matricule: 518.951 Canton Scolaire de RUTOVU --. Monsieur SIBOMANA Claver Matricule: 503.250 Can ton Scolaire de MUHANGA - Monsieur NDIKUMWAMI Manassé Matricule: 511.521 Can ton Scolaire de MATANA Monsieur NIYUNGEKO Sylvère Matricule: 513.932 Canton Scolaire NYANZA-LAC Monsieur NTIRANDEKURA Zacharie Matricule: 517.959 Canton Scolaire MUYINGA Monsieur WA KA Léonard Matricule: 510.633 Canton Scolaire GASORWE - Monsieur KOBAMEZE Fulgence Matricule: 522.532 Canton Scolaire KINYINYA Ar:. 2. Toutes dispositions antérwures con(nües à cette ordonna'1ce son t abrogées.
