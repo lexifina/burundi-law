@@ -1,0 +1,3 @@
+# Article 5
+
+Si le montant de l'lndemnité de représentation forfaitaire dépasse 2.000 Irs.. par mois, la décision du conseil communal doit être entêrinée par le Ministre de l'Intérieur. Tous l~s élé. ments d'appréciation lui seron~ communiqués, par l'intermé~ diaire du Gouverneur de Province. qui joindra ses avis moti~ vés. Indemnité de représentation proportionnelle. Art. 6, ExceptionneDement. et à l'occasion de circonstances spé. ciales obligeant le bourgmestre à exposer des dépenses extr{!o. dinaires, une indemnité de représentation proportionnelle pourra être accordée aux burgmestres des communes comp~t moins de 3.000 G?Dtribuables.

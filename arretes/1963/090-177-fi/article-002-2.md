@@ -1,0 +1,3 @@
+# Article 2 2
+
+Les emplacements des centres de rassemblement sont fixés omme suit: C.P. BUJUMBURA; NYAKAGUNDA, CIBITOKE T14 ; CIBITOKE T8, MURAMBI. RUHAGARIKA, KASENYL KUNDAVA, KAGUNUZI. KIHUNGWE. BULAMATA. KIHANGA, KIHANGA ru. MUSENYI, NYAMABERE, T9, MUZINDA. MARAMVYA, MURUKARAMU, KATUMBA, BUJUMBU. RA, KIZINGWE, KABEZI. C.R, RUMONGE 1 MUYANGE, MAGARA, CHUGARU, RUMONGE. MUTAMBARA, LUBINDI, BUKEYE, NYABASANZE. MUGERAMA. Art. 3, Les dates de rassemblement et leur périodité sont fixés conf;)rmément au calendrier cÎ-jmnéxé.
