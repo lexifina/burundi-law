@@ -1,0 +1,3 @@
+# Article 27
+
+Les coml'ocat ions qui r st).\Af urgence t ''loiven't êt re adre88~J.eE! six jours au moins avant la date de réunion, doivent ccntenir l'ordre du jour précis. luL 28. S1 le conseil communal est consulté dans les cas obligatoires énumérés à l'article 25. il ne peut délibârer valableme,nt que si la moitié de ses membres sont présent s. . t Si malgré nouvelle convocation le quorum n'est pas atteint, les membrea présents délibéreront valablement. Les avis exprimés par écrit par les absents seront annexés au procès~erbal de la délibération. fi Art. 29. L'administrateur communal et les chefs ~e zone participent aux délibérations. S1 les avis sont partagés également, la voix de l'administrateur communal est prépondérante.

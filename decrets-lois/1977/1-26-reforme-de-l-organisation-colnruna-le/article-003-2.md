@@ -1,0 +1,3 @@
+# Article 3 2
+
+Tout bailleur qui .xig. ou reçoit un loyer excédent le. li.ite. fixées par l'ordohnano. préY~e l l'artiol. l.r oi-dessu•• est pa••ibl. d. six mois au plu. de .ervitud. pénale .t d'un...end. pouvant all.r jusqu'au triple de••0 •••••xi".s .u r.9Ue., ou d. l'un. de c•• d.ux peia••••ulement. Tout locatair. ayant aoo.pt' ae p.,er ou .,ant p.,é dir.ot•••nt ou indirect.m.nt ua loy.r .xoédant 1•• liait•• fixé•• par l'ordonnaAc. prévu. à l'article l.r oi-de.su., e.t passible d. d.uxaoia a. servitude pénale .t d'une amende égal. au plu. au .ontant d•••0•••• aoc.pté•• au delà d. c•• limites.

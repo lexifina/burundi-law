@@ -1,0 +1,3 @@
+# Article 38
+
+Le linistre de l'Iniérieur annule toua rè,le••nte ei déoilione des au~oriiés ooaaun.l•• qui excèdent leur. aitribution., qui .ont ooniraire. aux lois ~q qui ble••ent l'ini6r't s'n'r.l. Cetie annulai ion doit intervenir dan. les irente jours après la date où le Kinistre a eu oonnaissanoe de l'aote anAulable. L'annulaiion esi i••édiat••ent portée à la oonnaissanoe du gouverneur de province et d. l'adainistraieur communal avec .e••otita. A tout ao.ent, .'.e hors du délai viaé oi-des.u., le gouverneur de pro-· vinoe ei le Kini.ire de l'Iniéri.ur peuvent conaiater 1. nullité d'un acie é.a~ant d•••utorité. oo..unales.
