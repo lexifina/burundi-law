@@ -1,0 +1,5 @@
+# Article 21 2
+
+Le conseil d'adm!nistration peut choisir dans ou en dehors de son sein un comité de dire~ ction dont il nomme le président parmi les administrateurs désignés par l'assemblée générale confor~ mém~nt à l'article 20 : il détermine les pouvoirs du comité de direction et le montant de la rémunéra~ tion de ses membres, à prélever sur leS frais généraux. Dans les limites tracées par l'article 26 des statuts et sur proposition du président, du vice~prési! dent, de l'administrateur-délégué ou de l'administrateur~directeur, le conseil peut nommer un ou plu~ sieurs directeurs ou sous~directeurs. choisis dans ou en dehors de son sein, actionnaires ou non. et déléguer des pouvoirs spéciaux à tous mandataires. Ces mandataires seront tenus de justifier de leurs pouvoirs vis-à-vis des tiers, soit par l'extrait de la délibération du conseil d'administration, soit par la publication au Bulletin Officiel du Burundi.
+
+Le conseil fixera les pouvoirs et éventueIlemènt les émoluments fixes ou variables attachés à ces mandats.

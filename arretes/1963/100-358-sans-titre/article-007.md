@@ -1,0 +1,5 @@
+# Article 7
+
+Le capital peut être augmenté ou réduit par décision de l'assemblée générale des actionnaires convoquée et statuant dans les conditions et formes requises pour les modifications aux statuts. Lors de toute augmentation du capital par émiSSion de parts soaiales à souscrire contre espèces, les parts noùvelles seront offertes par préférence aux propriétaires des parts anciennes existant au jour de l'émission, au prorata du nombre de titres appartenant à chacun d'eux, dans lè délai et aux conditions fixés par le conseil d'administration. Toutefois, par dérogation à ce qui précède, l'assemblée générale peut toujours décider, à la majorité des deux tiers des voix pour lesquelles il est pr:s part au vote, que tout ou partie des nouvelles parts sociales à souscrire contre espèces ne seront.point offertes par préférence aux actionaires.
+
+Le conseil d'administration a, dans tous les cas, la faculté de passer avec tous tiers, aux clauses et conditions qu'il avisera, des conventions destinées à assurer la souscription de tout ou partie des parts sociales à émettre.

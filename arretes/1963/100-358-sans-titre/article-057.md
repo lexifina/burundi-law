@@ -1,0 +1,11 @@
+# Article 57
+
+La société faisant l'objet des présents statuts est constituée SOus la condition suspensive de son autorisation par le Ministre de la Justice. conformément à la loi du vingt et un août mil neuf cent soixante~trolS. • • Entre :. Q, L.. 3.A '* P '.'. 1 ....3:=m t . 3 ". B.O.B. N' 1164 - 41Société de Transports par Camions Automobiles. en abrfgê « TRANSCAM » Société par actions à responsabilité limitée. Statuts.
+
+1° la COMPAGNIE GENERALE DE TRANSPORTS AU KATANGA, en abrégé« TRANSKAT », société anonyme belge (ancienne société congolaise par actions à responsabilité limitée. ayant opté pour le droit belge en vertu de la loi du dix-sept juin mil neuf cent soixante), ayant son siège social à Bruxelles, rue de l'Association. 59, immatriculée au registre du commerce de Bruxelles sous le numéro 42241 et au registre du commerce de Bujumbura sous le numéro 11206, ici représentée par Monsieur Alfred Marie Joseph BRYS. ingénieur civil. rés'dant à Bujumbura. agissant en vertu d'une procuration authentique dressée le dix-huit novembre mil neuf cent soixante-trois par devant Maître Albert RAUCQ, notaire à Bruxelles: '
+
+2° Monsieur Georges DEMANCK. ingénieur civil. demeurant à Uccle, 38, avenue de la Chênaie; 3" Monsieur Fernand DE BLOCK. docteur en droit, demeurant à Schaerbeek. 146. avenue Paul Deschanel; 40 Monsieur Alfred Marie Joseph BRYS, prénommé: 50 Monsieur Albert Jean Joseph JACQUES. ingénieur civil, demeurant à Ixelles. 18, chaussée de Vleurgat ; _ 60 Monsieur Pierre HAUWAERT. licencié en sciences commerciales et consulaires. demeurant à Forest. 20, avenue Albert; .
+
+7° Monsieur Maurice Dieudonné Emile DAGNELIES, capitaine au long cours. résidant à Bujumbura; Lescomparant sub numeris 2, 3. 5 et 6 étant représentés par Monsieur Alfre BRYS prénommé, agissant en vertu d'une procuration authentique dressées le dix-huit novembre mil neuf cent soixantetrois par devant Maître Albert RAUCQ. notaire à Bruxelles. Il a été convenu et arrêté ce qui suit:
+
+TITRE 1. Dénomination - Siège social - Durée. Art. 1. ~ Il est constitué sous le régime de la législation en vigueur au Burundi, une société par actions à responsabilité limitée, sous la dénomination « Société de Transports par Camions automobi_ les », en abrégé « T~ANSCAM ».

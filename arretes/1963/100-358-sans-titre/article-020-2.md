@@ -1,0 +1,3 @@
+# Article 20 2
+
+L'assemblée générale nomme le président du conseil d'administration et. éventuellement, le vice-président. Elle peut en outre confier la gestion journalière de la société à un administrateur~délé~ gué et ou à un administrateur-directeur et les charger de l'exécution des décisions du conseil d'admi~ ni stration ; elle délègue à ses mandataires tout oupartie des pouvoirs prévus à l'article 26 des statuts. Ces mandataires devront justifier de leurs pouvoirs vis-à-vis des tieroS soUt par un èxtrait de la dé~ ~"'" ., . j libération de l'assemblée générale. soit par la publication au Bulletin Officiel du Burundi. ..--... i Le conseil peut nommer un secrétaire, choisi dans ou en dehors de son sein. rI ~ -35

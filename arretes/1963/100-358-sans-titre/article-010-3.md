@@ -1,0 +1,5 @@
+# Article 10 3
+
+'. portance.
+
+Les memDres du comité et les membres effectifs forment l'Assemblée Générale de r Le Président du comité est Président de l'Assemblée Générale. L'Assemblée Générale décide en dernier ressort. Elle Juge tous les cas de grande im1 IJ.B. N" 1/64.. 66CHAPITRE V. Attributions des ch,efs .de fAssociation. Art. Il. - Le Président: Convoque les réunions et préside les séances. Il est juridiquement le premier responsable des décisions prises aux réunions. Il représente l'Association auprès des tiers, avec l'avis préalable du Comité. . Il peut en cas d'urgence agir au nom de l'Associat:on. Les actl;s posés en ces conditions doivent être soumis à vérifications et accord du comité pour validation des éngagements. Le Président doit ren_ dre compte au comité de ses activités séparées 81;1 plus ;tar~,d~lls,~es 3 jours suivant rengagement. Sa voix est préponderante en cas'de partage des voix:' ~ ,', ,'Il signe et contresigne les documents intéressant l'Association. S'il veut quitter l'Association il doit présenter sa démission au CQniifé. uri mois à l'avance.

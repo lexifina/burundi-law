@@ -1,0 +1,3 @@
+# Article 41
+
+Le conseil d'administration a le droit de proroger séance tenante, pour un délai n'excédant pas deux mois; toute assemblée générale. alors même qu'elle n'aurait pas pour objet de statuer sur le bilan. Par l'effet de la prorogation, toutes décisions prises sont annulées. En cas de prorogation, les formalités"remplies pour assister à la première assemblée, y compris le dépôt de titres et procurations, resteront valables. pour la seconde . .Tout actionnaire a le droit de remplir les formalités nécessaires pour assister à la nouvelle assemblée, même s'il ne les avait pas faites en vue de l'assemblée primitive.

@@ -1,0 +1,5 @@
+# Article 26 2
+
+Tous les actes engageant la société. de même que tous pouvoirs et procurations sont valablement signés soit par le président, le Vice-président. l'administrateur-délégué. l'admin'strateur-directeur, agissant conjointement deux à deux, ou l'un d'eux avec un administrateur, ou un dirècteur. ou un sous-directeur, ou un mandataire. nommé conformément à l'article 21. soit par un mandataire unique agissant en vertu d'une délégation donnée par une délibération spéciale du conseil d'administration..
+
+La cdrrespondance courante et les actes de gestion journalière peuvent être signés par un ou plu~ sieurs mandataires agissant individuellement ou collectivement, dans les limites de leurs pouvoirs et sous les réserves que le conseil d'administration détermine. II suffit de la signature d'un mandataire quand il s'agit de pièces et décharges destinées aux po~ stes, chemins de fer. télégraphe, téléphone, agences maritimes, fluviales ou aériennes et messageries. . . resteront déposées jusqu'après l'assem..
