@@ -1,0 +1,3 @@
+# Article 29
+
+Le Ministère de la Santé Publique a pour missions principales de: élaboreI une politique du Gouvernement en matière de santé publique visant la plus large promotion et la plus grande cou verture sanitaires; veiller à l'amélioration de l'état de santé de la population; veiller au suivi et au bon encadrement de l'enseignement paramédical; contribuer, en collaboration avec le Ministère de l'Agriculture et de l'Elevage, à l'amélioration de l'alimentation de la population assurer le contrôle de la qualité de l'eau, des aliments, des médicaments et de tous les produits consommables Sectioll 21 Du Ministère de la Communication.

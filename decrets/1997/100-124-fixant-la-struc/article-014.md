@@ -1,0 +1,5 @@
+# Article 14
+
+Le Ministèlc de la Défense Nationale a pour missIons prInCIpales de: concevOir et exécuter, de mamère volontarIste, une pohtique de défense nationale du pays ra~surante pour tous; assurer la défense et l'intégrité du territoilt' national; maintenir et rétablir J'ordre et la sécurité publics en collaboration avec les autres départements ministériels compétents; protéger et défendre les institutions nationales; veiller à la bonne gestion des moyens logistiques et financiers alloués par l'Etat aux Forces Armées; élaborer et exécuter, en collaboration avec le Ministère des Relations Extérieures et de la Coopération, la poli tiq ue de coopération militaire en tre le Burundi et ses partenaires étrangers; former et dé velopper un esprit de tolérance, de respect des droi ts de la personne humaine et de neutralité politique au sein des Forces Armées dans leur mission; participer aux mi&sions de protecTion civile r:otamment dans la prévention et le secours publics, en cas de risques naturels ou autres cataclysmes.
+
+Section 6. Du Ministère de la Planification du Développement et de la Reconstruction.

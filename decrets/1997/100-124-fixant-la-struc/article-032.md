@@ -1,0 +1,7 @@
+# Article 32
+
+Le Ministère des Transports, Postes et Télécommunications a pour missions principales de: élaborer et exécuter la politique gouvernementale en matière de transports, postes et télécommunica1ions ; développer, entretenir et réglementer le" systèmes de communic:ition terre:>tres, aériens, maritimes et lacus tres favorables au désencla vemen t du pays; concevoir et mettre en œuvre une politique de rentabilisation maximale des infrastructures routières, portuaires et aéroportuaires; élaborer et mettre en œu vre des stratégies d'étargü,sement et de modernisatIon du réseau post"l natIOnal; promouvoir ta sécurité routière en collaboration avec les autres ministères concernés; • élaborer et mettre en œuvre une politique d'êtargissement, de mod('rnisation et de rafionalbation des réseaux de télécommunication nationale et international'.! ; concevoit une poli tique ratÎonnelle d'acquisition et de g('stion du charroi de l'Etat - Section 24. Du Ministère de l'Energie et des Mines. AIt. 33.
+
+Le Ministère de l'Energie et des Mine:> a pour missions principales de : élaborer et exécuter la politique du Gouvernement en m'ltière de géologie, des mines, d'énergie et d'eau en collaboration avec les autres ministères concernés; promouvoir les activités de recherches géologique:> et de recherches de nndustrie minière; assurer 13 construction et la gestion du domaine hydraulique et énergétique.
+
+Section 25 Du Ministère des Droits de la Personne Humaine, des Réformes Institutionnelles et des Relations a vee l'Assemblée Nationale.
