@@ -1,0 +1,3 @@
+# Article 1
+
+Monsieur CRAHAY Franz, DClCteur en philosophie. pro_ fesseur ordinaire à l'Université Lovaniufl1, de Léopoldville est nommé professeur visiteur l'Université Officielle de Bujumbura pour lannée ,académique 1965 1966. Il ensei_ gnera : j'Introduction à la philosophie et métaphysique et la Logique, à la faculté de Philosophie et Lettres et à la fa_ culté des Sciences économique et sociales. Art. 2, Monsieur DELCAMBE Lucien, Docteur en chimie, di_ recteur du Lilboréltoire au Centre National de Production et d'Etude des Substances d'origine microbienne (CPEM) de est nommé professeur extraordinaire à l'Unh'eL sité Officielle de Bujumbura pour l'année académique 1965 ~ 1966. Il enseignera la Chimie phYSiologique.
