@@ -1,0 +1,3 @@
+# Article 9
+
+Toule disposition antérieure et contraire à la présente ordonnarce est abrogée. ...
