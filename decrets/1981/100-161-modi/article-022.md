@@ -1,0 +1,3 @@
+# Article 22
+
+Le Directeur Général représente l'Office auprès des tiers et en Justice. Il gère l'Office par délégation du Conseil d'Administration et dans le cadre de la politique de gestion définie par celui-ci. Il assure la gestion des actifs conformément aux règles établies par le Conseil d'Administration et en exécution des décisions de celui-ci. Il engage et libère les dépenses de l'Office dans les limites autorisées par le Conseil d'Administration et suivant les dispositions du règlement comptable. Toute la correspondance et les pièces comptables doivent être revêtues de deux signatures régulièrement accréditées par le Conseil d'Administration.
