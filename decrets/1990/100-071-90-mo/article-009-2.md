@@ -1,0 +1,7 @@
+# Article 9 2
+
+L'appel d'offres peu t êtJe ouvert, restreint ou avec conCOUrS. 1. l'appel d'offres est dit ouvert lorsque tout candidat rempt;ssant les conditions de l'article 16 cidessous peu t déposer ur,e offre. 2. l'appel d'offres est dit lestreint lorsque sont seuls admis à remettJe une offre les candidats que l'Administration décide de consulter, éventuellement à la suite d'une procédure de présélection. Le nombre minimum de soumissionnaites sera de trois. La décision de recourir à l'appel d'offIes restreint et le choix des soumissionnaires doivent être motivés par l'Administration intéressée. Cette décision est prise par le Ministre ayant les Finances dans ses attributions. 3. l'appel d'offres peu t revêtir la forme d'un conCOurS. Il est fait appel au conCOUrs lorsque des motifs d'ordre technique et esthétique justifient des recherches particulières. Ce mode d'appel d'offres est reCommandé dans les cas suivants : -lorsque l'Administration n'est pas en mesure de définir les grandes lignes de la conception de l'ouvrage ; -lorsque les ouvrages comportent des dispositions qui sont fonctions de proCédés techniques spéciaux; -lorsque les ouvrages sont d'une haute technicité ou d'une grande importance.
+
+Le concours a lieu sur base d'un programme établi par l'Administration qui fournit les données nécessaires notamment les besoins à satisfaire, les contraintes fonctionnelles et techniques ainsi que les exigences à respecter.
+
+b). Des marchés sur adjud;cation publique.
