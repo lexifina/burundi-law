@@ -1,0 +1,3 @@
+# Article 17
+
+Le contrôle CCII 1Id le (t r ~ (c'((t l'51 (cr nl i, la :),icque l,rtionnl" (;c r (netit I:c(,l~cn.i(.jve cr; l'uaJlle èc ( n n,)~': iT(' Hf) u n j'Îu" A Cf 1ilre , (' Ddé:fUl' ('C h, 1';·.I(;l'(; '"Hier ;:Ie de l'évelopCel:,ect !cOlhimiquc rrrtllipc d'cili(e il. [c'llcS !cs l'éuI,icI S Art. T8. L'exercice comptable de la Société coïncide a,cc· J'année civile (lf'r :anvicr ,lU 31 décerrhcl l.es 'il tuations comptables et les hilar:s sont communiqu6 au Commissaire aux comrtes, au plus lard le 1er t\'illl~ qui suit immédiaterr:ent la clô1ure c'c l'cxl'fciu;;. CllAP1TRE 5. Affe('tation des résultats,

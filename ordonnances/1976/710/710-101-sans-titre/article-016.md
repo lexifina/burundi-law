@@ -1,0 +1,3 @@
+# Article 16
+
+les comptabilités gécémlC'. analytique et budgétaire de la ~oclét~ sont ten ues au niveau de chaque laiterie .à la dil des Cér<il!ts, ~clcn les rrincircs rctrrus dans le rbn l'(\mpiahk nalional l'Oi~rormémcnt au déer('1 d'nppiiullicn de cc rl'ln. (1 ,Cle I"ilerie présentera son propre hdan annuel et ses soldes c,!ract~rÎstiqucf, de ~elon les 11~(ne<; normes de préscntatinn "lin dc l<\cililcr la corsclid;ticr ('CS lcn'Tlcs de la ~(.ciété. La rr{plratÎcn an! uel1e <.'L! 1 d:o n C01'SO,idé de 1'C1~cn l'e des "'itnicf, cc la ~ccilté, 11un,te au Directeur-Cérat Cc If! ~cciltÉ. Ir l;r, de noi!\:haque GCrant dl: la 11:ilcrle adres~c :lU DirectcuGérant ulle situation c(n-,ptuble détui:lée.
