@@ -1,0 +1,5 @@
+# Article 32
+
+-L'assemblée générale est prés:dée par le président du conseil d'administration ou, à son défaut, éventuellement par le vice-président oU,à défaut de celui~ci, par un administrateur désigné par ses collègues.
+
+Le président désigne le secrétaire et rassemblée choisit deux scrutateurs. Une liste de p::ésence mentionnant l'identité des actionnaires et le nombre d'actions qu'ils repré~ sentent doit être s:.gnée par chacun d'eux ou par leur mandataire avant d'être admis à rassemblée. Art. 33. -- Le conseil d'administration peut proroger, séance tenante, rassemblée générale des actionnaires tant ordinaire qu'extraordinaire pour un délai n'excédant pas six semaines. En cas de prorogat'on, tout actionnaire a le droit de remplir les formalités nécessaires pour assis~ ter à la nouvelle assemblée, même s'il ne les avait pas faètes en vue de rassemblée primitive. Cette prorogation annule toute décision prise. Des questions nouvelles pourront être soumises à l'assemblée ainsi prorogée à condition qu'elles figurent dans les nouvelles convocations faites dans les conditions déterminées ci-dessus.
