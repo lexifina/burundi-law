@@ -1,0 +1,3 @@
+# Article 2 2
+
+Pour favoriser l'acquisition par les Fonctionnaires d' une habitation propre et pour faciliter le remboursement de l'emt:runt contn:cté pour la constn.ction ou l'achat de cette habitation, l'indemnité de logement, dans les conditions visées aux articles suivants, est portée aux taux suivants : 60% du traitement d'activité rr.ajoré éventuellement de l'indemOlté d'ir.térim çour les Fonctionnaires du Cadre de Direction, avec un maximum de 12.0CO Frs (DOUZE MILLE FRANCS BURUNDI) par mOIs. 60% du traitement d'activité majoré éventuellement de l'indcn-.nité d'intérim pour les Fonctionnaires des Cadres dt Coll<.bon.. tion et d'Exécution.

@@ -1,0 +1,5 @@
+# Article 3 2
+
+Le taux de faveur vrévu à l'article 2 n'est applicable qu'aux Fonctionnaires, ayant terminé lellr stage et adn1Js definitivement dans le cadr;: des Fonctionnaires qui occupent personndlement Lt effectivement: _ Soit un logement acquis grâce à un prêt à la construction accordé par la Banque Nationale de Développement Economique ou lJar toute autre institution publique privée, spécialement agréée à cette fin par le Gouvernement, - Soit un lo!;ement acquis par vente à tempérament ou location-vmte, dans un lotissement géré par la Banque Nationale de Développement Economique ou ~ar toute autre mstitution publique ou privée, spéCIalement a!;réée à cette fin par le Gouvernement.
+
+Le fonctionnaire qùi possède dé~à un logemer.t d'un standing correspondar.t à son grade (t dont il a intégralement ré!,lé le prix, ne peut prétendre à l'indemnité spéciale de 10!;enitnt. En outre, le demandeur produira une déclaration Sur l'honneur énuO'.(r"nt d identifiant ks bÏC:ns immeubles <.Iont lUi, son è~ouse ou ses enfants sont dejà propnétaires ou dont ils deviendront prClpriüalres tn vertu d'un conIr,.t de veme à tcmpéranlent ou de location· vente.
