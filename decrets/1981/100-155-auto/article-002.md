@@ -1,0 +1,3 @@
+# Article 2
+
+En cas de dépassement des coûts du projet de Bouteillerie-Verrerie initialement prévus, la Répupublique du Burundi est autorisée à participer à hauteur de 46,5 % maximum, pour un montant supplémentaire ne dépassant pas Trente trois millions quatre cent quatre-vingt mille francs burundais (33.480.000 FBu), à l'augmentation du capital qui sera décidé conformément à l'Accord de Financement Supplémentaire entre le Gouvernement du Burundi, EDESA S.A., BBC Brown Voveri et Cie, Brasserie du Burundi, S.A.R.L., la Banque Nationale de Développement Economique, la Caisse Centrale de Mobilisation et de Financement, Verreries du Burundi, S.A.R.L. et la Société Financière Internationale.
