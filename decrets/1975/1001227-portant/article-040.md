@@ -1,0 +1,3 @@
+# Article 40
+
+Les Membres du Comité de Direction dOÎvent consacrer à la Banque toute leur activité professionnelle. Ils ne peuvent exercer, soit personnellement. soit par l'intermédiaire d'un tiers, et même accessoirement, aucune profession lucrative quelle qu'elle soit, hormis celle consistant à donner, de manière limitée, un enseignement du degré universitaire. Ils peuvent cependant être membres des conseils d'organismes régis par des dispositions pariculières ou bénéficiant de la garantie de l'Etat, d'organismes financiers ou économiques internationaux auxquels le Burundi participe ou d'organismes dans lesquels la Banque détient une participation.

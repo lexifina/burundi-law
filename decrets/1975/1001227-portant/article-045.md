@@ -1,0 +1,3 @@
+# Article 45
+
+(1) Le Comité de Direction peut adopter les règlements et dispositions qu'il juge nécessaires à la bonne exécution du mandat confié à la Banque par la présente Loi. (2) Il adopte notamment les règlements concernant les conditions d'emploi, les traitements et allocations, la durée du service. la nomination et la révocation des membres du personnel de la Banque. (3) Le Comité de Direction peut autoriser toute dépense qu'il juge justifiée et nécessaire pour la bonne administration de la Banque. (3) Le Comité de Direction peut autoriser toute dépense qu'i! juge justifiée et nécessaire pour la bonne administration de la Banque.

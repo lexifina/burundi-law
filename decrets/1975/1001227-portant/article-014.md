@@ -1,0 +1,3 @@
+# Article 14
+
+(1) La BRB peut, au moyen d'un avis publié au Bulletin Officiel du Burundi. déclarer que certaines émissions, coupures ou pièces métalliques cessent d'avoir cours légal à partir d'une date déterminée. Cet avis doit accorder aux détenteurs des billets et monnaies devant être retirés un délai raisonnable pour leur pel mettre de les échanger à la Banque contre toute autre monnaie. Passé ce délai, la Banque statuera sur toutes les demandes qui lui seront présentées. (2) La contrevaleur des billets et monnaies ainsi retirés de la circulation qui n'auraient pas été remboursés ou échangés à l'expiration du délai fixé est attribuée au Trésor Public. Celui-ci supporte la charge des remboursements ou échanges ultérieurs.
