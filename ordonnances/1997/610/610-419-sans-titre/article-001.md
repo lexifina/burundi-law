@@ -1,0 +1,3 @@
+# Article 1
+
+Le Jury d'Homologation, session 1997, est composé comme suit: Président : Monsieur Herménégilde RWANTABAGU Vice-Président : Monsieur Edouard Juma Secrétaire : Monsieur Germain BUTOYI Secrétaire-Adjoint: Monsieur Sylvère MASABO Membres : Monsieur Jean-Baptiste BAHAMA : Monsieur Antoine CISHAHAYO : Monsieur Antoine BINDARIYE : Monsieur Astère KABOHE : Monsieur Raphael BARAGUNZWA : Madame Caritas KAZAGE : Madame Judith IRAMBONA : Monsieur Isaac GAHUNGU : Monsieur Abraham MBONERANE : Madame Angélique NIMPAGARITSE : Madame Didacienne NIYONGERE : Monsieur Joachim NZOTUNGICIMP A YE : Monsieur Vincent BARICANA
