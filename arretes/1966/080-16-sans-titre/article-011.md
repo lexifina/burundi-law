@@ -1,0 +1,3 @@
+# Article 11
+
+1 Il est délivré à la fin des études, aux, étudiants qui en sont jugés dignes ;par le jury, un diplôme d'études juridiques, un diplôme d'études admnistratives ou un diplôme de gestion des affaires selon la section. Ce diplôme est délivré par le Ministre de l'Educat;on NatiOnale.'" , I.I.B. N° 3/66 Les titulaires de ces diplQmes ne sont cependant admissi. bles aux examens correspondant à un grade académique que s'ils réussissent les épreuves préparatoires exi,gées. Pour ces épreuves le Ministre de J'Education pourr(i prévoir en leur faveur des dispenses d'interrogation Sur certai'nes matières.
