@@ -1,0 +1,3 @@
+# Article 15
+
+L'exercice financier commence le premier Janvier et se termine le trente-et-un décembre de chaque année. Si le résultat de l'exercice est bénéficiaire, il est reporté à l'exercice suivant dans la mesure où il n'excède pas les besoins nOrmaux des publications. L'excédent éventuel est pris en recette aU budget des voies et moyens de l'Etat. 1 ,4il' [ ., mm! Si le résultat de l'exercice est déficitaire, il est reporté à l'exercice suivant et le Ministre délègue les crédits budgétaires nécessaires à l'apurement des comptes. Il donne toutes instructions utiles pour la restauration de l'équilibre financier des publications.

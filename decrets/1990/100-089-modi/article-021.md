@@ -1,0 +1,3 @@
+# Article 21
+
+Les comptes des Publications de Presse sont placés sous le contrôle permanent de deux commissaires aux comptes désignés par le Ministre des Finances. A la fin de chaque année, les commissaires aux comptes établissent un rapport de leur vérification, donnent leurs avis Sur la régularité des opérations et Sur la qualité de la gestion et sont toute suggestion utile pour une meilleure administr-ation financière et comptable des Publications de Presse. Ce rapport est adressé au Ministre ayant l'Information dans ses attributions, aU Ministre des Finances et à la Direction Générale des Publications de Presse.
