@@ -1,0 +1,11 @@
+# Article 37
+
+Les soussignés, représentant l'universalité des actionnaires, constatant que les conditions nécessaires pour la constitution de la société par action à responsabilité limitée "INFOSYS SARL" sont réunies et apposent leurs signatures ci-après, ce jour du mois de mars mil neuf cent quatre-vingt -seize.
+
+Fait à Bujumbura, le 25/03/1996 1. Monsieur GORAJIA Vinay 2. Monsieur DERWEDUWEN Stéphane 3. Monsieur RWAKA Kasayn 4. Monsieur GORAJIA Vijay 5. Monsieur GORAJIA Bharat 6. TOYOTA BURUNDI SPRL 7. TAMOCO Acte notarié n° 14.306 L'an mil neuf cent quatre-vingt-seize, le vingt cinquième jour du mois de mars Nous, Maître Herménégilde SINDIHEBURA, Notaire à Bujumbura, certifions que l'acte dont les clauses sont reproduites ci-avant nous a été présenté par les parties y dénommées et comparaissant devant Nous, en présence de Joséphine NSA VYIMANA et Liliane HAKIZIMANA témoins instrumentaires à ce requis et réunissant les conditions exigées par la loi. Lecture faite, les comparants ont déclaré devant Nous que l'acte tel qu'il est rédigé renferme bien l'expression de leur volonté. En foi de quoi le présent acte a été signé par les comparants, les témoins, Nous, Notaire, et revêtu du sceau de notre office. Dont acte sur pages.
+
+Les comparants : Mr GORAJIA Vinay (Sé) Mr DERWEDUWEN Stéphane (Sé) Mr RW AKA Kassym (Sé) Mr GORAJIA Vijay (Sé) Mr GORAJIA Bharat (Sé) TOYOTA BURUNDI S.P.R.L (Sé) TAMOCO (Sé)
+
+Les témoins: Mme Liliane HAKIZIMANA (Sé) Mme Joséphine NSA VYIMANA (Sé)
+
+Le Notaire Maître Herménégilde SINDIHEBURA (Sé) Enregistré par Nous, Maître Herménégilde SINDlHEBURA, Notaire à Bujumbura, ce vingt cinquième jour du mois de mars mil neuf cent quatre-vingt-seize sous le numéro 14.306 du volume 123 de l'Office Notarial de Bujumbura. Etat des frais: Quittance 47/4767/B du 26/3/96 Passation d'acte 3.500 FBU Expédition authentique 1.500/P x 10 15.000FBU Correction des statuts 5.000FBU 23.500FBU Le Notaire: Maître Herménégilde SINDIHEBURA (Sé) A.S. N° 6130 Reçu au greffe du Tribunal de Commerce ce 27/3/96 et inscrit au registre ad hoc sous le numéro six mille cent trente. La ·préposée au Registre de commerce : NISUBIRE Régine (Sé) Perçu: droit dépôt: 10.000 , copies: 2050 suivant quittance n° 45/7857/C du 27/3/96. La préposée au Registre de Commerce: NISUBIRE Régine (Sé)
