@@ -1,0 +1,3 @@
+# Article 95
+
+1. Le Ministre ayant les Finances dans ses attributions, sur demande de la Banque, pf,ut EUspendre tout ou partie des opérations visées à l'article 2 pour l'ensemble des institutions financières sur le territoire de la République. La suspension ne peut excéder six jours OUV! ables. Elle peut être prorogée dans les mêmes formes et pour la même durée. 2. En cas d'urgŒce, la Banque peut prendre la mesure de suspension prévue à l'alinéa ci-dessus, à chatge poue elle d'en rendre compte immédiatement au Ministre ayant les Finances dans ses attributions. Toutefois, l'effd de cette mesure ne peut, sans être confirmé par le Ministre, excéder deux jours ouvrables.

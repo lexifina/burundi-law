@@ -1,0 +1,3 @@
+# Article 79
+
+1. La réorganisation d'une banque peut être ordonnée par le Tribunal dans les cas prévus aux articles 62, paragraphe 2, et 71. paragraphe 2. 2. Lorsque le Tribunal ordonne la réorganisation d'une banque, il désigne comme réorganisateur la Banque ou une personne agréée par la Banque. 3. Le jugement ordonnant la réorganisation d'une banque dessaisie ou en liquidation forcée ne met pas fin au dessaisissement ou à la liquidation ni aux pouvoirs de la Banque ou du liquidateur. Toutefois, le jugement ordonnant la réorganisation d'une banque en liquidation fOlcée suspend l'exercice des pouvoirs du liquidateur prévus à l'article 72.

@@ -1,0 +1,3 @@
+# Article 81
+
+• Le plan de réorganisation est déposé au greffe du Tribu.nal. Le réorganisateur en adresse copie à tous les déposants et autres créanciels à l'égard desquels le plan prévoit des remises de dette ou des reports d'échéance au profit de la banque, en indiquant que si dans un déali d'un mois le plan de réorganisation n'a pas été refusé par écrit par des personnes détenant au moins le tiel s du montant global des cléances ainsi modifiées et repIésentant au moins le tiers des déposants titulaires de telles créances, le réorganisateur soumettra le plan de rl:organisation à l'homologation du Tribunal.

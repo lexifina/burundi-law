@@ -1,0 +1,3 @@
+# Article 33
+
+1. Aucune banque ne peut, sans l'autorisation de la Banque, consentir à une même personne physique ou morale des prêts, avances ou concours quelconques, se porter caution en sa faveur, lui accorder 'la galantie ou, d'une manière générale, prendre aucun engagement en sa faveur pour un montant global supérieur à 30 pour cent des ronds propres de la banque. 2. Touterois, la limite prévue au présent article n'est pas applicable : -- aux crédits garantis par la mise en gage de biens d'une valeur marchande généralement reconnue ou vérifiée par la banque et à concunence seulement de 90 pour cent de ladite valeur - aux crédits consentis au Trésor ou garantis par lui - aux crédits entre banques.

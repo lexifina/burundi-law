@@ -1,0 +1,3 @@
+# Article 46
+
+1. La Banque peut effectuer auprès des institututions financières toute vérification qu'elle juge nécessaire. Les institutions financières sont tenues de soumettre à l'inspection de la Banque dans les locaux où ils sont conservés, leurs encaisses, titres et valeurs en portefeuille, ainsi que leurs livres, procès-verbaux, comptes, reçus et autres documents et de fournir à la Banque tous les renseignements, éclaircissements et explications qu'elle juge nécessaires à l'accomplissement de sa mission. 2. La Banque communique par écrit à toute institution financière les irrégularités, manquements ou contraventions relevés à l'encontre de celle-ci au COUIS d'une inspection.

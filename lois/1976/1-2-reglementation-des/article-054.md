@@ -1,0 +1,3 @@
+# Article 54
+
+1. En cas de dessaisissement, la Banque fait immédiatement afficher dans les locaux du siège social et de chaque succursale, agence et guichet de la banque, un avis annonçant SOIl action et l'heure à laquelle le dessaisissement prend effet. Le dessaisissement ne peut être rétroactif. Une copie de l'avis est transmise au greffe du ttibunal de première instance dans le ressort duquel le siège de la banque est établi, ci-après dénommé le Tribunal. 2. Aussitôt que possible après le dessaisissement, la Banque établit une situation comptable et dresse un inventaire de l'actif. Un exemplaire de ces deux documents est transmis au greffe. L'exemplaire de l'inventaire est tenu à la disposition des parties intéressées pour examen au greffe.
