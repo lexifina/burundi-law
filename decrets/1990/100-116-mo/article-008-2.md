@@ -1,0 +1,5 @@
+# Article 8 2
+
+Tou te personne physique ou morale désireuse d'ouYTir une école d'enseignement privé doit avoir l'autorÎsation et remplir autant que possible les condi tions suivantes : * répondre aux critères d'honorabilité et d'autres valeurs humaines nécessaires pour l'édueation et la formation ; * présenter l'ordonnance d'octroi de personnalité civile et celle d'agrément des Représentants Légaux de l'association ou de la fondation; * justifier des moyens humains, matériels et financiers capables d'assurer l'enseignement préconisé; disposer des Î.1.frastructures salubres et décentes ainsi que des équipements nécessaires à cette formation ; * justifier d'un matériel didactique adéquat; * présenter clairement les objectifs et les programmes de formation ; * présenter des statuts conformes aux objectifs d'enseignement et d'éducation préconisés en precIsant notamment les organes administratifs de l'école ; * fournir la preuve des moyens suffisants pour le démarrage de l'école.
+
+La requête d'autorisation d'ouverture doit être au plus tard le 31 décembre de l'année précédant directement l'année d'ouverture proposée.
