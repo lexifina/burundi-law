@@ -1,0 +1,3 @@
+# Article 2 2
+
+Le .r1~nistre ayant les F'1nances' dans ses att~ibl.itions peut exempter ·de.l'obligation d'êpargne·minim.ale les citoyens d'une commune ou d'une ·partie de ~ominune d.ont les biens ont été anéantis ou fortement endomagés .. par suite d.e sinistres, pour l'aimée en· cours ou l'année suivante. lie gouverneur -de province ou son délégué peut exempter .de l ',obligation d'épargne minimum pour deux' exercices consécutifs, à titre individuel, les chefs de famille.s'.installant -dans un paysannat. . -Le f'1~nistre ayant" les Finances dans ses attributions rixe le mode de constatation de l'acquit ou de l'exemption de l'obligation d'épargne minimum.
