@@ -1,0 +1,5 @@
+# Article 121
+
+Si, au jour de la première comparution, le défendeur demande à mettre garant en cause, le juge accordera délais suffisants. La notification donnée au garant sera libellée sans qu’il soit besoin de lui notifier le jugement ordonnant sa mise en cause. Si la mise en cause n’a pas été demandée à la première comparution, ou si la citation n’a pas été faite dans le délai fixé, il sera procédé sans délai au jugement sur l’action principale, sauf à statuer séparément sur la demande en garantie.
+
+Section 6 : Du délibéré.

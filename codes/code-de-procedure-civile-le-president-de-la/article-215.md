@@ -1,0 +1,3 @@
+# Article 215
+
+La prétention n’est pas nouvelle dès lors qu’elle tend aux mêmes fins que la demande originaire, même si son fondement juridique est différent de celui des prétentions initiales.

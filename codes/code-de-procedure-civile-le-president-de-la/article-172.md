@@ -1,0 +1,5 @@
+# Article 172
+
+Le délai d’opposition ou d’appel est interrompu par le décès de la partie à laquelle le jugement avait été notifié.
+
+Le délai court en vertu d’une notification faite aux héritiers qui peuvent désigner un représentant commun ad hoc.

@@ -1,0 +1,3 @@
+# Article 305
+
+La vente doit être faite un jour de marché sur les lieux ou sur la place du marché local.

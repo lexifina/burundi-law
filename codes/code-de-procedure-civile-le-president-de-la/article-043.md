@@ -1,0 +1,3 @@
+# Article 43
+
+Si personne ne peut ou ne veut recevoir la copie de l’acte et s’il résulte des vérifications faites par l’agent instrumentant et dont il sera fait mention dans l’acte de notification que le destinataire demeure bien à l’adresse indiquée, la notification est réputée faite à domicile ou à résidence. Dans ce cas l’agent instrumentant est tenu de remettre copie de l’acte à l’Administrateur communal ou au Chef de zone du lieu, le jour même ou au plus tard le premier jour ouvrable contre récépissé. L’Administrateur communal ou le Chef de zone selon le cas est tenu de remettre l’exploit de justice au destinataire et ce, sous peine de condamnation aux dommages et intérêts si sa négligence venait à faire subir au destinataire un quelconque préjudice.

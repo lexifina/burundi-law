@@ -1,0 +1,3 @@
+# Article 184
+
+L’appel, recours ordinaire contre les jugements des juridictions du premier degré, tend à faire réformer et annuler par le juge d’appel la décision du premier juge.

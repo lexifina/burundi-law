@@ -1,0 +1,3 @@
+# Article 15
+
+Tous les moyens de nullité contre les actes de procédure déjà faits doivent être invoqués simultanément à peine d’irrecevabilité de ceux qui ne l’auraient pas été.

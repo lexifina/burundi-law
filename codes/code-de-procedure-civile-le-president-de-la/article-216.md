@@ -1,0 +1,3 @@
+# Article 216
+
+Les parties peuvent aussi expliciter les prétentions qui étaient virtuellement comprises dans la demande originaire, ajouter à celles-ci les demandes qui n’en sont que l’accessoire, la conséquence ou le complément.

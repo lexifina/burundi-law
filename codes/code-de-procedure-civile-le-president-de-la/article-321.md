@@ -1,0 +1,3 @@
+# Article 321
+
+Si plusieurs immeubles sont mis simultanément en vente ou plusieurs parcelles d’un même immeuble, l’adjudication prend fin dès que le produit de la vente suffit pour couvrir le montant de la créance et des frais.

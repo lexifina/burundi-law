@@ -1,0 +1,3 @@
+# Article 218
+
+La suspension de l’exécution des jugements improprement qualifiés en dernier ressort peut être ordonnée par le juge d’appel à tout moment de l’instance.

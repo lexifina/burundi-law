@@ -1,0 +1,3 @@
+# Article 41
+
+Tout acte judiciaire doit mentionner : 1. la date de son accomplissement ; 2. l’identité de la partie à la requête de laquelle il est accompli ; 3. son objet, avec l’énoncé des éléments de fait et de droit le justifiant ; 4. l’identité de la partie destinataire avec mention du domicile, de la résidence ou du lieu où la notification a été faite ; 5. l’identité de la personne ayant reçu la notification si le destinataire n’a pas été personnellement touché ; 6. l’identité et la qualité de l’agent de l’ordre judiciaire ayant instrumenté ; 7. le délai dans lequel le destinataire doit comparaître ou peut exercer une voie de recours ou doit présenter ses prétentions.

@@ -1,0 +1,3 @@
+# Article 287
+
+Si les portes sont fermées ou si l’ouverture en est refusée, ou s’il est fait contre l’huissier des actes de violence ou de résistance, il prend toutes les mesures conservatoires pour empêcher les détournements et demande l’assistance de la force publique par l’intermédiaire du Ministère public ou de l’autorité locale.

@@ -1,0 +1,3 @@
+# Article 309
+
+Si l’immeuble est enregistré au nom de plusieurs propriétaires, le créancier doit au préalable provoquer le partage ou la licitation.

@@ -1,0 +1,3 @@
+# Article 185
+
+La voie de l’appel est ouverte en toutes matières, même gracieuse, contre les jugements de première instance s’il n’en est autrement disposé. Les actes d’administration judiciaire ne sont pas susceptibles d’appel.

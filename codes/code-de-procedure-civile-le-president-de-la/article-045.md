@@ -1,0 +1,3 @@
+# Article 45
+
+Lorsque la partie destinataire n’a ni domicile ni résidence connue, la notification s’opère par affichage à la porte principale de l’auditoire du Tribunal compétent et par insertion dans un journal ou périodique de diffusion nationale ou locale désigné par le juge.

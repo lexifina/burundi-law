@@ -1,0 +1,3 @@
+# Article 235
+
+Les jugements ordonnant des mesures provisoires ou conservatoires sont toujours exécutoires par provision.

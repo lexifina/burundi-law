@@ -1,0 +1,3 @@
+# Article 289
+
+Le gardien ne peut, à peine de dommages-intérêts, se servir ni tirer bénéfice des objets confiés à sa garde ou les prêter.

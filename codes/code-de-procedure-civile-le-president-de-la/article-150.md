@@ -1,0 +1,3 @@
+# Article 150
+
+Le jugement qui se borne à ordonner une mesure d’instruction ou une mesure provisoire n’a pas, au principal, l’autorité de la chose jugée.

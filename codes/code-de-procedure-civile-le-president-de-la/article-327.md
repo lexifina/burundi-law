@@ -1,0 +1,3 @@
+# Article 327
+
+Si la vente de l’immeuble produit une somme supérieure au montant de la créance et des frais, le surplus est restitué par le comptable au débiteur exproprié.

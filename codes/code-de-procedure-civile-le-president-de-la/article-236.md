@@ -1,0 +1,3 @@
+# Article 236
+
+L’exécution a lieu à la requête de la partie bénéficiaire de la décision. Elle est assurée par l’huissier près la juridiction qui a rendu la décision au premier degré ou par celui de la juridiction de même ordre et de même rang dans le ressort de laquelle l’exécution doit être poursuivie. Des huissiers indépendants peuvent être nommés par ordonnance du Ministre de la Justice. Leurs conditions d’admission et l’exercice de leur profession libérale sont fixées par décret. En matière de propriété foncière rurale non enregistrée, le greffe de la juridiction qui a rendu la décision sur voie de recours quelconque, renvoie la décision au tribunal de résidence compétent pour pourvoir à son exécution conformément à son dispositif.

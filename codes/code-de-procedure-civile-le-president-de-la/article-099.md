@@ -1,0 +1,3 @@
+# Article 99
+
+Au jour indiqué, les témoins, après avoir décrité leur identité prêtent serment de dire la vérité, toute la vérité et rien que la vérité et déclarent s’ils sont parents ou alliés des parties et à quel degré. Ils précisent s’ils sont au service des parties et si celles-ci sont leurs serviteurs. Sous peine de déni de justice, tout faux témoignage est sanctionné séance tenante selon les peines prévues par le code pénal. Les réquisitions du Ministère public ne sont pas obligatoires. Après la prestation de serment de dire la vérité, le juge avise les témoins des peines encourues en cas de faux témoignage.

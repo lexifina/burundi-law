@@ -1,0 +1,3 @@
+# Article 175
+
+La notification d’un recours est valablement faite au domicile personnel de la partie mentionnée dans la notification du jugement.

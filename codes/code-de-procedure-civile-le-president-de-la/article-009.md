@@ -1,0 +1,3 @@
+# Article 9
+
+S’il s’élève sur la connexité des difficultés entre diverses formations d’une même juridiction, elles sont réglées par le Président, sans formalités.

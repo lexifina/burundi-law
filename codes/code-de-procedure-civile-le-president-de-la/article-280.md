@@ -1,0 +1,3 @@
+# Article 280
+
+Si la saisie est formée sur effets mobiliers, le tiers saisi est tenu de joindre à sa déclaration un état détaillé desdits effets.
