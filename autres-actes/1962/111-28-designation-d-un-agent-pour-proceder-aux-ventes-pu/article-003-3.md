@@ -1,0 +1,3 @@
+# Article 3 3
+
+Cet article est remplacé par le texte suival1t : -( Le siège de la société est établi à Bruxelles, cette expression cOmprel1:'lnt toutes les communes de l'élgglomération bruxelloise. Il peut être transféré dans toute autre localité en Belgique, par simple décision du conseil d'administration, » Tout changement du siège social est pubHé aux annexs du Moniteur belge par les soins du conseil d 'administration, » La société peut, en outre, par simple décision du conseil d'administration, créer des sièges ad[ylinis(ratifs 011 d'exploitation, succursales, bureaux, agences et comptoirs, en BelHique et à l'étranger )'.
