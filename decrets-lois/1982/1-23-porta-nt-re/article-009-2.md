@@ -1,0 +1,3 @@
+# Article 9 2
+
+Sous réserve des instructions du Gouvernement, le Comeil d'Administration définit les orientations de l'action de l'Office. Il adopte le règlement intérieur de l'établissement et prend tou tes les décisions nécessaires à son administration. li détermine la natllle, le niveau de rémunération de chacun des emplois permanent ou temporaires de l'Office en tenant compte de ses besoins et de ressources. Il arrête l'organigramme de l'Office. 11 vote le budget prévisionnel de l'exercice à venir, approuve les bilans après examen des comptes et fi xe l'affectation des résultats de l'exercice écoulé. Il veille à l'exécution de ses décisions,

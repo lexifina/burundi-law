@@ -1,0 +1,3 @@
+# Article 22 2
+
+Les Commissaires aux comptes peuvent consulter sur place tOU5 les documents et écritures de l'Office demander toutes justifications et renseignemen ts, sur les activités et les comptes de l'établissement. lis établissent avant le 15 juillet de chaque année, - un rapport circonstacié sur les comptes de l'exercice de l'année précédente, donnent leur avis sur la régularité des opérations, la qualité de la gestion et les perspectives pour l'exercice sui van t. Ce rapport est adressé au Ministre de tutelle, au Ministre ayant les Finances dans ses attribu tions, aux membres du Conseil d'Administration, à l'Ngane de direction et au chef comptable de l'Office.

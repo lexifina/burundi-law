@@ -1,0 +1,3 @@
+# Article 18 2
+
+Les ressources de l'Office sont constituées par: 1. Son patrimoine tel qu'il a évolué à partir de la dissolution de l'OCIBU 2. Les taxes ou redevances fixées annuellement à J'Echelle Mobile du café 3. Les bénéfices réalisés ensuite de ses activités et par la gestion de son patrimoine 4. Les subsides octroyés par Je Gouvernement et les prêts autorisés par le Conseil d'Administration 5. Toutes IJbéralités faites en faveur de l'Office pour autant qu'elles répondent à l'objet de celui-ci et aient été acceptés par le Conseil d'Administration. 6. Le produit de la vente du café torréfié à des buts de propagande ou d'autre fournitures tels que les facteurs de production.
