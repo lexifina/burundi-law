@@ -1,0 +1,3 @@
+# Article 1 2
+
+Pour les circonscriptions électorales où il y aurait plus de trente candidats, les symboles suivants pourront être utilisés, conjointement avec ceux figurant à l'annexe m à l'arrêté-loi nO 001/685 du 29 mars 1965. 31. la cruche (umubindi) 32. la branche de caféier (umuvyaro w'ikawa) - les élèves inscrits et fréquentant régulièrement le cycle secondaire ou supérieur d'une des institutions scolairès du Burundi 1 - les vieillards et malades qui sont à charge d'un des membres de leur famille séjonrnant régulièrement au Burundi 1 - les réfugiés qui estiment pouvoir évoquer des motifs particuliers. Leur cas sera soumis à la décision du Ministre de J'Intérieur ou de son délégué.
