@@ -1,0 +1,5 @@
+# Article 6
+
+Chacune des branches du regIme de sécurité sociale fait l'objet d'une gestion financière distincte, les ressources d'une branche ne pouvant ê.tre affectées à la couverture des charges d'une autre branche, -136 L Les cotisations dues à l'institut sont, dans la limite d'un plafond, assises sur l'ensemble des rémunérations, primes, gratifications perçues par les personnes assujetties y compris les avantages en nature mais à l'exclusion des sommes ayant le caractère d'un remboursement de fraÎsc Une ordonnance du Ministre de tutelle prise après avis du Conseil d'Administration de l'Instit~t, fixe le, plafond des sa!air~ soumis à cotisat~ons ct precJSe les règles a SUIvre pour l'évaluatIon des avantages en nature. 2. Une ordonnance du Ministre de tutelle peut déterminer les rémunérations forfaitaires servant au calcul des cotisations applicables à certaines catégories de travailleurs ou assimilés.
+
+Le Ministre de tutelle peut également décider que pour d'autres catégories de travailleurs, les cotisations seront fixées d'après des classes de salaires ct prescrire des modalités particulières pour leur recouvrement.

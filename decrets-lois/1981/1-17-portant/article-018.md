@@ -1,0 +1,7 @@
+# Article 18
+
+1. Dans la bral\che des risqul's professiol\nds, l'Institut établit et maintient:
+
+a) une réserve technique égale à la somlIIe des capitaux constitlltif~ des rentes allouées, déterminé selon les rl'gles établies par ordonn;mCe du Ministre dl' tutelle aprl's avis dll Conseil d'Administration de l'Institut,
+
+b) une réserve dl' sécurité au moil\s égale à la moitié du montant tot;ù des dépenses moyellnes ,annuelles des prestations cOllstatées dans Cette branche au cours des deux derniers exercices,à l'exclusion de celles afferentes aux renteS. 2. Dans la branche des pensions, la réserve technique est constituée par la différence entre les recettes et les dépenses de cette branche. Elle ne peut être inférieure au montant total des dépenses constatées dans cette branche au cours des trois derniers exercices. Art. 16, 1. Les fonds des réserves de chaque branche, leurs placements respectifs ainsi que le produit de ces placements sont comptabilisés séparément. 2. Les placements sont effectués à moyen et à long terme selon la nature des rése.rves, conformément aU plan fmancier établi par le Conseil d'Administration de l'Institut et approuvé par le Ministre de tutelle. Ce plan financier doit réaliser, en premier lieu, la sécurité réelle tle ces fonds. Il doit viser en outre à obtenir un rendement optimal des placements et dans toute la mesure du possible à concourir au progrès sociM et au développement économique de la nation,

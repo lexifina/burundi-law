@@ -1,0 +1,3 @@
+# Article 40
+
+L'Institut organise une prévention des risques professionnels en vue nota~e~~ de conco~rir à l'application des mesures d hyg.ene et de s~curité du travail prescrites par le code du travail et les textes subséquents. L'Institut veille en particulier à la réunion et à l'utilisation des statistiques et des résultats des recherches portant sur les risques professionnels; il entreprend en outre des campagnes pour le développement des mesures de prévention et de réadaptation. Une ordonnance du Ministre de tutelle détermine la portée et les modalités de l'action de l'Institut dans ce domaine. CHAPI1RE V. DISPOSITIONS COMMUNES

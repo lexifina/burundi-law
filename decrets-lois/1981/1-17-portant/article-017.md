@@ -1,0 +1,5 @@
+# Article 17
+
+• Si à la fin d'un exercice, le montant des réserveS des branches devient inférieur à la limite minimum fixée conformément à l'article 15 du présent décret-loi le ministre de tutelle propose la fixation, selon la procédure défmie à l'article 8 ci-dessus, d'un nouveau taux de cotisation en vue de rétablir l'équilibre fmancier de la branche et de relever le montant des réserves au niveau préw dans le délai maximum de trois ans à compter de la fm de cet exercice, L'Institut effectue au moins une fois tous les cinq ans une analyse actuarielle de chaque branche du régime de sécurité sociale. Si l'analyse révèle un danger de déséquilibre 6n:m~ier d~~ une branche déterminée, il est procede au reaJustement des taux de cotisations de cette branche selon la procédure préwe à l'alinéa 1 de l'article 8 du présent décret-loi.
+
+CHAPITRE III. PENSIONS Art. 19, Les prestations de la branche des pensions comprennent les pensions et allocations de vieillesse les pensions d'invalidité et les pensions et allocations de survivants.
