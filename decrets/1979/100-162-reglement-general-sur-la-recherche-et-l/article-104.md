@@ -1,0 +1,3 @@
+# Article 104
+
+Les treuils et les machines d' extraction ne peuvent servir aune circulation normale de personnel ou etre utilises a une vitesse pouvant depasser deux(2) metres par seconde pour une circulation exceptionnelle de personnel que s' ils sont munis: Ie) d'un indicateur de la position dans le puits de chaque cage, skip ou benne, ne comportant aucune transmis-sion par frottement et place en vue du machiniste, sans prejudice des marques qui doivent etre faites sur les cables ou sur les appareils d'enroulement autres que les poulies Koepe; 2e)D'un appareil de signalisatin acoustique annoncant I'arrivee de la cage, du skip ou de la benne aproximite des recettes extremes en service.

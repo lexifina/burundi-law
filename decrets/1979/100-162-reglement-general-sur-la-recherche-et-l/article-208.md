@@ -1,0 +1,5 @@
+# Article 208
+
+§ ler - Les cartouches absorbantes peuvent etre coupees, mais cette operation doit etre effectuee avant trempage. § 2 - Le logement de la meche ou de I'allumeur doit etre pratique avant trempage. II doit etre effectue au moyen d'une broche speciale sur une des extremites de la cartouche; cette extremite doit etre placee au fond du vase de trempage. § 3 - Les cartouches absorbantes ne doivent etre mises a tremper qu' au moment de leur emploi et a proximite du chantier. § 4 - II est interdit de mettre a tremper une cartouche munie de sa meche. § 5 - Le trempage doit etre effectue jusqua saturation.
+
+La duree de trempage et la duree de vie utile de la cartouche trempee sont precisees par I'exploitant pour chaque type de cartouche. § 6 - Les cartouches trempees doivent etre transportees dans Ie vase de trempage jusqu'au lieu de chargement de facon a reduire au minimum les manipulations de cartouches sorties du vase dans ces manipulations, un ouvrier ne doit jamais porter des cartouches trempees pesant au total plus de 10 kg, sauf derogation accordee par Ie Ministre dans Ie cadre du reglement interieur vise a I'article 173.

@@ -1,0 +1,5 @@
+# Article 292
+
+§ ler -L'exploitation doit etre conduite de maniere que la mine et la carriere a ciel ouvert ne presentent pas systematiquernent de danger pour Ie personnel; en particulier, Ie front ou les gradins ainsi que les parois dominant les chantiers doivent pouvoir etre efficacement surveilles et purges; ils ne doivent pas comporter de surplombs.
+
+La hauteur du front ou des gradins ne doit pas depasser quinze metres, sauf autorisation du Ministre, au pied de chaque gradin doit etre amenagee une banquette horizontale d'une largeur suffisante pour permettre sans danger Ie travail et la circulation du personnel, cette largeur ne pouvant en aucun cas etre inferieure it deux metres. En cas d' abattage a l' explosif, la disposition generale, la profondeur et les charges des trous de mines sont fixees de maniere it satisfaire aux dispositions precedentes. 164 § 2 • L'evacuation des produits abattus doit etre organisee de maniere que les ouvriers ne risquent pas d'etre serres contre les engins servant acette evacuation ou genes par eux en cas d' eboulement ou de remise en mouvement accidentelle d'un bloc abattu.

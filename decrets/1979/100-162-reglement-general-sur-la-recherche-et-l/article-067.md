@@ -1,0 +1,7 @@
+# Article 67
+
+Paragraphe ler - Le compartiment des echelles est separe par une cloison du compartiment d'extraction. Par exception, dans les puits de faible section, les echelles peuvent etre placees dans le compartiment d'extraction mais aucune cordee ne doit avoir lieu pendant la circulation par les echelles, 2e paragraphe - Les echelles placees dans les retours d'air generaux des mines agrisou ou afeux ne doivent pas etre utilisees pour une circulation normale du personnel. 3e paragraphe - Dans les puits de plus de 10m de profondeur, l'mclinaison des echelles ne doit pas etre superieure a 80EC sauf derogation accordee par Ie Ministre ; des paliers de repos sont etablis a4 m les uns des autres. Toute echelle doit depasser de I m au moins son palier superieur; adefaut, des poignees fixes sont etablies sur une hauteur convenable au-dessus de ce palier.
+
+Les echelles placees dans les puisards ne sont pas soumises aux dispositions du present paragraphe. 4e paragraphe - Les echelles ainsi que la cloison de separation prevue au paragraphe Ier du present article, doivent etre visitees periodiquernent et maintenues en bon etat. S' il Ie juge utile, Ie Ministre peut imposer a I'exploitant une periodicite determinee des visites.
+
+Les conclusions du contr61e seront consignees dans le registre mentionne al' article 63 ci-dessus. 5e paragraphe - Les echelles de circulation du personnel doivent etre disposees en diagonales opposees entre les deux paliers de repos pour eviter les chutes des ouvriers sur toute la hauteur de l'horizon.

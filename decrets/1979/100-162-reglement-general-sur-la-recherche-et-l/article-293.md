@@ -1,0 +1,3 @@
+# Article 293
+
+§ Ler - Lorsqu'elles sont ouvertes dans les masses ebouleuses ou de faible cohesion, les mines aciel ouvert sont en outre soumises aux prescriptions du paragraphe 2 ci-dessous. § 2 - Si I' exploitation est conduite sans gradins, le profil de la masse ne doit pas comporter de pentes superieure a 45 degres. Si l'exploitation est conduite en gradins, la banquette menagee au pied de chaque gradin doit, sans prejudice des conditions exigees par I' article 292, paragraphe l er, etre en tout point au moins egale ala hauteur du plus haut des deux gradins qu'elle separe, Si, en outre, la methode d'exploitation entraine la presence norrnale d'ouvriers au pied d'un gradin, la hauteur de celui-ci ne doit pas exceder deux metres.

@@ -1,0 +1,3 @@
+# Article 3
+
+Paragraphe Ier - Nul ne peut penetrer ni demeurer sur le carreau d'une mine ni dans les batiments ou locaux d'exploitation que pour y exercer son emploi ou ses fonctions dans l'entreprise ou s'il y a ete autorise specialernent par I'exploitant. Paragraphe 2. - Toute personne dont les agissements seraient de nature acompromettre la conservation de la mine et de la carriere, la securite ou l'hygiene des ouvriers mineurs doit etre immediatement expulsee de la mine et de ses dependances : il en sera de meme pour les personnes en etat d'ivresse manifeste. 119 COMPENDIUM OF ENVIRONMENTAL LAWS OF AFRICAN COUNTRIES / VOLUME VIII: SECTORAL ENVIRONMENTAL LAWS AND REGULATIONS

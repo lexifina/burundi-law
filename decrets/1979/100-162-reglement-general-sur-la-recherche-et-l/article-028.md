@@ -1,0 +1,5 @@
+# Article 28
+
+Ier paragraphe - Toute installation doit etre protegee, soit par construction, soit par Ie moyen de limiteurs de tension ou de relais de securite contre I' elevation dangereuse de la tension au-dessus de la valeur pour laquelle elle a ete prevue. 2e paragraphe - II est interdit d'alimenter des installations a tres basse tension par l'mtermediaire d'une resistance ou d'un autotransforrnateur, a une source qui ne soit pas elle-meme a tres basse tension. Ces installations ne doivent avoir aucun conducteur sous tension cable avec des conducteurs actifs d' autres categories. Toutefois, l' on peut utiliser dans un meme cable des conducteurs de premiere ou deuxieme categoric et des conducteurs auxiliaires sous tres basse tension a condition que ces derniers scient exclusivement destines au controle de lisolement, a la protection electrique du cable, ala telecommande de I'appareil alimente par Ie cable ; il est interdit de brancher sur ces conducteurs auxiliaires tout autre circuit a tres basse tension.
+
+CHAPITRE II MISE ALA TERRE

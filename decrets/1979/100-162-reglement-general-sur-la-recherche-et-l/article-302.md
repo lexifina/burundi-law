@@ -1,0 +1,3 @@
+# Article 302
+
+Paragraphe ler - Le reglement general edicte par Ie present decret entre en vigueur ala date de sa publication au Bulletin Officiel du Burundi. Ce delai pourra etre porte adix huit mois, pour tout ou partie de ses dispositions, sous reserve d'une autorisation accordee par le Ministre. Pour etre recevable, la demande d' autorisation devra etre adressee au Ministre dans les six mois qui suivront la date de son entree en vigueur. 2e paragraphe - Pendant la periode transitoire de 12 ou 18 mois, visee au Ier paragraphe ci-dessus, les dispositions de I'Ordonnance n087/A.E. du 4 Octobre 1930 et I'Ordonnance n043/187 du 13 Mai 1955 portant Reglement sur les mesures de securite aobserver dans I'exploitation des carrieres aciel ouvert, resteront en vigueur. 166

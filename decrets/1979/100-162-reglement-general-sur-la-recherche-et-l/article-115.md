@@ -1,0 +1,3 @@
+# Article 115
+
+§ 1er - Les cables d' equilibre doivent avoir une longueur suffisante pour ne pas s'opposer ala montee de la cage ascendante jusqu'au dispositif darret place dans le chevalement. Des dispositions sont prises pour que les brins ne puissant s'emmeler et que la boucle ne plonge pas dans I'eau du puisard. § 2 - Ils sont soumis aux memes prescriptions que les cables porteurs du systeme Koepe; toutefois, s'ils servant ala circulation du poste, le delai de deux ans figurant a l' article 114 est porte pour eux aquatre ans, y compris, s'il y a lieu, leur duree anterieurs de service comme cable porteur.

@@ -1,0 +1,3 @@
+# Article 303
+
+Sont abrogees, en ce qui concerne les mines et carrieres visees par le present decret ; l'ordonnance n087/AE du 40ctobre 1930, portant reglement sur la police des exploitations minieres, a l' exception des dispositions de son Chapitre III, Ti-tre V relatives aux reservoirs d'air comprime, qui sont inclus dans le titre X du present decret. l' ordonnance no43/187 du 17 Mai 1955 portant reglement sur les mesures de securite aobserver dans BURUNDI l' exploitation des carrieres aciel ouvert. l'ordonnance no43/31 du 10Fevrier 1956 relative aux declarations d'accidents graves survenus dans les mines, usines metallurgiques, carrieres, cimenteries et fours achaux, ainsi que dans leurs dependances directes.

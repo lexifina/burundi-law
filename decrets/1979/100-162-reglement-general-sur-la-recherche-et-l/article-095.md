@@ -1,0 +1,3 @@
+# Article 95
+
+Paragraphe ler - II est interdit de se mettre en avant des wagons pour en moderer la vitesse, ainsi que de les abandonner aeux-mernes dans les voies en pente, sauf aux points de formation des convois; I' approche de ces points doit etre annoncee par un signal bien visible. Dans les galeries basses les rouleurs doivent manoeuvrer les wagons al'aide de dispositifs garantissant leurs mains contre les blessures. 2e paragraphe - Les wagons d'un meme convoi doivent etre rendus solidaires les uns des autres. 138 Le roulement a bras par peloton est interdit sauf derogation accordee par Ie Ministre.

@@ -1,0 +1,3 @@
+# Article 30
+
+Ier paragraphe - Dans les installations triphasees en etoile pour lesquelles la tension de regime definie a I'article 26 ne depasse pas 150 volts, le point neutre et Ie conducteur neutre, s'il y en a un, doivent etre, en un point convenablement choisi, relies electriquement ala terre, soit en permanence, soit des que la tension de l'une des phases par rapport ala terre, mesuree sur un conducteur de fuite d'une resistance d' environ 2.000 ohms, depasse la tension etoilee. 2e paragraphe - La realisation de cette derniere prescription peut etre assuree soit automatiquement au moyen d'un limitateur de tension, soit sur la vue d'un indicateur lumineux, soit des la perception d'un signal sonore d' alarrne.

@@ -1,0 +1,3 @@
+# Article 86
+
+Ier paragraphe - Dans les plans inclines affectes au roulage la circulation est reglee par une consigne approuvee par le Ministre. 137 COMPENDIUM OF ENVIRONMENTAL LAWS OF AFRICAN COUNTRIES I VOLUME VIII: SECTORAL ENVIRONMENTAL LAWS AND REGULATIONS La consigne fixe en outre les conditions dans lesquelles on peut traverser les plans. 2e paragraphe - II est interdit de circuler parIes wagons ou chariots porteurs des plans inclines ou des descenderies, a moins d'une autorisation du Ministre fixant les conditions de cette circulation. Cette interdiction ne s'applique pas au transport des malades et des blesses.

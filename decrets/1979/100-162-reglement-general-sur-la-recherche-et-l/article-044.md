@@ -1,0 +1,3 @@
+# Article 44
+
+Paragraphe ler • L' echauffernent dangereux des conducteurs doit etre evite tant par une section appropriee a l'intensite normale du courant correspondant a leur service Ie plus charge qu' au moyen de relais thermiques, fusibles ou autres dispositifs equivalents. 2e paragraphe - Les fusibles ne doivent pas permettre la projection de matiere en fusion. BURUNDI 3e paragraphe - Les appareils de disjonction ne doivent pas pouvoir provoquer d'arcs permanents. 4e paragraphe - Dans les zones particulierement exposees aux effets de la foudre, toute installation comportant des !ignes aeriennes doit etre suffisamment protegee contre les decharges atmospheriques.

@@ -1,0 +1,3 @@
+# Article 92
+
+Paragraphe ler - Dans les galeries atrainage par chaine ou cable, Ie personnel ne peut circuler, pendant que Ie roulage fonctionne, que sil dispose d'un passage de 60 ern de largeur au moins et sil existe en tout point du trajet un moyen de signalisation permettant de communiquer avec Ie machiniste ou une commande a distance de I' arret du moteur. Des derogations aux prescriptions du present paragraphe peuvent etre accordees par Ie Ministre pour la circulation des isoles, 2e paragraphe - Les signaux sont fixes par une consigne affichee en permanence au poste de commande du trainage et achacun des postes d'alimentation et de degagement, Au signal acoustique d'un coup unique doit obligatoirement etre attachee la signification imperative de "halte".

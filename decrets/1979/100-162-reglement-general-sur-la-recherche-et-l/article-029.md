@@ -1,0 +1,3 @@
+# Article 29
+
+Paragrapbe Ier - II est interdit d'employer la terre comme partie d'un circuit, sauf pour la mise a la terre du point neutre ou I'alimentation du relais de terre. 2e paragraphe - Les rails peuvent servir de conducteurs de retour a condition detre eclisses electriquernent et de ne presenter jamais un ecart de tension de plus de 15 volts avec une terre franche. Les files de rails paralleles doivent etre reliees electriquement a intervalles n'excedant pas 100 metres. BURUNDI 3e paragraphe - Lorsque les rails sont utilises comme conducteurs de retour dans les conditions fixees par le paragraphe 2 ci-dessus, les circuits d' eclairage qui les utilisent a cette fin sont dispenses de I' interrupteur general omnipolaire prescrit par I' article 27 (Ier paragraphe).

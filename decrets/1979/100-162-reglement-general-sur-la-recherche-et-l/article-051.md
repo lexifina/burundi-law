@@ -1,0 +1,3 @@
+# Article 51
+
+Paragraphe Ier . Pour I'execution des travaux hors tension, on doit avoir au prealable coupe les lignes de part et d'autre de la section areparer ou la canalisation d' amenee de courant. 2e paragraphe - S'il s'agit d'une installation de deuxieme ou de troisierne categoric, l'execution des travaux est placee sous l'autorite d'un chefresponsable qui doit acquerir au prealable la certitude de ces coupures et de leur maintien par un dispositifde blocage approprie. II doit rester materiellernent Ie maitre absolu de ce blocage pendant toute la duree du travail et ne permettre le retablissement du courant qu' apres avoir acquis la certitude que Ie travail est termine et tout Ie personnel arrive aux points de ralliement fixes it I' avance.

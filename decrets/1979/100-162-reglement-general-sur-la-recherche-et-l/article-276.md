@@ -1,0 +1,3 @@
+# Article 276
+
+§ 1er - Aucun ouvrier ne peut etre affecte au fond sil n'a ete au prealable examine et reconnu apte par Ie medecin du travail de l' exploitation. § 2 - Les ouvriers reconnus contagieux sont exclus des travaux souterrains. § 3 - Afin d'eviter des accidents, les ouvriers recrutes pour des travaux souterrains doivent recevoir au prealable a la surface, des instructions theoriques et un entrainernent pratique tant sur les regles du travail que sur les mesures de securite pendant au moins 3 a5 jours. Durant cette periode de formation theorique et d'entrainement pratique, les ouvriers sont consideres comme engages.

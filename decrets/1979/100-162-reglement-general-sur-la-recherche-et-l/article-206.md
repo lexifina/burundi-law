@@ -1,0 +1,3 @@
+# Article 206
+
+§ ler - L'oxygene liquide ne peut etre transporte ou conserve que dans des recipients speciaux fournis par l'exploitant et entretenus par ses soins. § 2 - Ces recipients doivent etre manipules avec precaution de maniere a eviter tout choc et toute projection de liquide. § 3 - Le transport de personnel, d'explosifs permanents, de detonateurs ou d'autres artifices de mise a feu est interdit dans une cage contenant de I'oxygene liquide. § 4 - Le transport de personnel, d' explosifs permanents, de detonateurs au d' autres artifices de mise a feu est interdit sur un vehicule transportant de l'oxygene liquide, exception faite seulement pour le conducteur si Ie vehicule est automoteur.

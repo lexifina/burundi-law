@@ -1,0 +1,3 @@
+# Article 111
+
+§ ler - Un cable metallique servant ala circulation du poste ne doit travailler aaucune epoque sous une charge statique superieure au sixieme de la resistance ala rupture resultant des derniers essais. Toutefois, si la distance la plus grande entre la patte et l' enlevage depasse 50 metres, le coefficient de securite de six peut etre reduit, avec l'autorisation du Ministre, de un dixieme d'unite pour chaque tranche supplementaire de cent metres, sans pouvoir etre abaisse au-dessous de cinq. § 2 - Un cable en textile servant ala circulation du poste ne doit travailler a aucune epoque sous une charge statique superieure au quart de sa resistance ala rupture constatee par les essais de traction.

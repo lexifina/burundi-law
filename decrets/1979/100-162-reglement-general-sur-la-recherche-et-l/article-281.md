@@ -1,0 +1,3 @@
+# Article 281
+
+§ 1er - Toute mine et carriere doit etre pourvue achaque etage d' exploitation et au jour de tout ce qui est necessaire pour l'execution de petits pansements. § 2 - Tout siege ou tout etage d'exploitation des servant des travaux ou sont simultanement occupes, au poste Ie plus charge plus de vingt-cinq ouvriers, doit etre pourvu au moins d'un brancard approprie au transport des blesses et des malades. 162 § 3 - Lorsque le nombre des ouvriers au poste Ie plus charge depasse 100, une salle est amen agee au jour pour recevoir les blesses et les malades, et permettre de leur donner les premiers soins. § 4 - Le transport des malades et blesses adomicile ou a I'hopital doit etre assure dans des conditions appropriees aleur etat.

@@ -1,0 +1,3 @@
+# Article 10
+
+Paragraphe ler - Des cabinets d'aisance sont installes au jour. Leur nombre est d'un au moins par cinquante ouvriers occupes au fond au poste Ie plus charge. 2e paragraphe - Lorsque Ie personnel du jour est mixte, des cabinets d' aisance separes en nombre suffisant sont reserves aux femmes. 3e paragraphe - Les cabinets d'aisance ne doivent pas communiquer directement avec les locaux formes affectes au travail. Us sont construits et amenages de maniere aprevenir Ie degagernent de mauvaises odeurs : Ie sol et les parois sont en materiaux impermeables. Us sont convenablement eclaires, 4e paragraphe - Les cabinets d'aisance et les urinoirs sont completement nettoyes au moins une fois par jour.

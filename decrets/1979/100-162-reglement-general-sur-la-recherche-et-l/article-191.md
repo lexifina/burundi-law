@@ -1,0 +1,3 @@
+# Article 191
+
+§ Ier - Les caracteristiques des engins electriques de mise it feu, leurs conditions d'emploi et d'entretien doivent exclure tout risque de rate par defaut de puissance. § 2 - Les caracteristiques electriques essentielles des engins electriques de mise a feu sont verif'iees periodiquement dans des ateliers convenablement outillees; la frequence et la nature de ces verifications sont definies par le reglernent interieur vise al'article 173. § 3 - L'organe de manoeuvre commandant la mise afeu doit etre conserve par le prepose au tir, qui en est responsable et ne doit le mettre en position de tir qu'au moment de bouter le feu.

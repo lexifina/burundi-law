@@ -1,0 +1,3 @@
+# Article 198
+
+A l' expiration des delais de retour au chantier definis par I'article precedent et avant la remise en place du personnel, Ie chefde chantier ou le prepose au tir precede a la reconnaissance du chantier avec le concours d'un aide. Au cours de cette reconnaissance, il sonde avec precautions le toit et les parements; il verifie les effets du tir; il constate les rates eventuels, repere les trous ayant fait canon et les fonds de trous, recolte avec precaution en vue de leur destruction les explosifs dont il constaterait la presence dans les deblais. IIfait executer les purges necessaires.

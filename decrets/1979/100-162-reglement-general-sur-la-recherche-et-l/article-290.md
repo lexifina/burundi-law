@@ -1,0 +1,3 @@
+# Article 290
+
+§ ler - Le sous-havage est interdit. § 2 - Le havage ne peut etre utilise qu'en vertu d'une autorisation du Ministre et comme element d'une methode d'exploitation definie par une consigrre precisant notamment les mesures de securite aprendre pour assurer jusqu'au moment de l'abattage la bonne tenue de la masse havee, I et II III IV Chap. I et II IV Chap. III V Chap. I V Chap. II V Chap. III V Chap. V VI Chap. V VIII Chap. I IX Section I, II, III, IV XII XVC En entier En entier En entier Articles 89,91,92,93,94,95,96,97,98,99 Articles 10I, 102, 104, 105, 106, 108 et 109 Articles 110, 111, 113, 116, 117, 119 Articles 121, 122 et 125 Articles 126 Articles 143, 144 et 145

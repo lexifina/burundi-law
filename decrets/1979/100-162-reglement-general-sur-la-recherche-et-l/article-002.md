@@ -1,0 +1,3 @@
+# Article 2
+
+Paragraphe Ier - Les carreaux de mines et de carrieres doivent etre efficacement separes des proprietes voisines par des murs, clotures ou fosses, saufderogation accordee par le Ministre. Paragraphe 2 - Toutes dispositions doivent etre prises pour interdire efficacement l' abord de toute fouille dangereuse, meme abandonnee. Paragraphe 3 - Les terrils de mines et de carrieres doivent etre disposes en gradins. La hauteur maximale d'un gradin ne doit pas depasser 20 m. Paragraphe 4 - A la fin des travaux d' exploitation, la nature doit etre reconstituee pour des fins agricoles, forestieres ou autres.

@@ -1,0 +1,3 @@
+# Article 272
+
+§ ler - Les parties sous tension des locomotives electriques doivent etre isolees ou protegees par des couvercles ayant une robottesse mecanique suffisante et une garniture isolante efficace; toutes dispositions doivent etre prises pour que cet isolement ne soit pas deteriore par les trepidations. § 2 - II est interdit d'entreprendre lexamen ou la reparation, meme purement mecanique, de I'equipement 161 COMPENDIUM OF ENVIRONMENTAL LAWS OF AFRICAN COUNTRIES / VOLUME VIII: SECTORAL ENVIRONMENTAL LAWS AND REGULATIONS electrique des locomotives electriques sans y avoir au prealable supprime la tension du reseau; toutefois, cette interdiction ne s' applique pas aI'examen de I'equipement electrique par un agent qualifie autorise.

@@ -1,0 +1,3 @@
+# Article 239
+
+Article utilisant des combustibles a a50°C est interdit. § point d' eclair inferieur ou utilisant des combustibles hquides dans les travaux souterrains doit etre d'une declaration au Ministre leurs conditions d'utilisation, Toute modification notable de celles-ci doit faire sans delai d'une declaration complementaire. Toute mine doit disposer de rampes d' extinction fixes ou d'extincteurs mobiles, entretenus constamrnent en bon etat, permettant de combattre immediatement tout commencement d' incendie souterrain. Des tels appareils doivent notamment etre disposes au fond pres des locaux

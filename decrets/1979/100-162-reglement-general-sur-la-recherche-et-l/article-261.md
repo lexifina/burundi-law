@@ -1,0 +1,9 @@
+# Article 261
+
+§ ler - Les cables et autres canalisations dont les conducteurs sont simplement proteges par des enveloppes et gaines isolantes ne peuvent etre utilises que:
+
+a) Pour les distributions ou alimentations etablies a demeure, I'alimentation des appareils ou engins semi-fixes, la liaison entre divers elements d'un appareil ou engin fixe, semi-fixe ou mobile qui occupent sur lui une position invariable lorsqu'il est en service Ie tout dans la limite d' une tension continue de premiere categoric ou d'une tension alternative inferieure ou egale acelles de la deuxieme categoric B3;
+
+b) Pour la liaison a une prise de courant etablie a demeure des engins mobiles derouleurs de leur cable d' alimentation, dans la limite d' une tension continue ou alternative de premiere categoric;
+
+c) avec l'autorisation du Ministre, pour la liaison entre divers elements d'un meme appareil ou engin fixe, semi-fixe ou mobile qui n'occupent pas sur lui une position invariable lorsqu'il est en service, dans la limite d'une tension continue de premiere categoric ou d'une tension alternative inferieure ou egale acelle de la deuxieme categoric B3. § 2 - Les installations sous tension continue ou entre phases superieure a6.000 volts ne doivent etre alimentees ou equipees que par des cables armes ou semi-souples, toutefois les courtes liaisons sous faible rayon de courbure entre appareils etablis ademeure ou semi-fixes peuvent etre en cables souples. § 3 - Les cables electriques utilises dans Ie foncage des pouts et Ie creusement de tout ouvrage dont la pente est superieure a25 p. 100 doivent etre capables de resister sans degradation dans chacune de leurs sections a un effort triple de celui qu'y exerce la composante longitudinale de leur poids al'aval de cette section. § 4 - Les dispositions des paragraphes ler et 2 ci-dessus ne sont pas applicables aux lignes de tiro

@@ -1,0 +1,7 @@
+# Article 33
+
+Paragraphe ler - Les conducteurs de terre doivent etre a l' abri des degradations et leurs connexions fixees de maniere ane pas risquer de se desserrer ou de se detacher; aucun fusible ou organe de disjonction ne doit etre intercale sur le conducteur de terre en dehors des interrupteurs multipolaires assurant le debranchement de toute I'installation.
+
+Les elements metalliques et les conducteurs de mise ala terre connectes a des prises de terre electriquement distinctes doivent etre isoles les uns des autres. 2e paragraphe - Les conducteurs de terre doivent avoir une conductance par unite de longueur au moins egale a celie du plus gros conducteur actif d'alimentation, sans qu'il soit necessaire de depasser celie d'un conducteur en cuivre de 50 millimetres carres de section ; il peut etre derogeacette obligation dans les appareils de mesure ou de limitation du courant intercales sur la liaison du point neutre ala terre. 3e paragraphe - Dans tous les cas ou il est prescrit de relier ala terre des parties metalliques d'une installation et ou celle-ci com porte l'usage d'un conducteur compensateur ou neutre comme partie d'un circuit, ce conducteur doit etre nettement differencie des autres conducteurs par sa couleur ; les jonctions et prises de courant doivent etre construites de maniere aempecher materiellement de relier ou de mettre en contact par megarde ce conducteur avec I'un des conducteurs actifs d' alimentation.
+
+CHAPITRE III PRECAUTIONS RELATIVES AUX CANALISATIONS ET APPAREILS SOUS TENSION
