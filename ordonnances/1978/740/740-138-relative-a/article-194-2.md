@@ -1,0 +1,3 @@
+# Article 194 2
+
+Le titulaire d'une licence s'abstiendra d'exercer les privilèges de sa licence pendant toute période où il ressentira une déficience physique queleconque de nature à le mettre dans l'incapacité de satisfaire aux conditions d'aptitude physique et mentale exigées po~!r la délivrance Ol! le renouvellement de sa licence. On entend par déficience physique ou mentale, les effets de toute affection, lésion, boisson alcoolique ou substance pharmacodynapique, tant que ces effets rendent l'intéressé incapable de satisfaire aux condi"'.::1s exigées pour la déiivrance de la licence dont ii est titulaire.

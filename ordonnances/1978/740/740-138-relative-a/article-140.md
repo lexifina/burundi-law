@@ -1,0 +1,3 @@
+# Article 140
+
+-Un aéronef ne doit pas évoluer à une distance d'un autre aéronef telle qu'il puisse en résulter un un risque d'abordage. Les vols en formation ne sont autorisés qu'après autorisation spéciale du Directeur de l'Aéoronautique et de la Météorologie et qu'après entente préalable entre les pilotes. tions fictives de vol aux instruments ne peuvent avoir lieu que si : l'aéronef est équipé de doubles commandes en parfait état de fonctionnement, un pilote compétent occupe un siège aux commandes qui lui permet d'intervenir comme pilote suppléant. Si ce pilote n'a pas un champ de vision satisfaisant vers l'avant de chaque côté de l'aéronef, un observateur en communication permanente avec lui doit occuper un emplacement dont le champ de vision complète le sien.

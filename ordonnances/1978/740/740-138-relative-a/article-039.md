@@ -1,0 +1,3 @@
+# Article 39
+
+Le propriétaire d'un aéronef auquel le certificat de navigabilité aura été refusé ne pourra demander un nouvel examen de J'aéronef qu'après un délai de quinze jours à partir de la notification qui sera faite de la conclusion de l'examen précédent. Art. 40, Un aéronef étranger ne présentant pas toute la sécurité de vol aux termes du réglement applicable de navigabilité sera maintenu au sol. Le Directeur de l'Aéronautique et de la Météorologie devra aviser immédiatement l'Etat d'immatriculation de cet aéronef en lui communiquant tous les renseignements nécessaires sur les dégâts ou l'inaptitude au vol. Art. 41, L'Etat d'immatriculation dans des cas exceptionnels pourra prescrire les limites d'emploi. B. D.B. nO 10/78

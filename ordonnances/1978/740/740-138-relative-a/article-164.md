@@ -1,0 +1,3 @@
+# Article 164
+
+Un vol VFR ne doit pas être entrepris ou continué si les conditions de visibilité et de distance par rapport auX nuages de l'aéronef, sont inférieures aux valeurs suivantes: 1. Dans l'espace aérien contrôlé et en dehors de cet espace à plus de 300 mètres de la surface, Visibilité en vol: 5 Km Distance par rapport aux nuages: 600 m horizontalement 150 m verticalement 2. Hors de l'espace aérien contrôlé à moins de 200 III de la surface, Visibilité en vol : 1,5 Km Distance par rapport aux nuages Hors des nuages, B.O.B. li. 0 10 /78 3. En ce qui concerne la zone de contrôle de Bujumbura, aucun vol VFR ne doit être effectué, si la visibilité est inférieure à 5 Km et le plafond inférieur à 450 m.

@@ -1,0 +1,3 @@
+# Article 145
+
+Un aéronef est considéré comme dépassant un autre aéronef lorsqu'il s'approche de ce dernier par l'arrière sous un azimuth de moins de 70 0 par rapport au plan de symétrie de ce dernier. L'aéronef dépassé à la priorité de passage. L'aéronef dépassant, qu'il soit en montée, en palil:-r ou en descente, doit s'écarter de la projectoire de l'aéronef à dépasser en obliquant vers la droite. Aucune modification ultérieure des positions relatives des deux aéronefs ne dispense l'aéronef dépassant de l'obligation ci-dessus jusqu'à ce qu'il ait entièrement dépassé et distancé l'autre aéronef.

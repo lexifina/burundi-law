@@ -1,0 +1,5 @@
+# Article 203
+
+Toute demande de licence d'exploitation d'une école de pilotarge ou d'un aéro-club doit comporter entre autres les renseignements suivants: Nom, prénom, nationalité, et domicile de l'école ou de l'aéro-club, Raison sociale, et siège de l'organisme ou association exploitante, Une copie du statut projeté devra être fournie, Nombre approximatif d'heures de vol prévues par mois, Type d'appareils employés. Nombre d'appareils employés, Nombre et qualifications du personnel de conduite et instructeur de vol employés, Nombre et qualifications de mécaniciens d'entretien prévus, Révisions périodiques prévues par le construc teur, Nombre d'hommes-heures prévues pour réaliser ces révisions dans les conditions d'exploitations, Nature et quantité des équipements d'entre.tien prévus, Nature et quantité des équipements de contrôle prévus, Aménagements des installations au sol, notamment des ateliers et magasins, En ce qui concerne l'instruction en vol et au sol, précisions sur les programmes d'instructions théoriques, pratique, qui seront enseignés et le nombre d'heures de vol qui seront consacrées à l'instruction pratique.
+
+Section IV Taxes.

@@ -1,0 +1,3 @@
+# Article 11 2
+
+La taxe de survol est fixée comme suit: compte tenu de la classe et catégorie d'aéronef déterminées par le poids total maximal autorisé au décollage tel qu'il est indiqué au certificat de navigabilité .. A. - Aéronef dont le poids maximal ne dépasse pas 10.000 kgs, (i) Monomoteur 200 frs (ii) MuItimoteurs 400 frs B. Aéronefs dont les poids maximal dépasse 10.000 kgs, (i) de 10.001 à 50.000 kgs 40 frs par tranche indivisible de 1.000 Kgs (ii) de 50.001 à 100.000 kgs 50 frs par tranche indivisible de 1.000 kgs (iH) au dessus de 100.000 kgs 60 frs par tranche indivisible de 1.000 kgs.

@@ -1,0 +1,7 @@
+# Article 32 2
+
+a) Les expertises en vue de la délivrance par équivalence d'un certificat de navigabilité ou en vue de sa rcvll.Iidation, donnent lieu à la perception des taxes ci-après: 1. Avion monomoteur pesant au total moins de 1.000 kgs 1.600 frs 2. -- Avion monomoteur pesant au total de 1.000 kgs à moins de 3.000 kgs 2.000 frs 3. - Avion monomoteur pesant au total 3.000 kgs et plus 2.400 frs 4. Avion multimoteur pesant au total moins de 3.000 kgs 2.400 frs 5. Avion multimoteur pesant au total de 3.000 kgs à moins de 6.000 kgs 3.600 frs 6. Avion multimoteur pesant au total de 6.000 kgs à moins de 9.000 kgs 4.800 frs 7. Avion multimoteur pesant au total de 9.000 kgs à moins de 15.000 kgs : 6.400 fr8 8. Avion multimoteur pesant au total de 15.000 kgs à moins de 30.000 kgs : 8.000 frs 9. Avion multimoteur pesant au total de 30.000 kgs à moins de 60.000 kgs : 12.000 frs 10. - Au délà de 60.000 kgs et par tranche indivisible de 5.000 kgs ajouter 1.000 frs.
+
+b) Toute prorogation du délai de validité d'un certificat de navigabilité donne lieu à la perception d'une taxe égale à 50 %de la taxe prévue pour les expertises. Toutefois, si la prorogation du délai de validité d'un certificat de navigabilité est décidée par le service de l'Aéronautique du Burundi, la taxe ne sera pas perçue.
+
+c) La délivrance d'un laissez-passer de navigation donne lieu à la perception d'une taxe égale à 25 %de la taxe prévue pour les expertises.

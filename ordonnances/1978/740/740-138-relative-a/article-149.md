@@ -1,0 +1,3 @@
+# Article 149
+
+Entre le coucher et le lever du soleil, ou aux heures et périodes fixées par le Directeur de l'Aéronautique et de la Météorologie, les aéronefs en vol ou évoluant sur une aire de manœuvre d'un aérodrome ou stationnant sur ou à proximité d'une aire de manoeuvre d'un aérodrome utilisé ou utilisable pour les vols de nuit, porteront les feux prescrits à l'annexe 6 de la présente ordonnance. Toutefois, les aéronefs en stationnement dont question à l'alinéa précédent, seront dispensés de porter les feux lorsqu'ils sont franchement éclairés ou que la zone qu'ils occupent est balisée par des feux d'obstacles. Les aéronefs ne porteront aucun autre feu pouvant être confondu avec un des feux prescrits à l'annexe 6.

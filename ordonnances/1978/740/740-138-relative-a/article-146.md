@@ -1,0 +1,3 @@
+# Article 146
+
+Les exercices et épreuves de vol dans des condi-1,- Tout aéronef en vol ou manœuvrant au sol ou l'eau, cède le passage aux aéronefs en train d'atterir ou en cours d'approche finale. 2. Lorsque deux ou plusieurs aérodynes approchent d'un aérodrome afin d'y atterrir, l'aérodyne se trouvant à l'altitude la plus élevée cède le passage à celui dont l'altitude est la plus basse, mais ce dernier ne peut se prévaloir de cette règle pour se placer devant un autre aérodyne effectuant son approche finale ou pour le dépasser 3. Toutefois les aérodynes motopropulsés cèdent le passage aux planeurs
