@@ -1,0 +1,3 @@
+# Article 28
+
+10 L'acte passé en violation des dispositions du de l'article précédent est nul à l'égard de toutes les parties, et ne vaut même pas comme sous-seing privé et sa teneur emporte sa nullité absolue; dans les autres cas, il vaut comme sous seing privé s'il est signé des parties et seulement à l'égard de celles contre laquelle la nullité n'est pas in vocable ou n'est pas invoquée. L'acte passé en violation des dispositions du 2" de l'article précédent est nul à l'égard du notaire ; il vaut toutefois comme sous seing privé à l'égard des parties ou des autres parties, s'il est signé d'elles. L'acte passé en violation des autres dispositions de l'article précédent vaut comme sous seing privé s'il est signé de tou tes les parties.
