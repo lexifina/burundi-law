@@ -1,0 +1,5 @@
+# Article 58
+
+Igihe bakirangura amabanga yabo. intwaramiheto. abapolisi hamwe n'abacamanza ntibarekuriwe kwinjira mu migambwe. Ingingo ya 59 Imfashanyo z' imigambwe zi vuye hanze zirabujijwe kiretse igihe rimwe na rimwe hari ibwirizwa ribirekuye. Imfashanyo z'imigambwe kandi zirihanijwe mu gihe zishobora kubangamira ukwikukira n'ukwiyubahiriza kw'igihugu mu makungu. Ibwirizwa ni ryo ritomora i vyerekeye aho imfashanyo z'imigambwe zikomoka. Ingingo ya 60 Uburyo imigambwe ishingwa, ingene ikora n'ingene ihagarika ibikorwa vyayo, bitomorwa n'ibwirizwa. Ikigabane ca kane IVYEREKEYE INZEGO NSHINGWANTWARO 1. Urwego rw'Umukuru w'iglhugu Ingingo"ya 61 Umukuru w'igihugu yitorerwa n'abarundi bo nyene ubwabo. Ikiringo ciwe muri iryo banga kimara imyaka itanu. Ashobora gusubira gutorwa rimwe gusa. - Ntawushobora kurenza ibiringo bibiri ari Umukuru w'igihugu.
+
+Les membres des forces armées, des corps de police ainsi que les magistrats, en activi té, ne sont pas autorisés à adhérer à des partis politiques.

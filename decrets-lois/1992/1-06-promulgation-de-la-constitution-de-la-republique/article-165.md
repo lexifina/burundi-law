@@ -1,0 +1,5 @@
+# Article 165
+
+1nama Nkuru f' ubutunzi n' imibano igizwe n'abantubatorewe ubukerebutsi n'ubuhinga bwabo, basanzwe barangura amabanga yabo mu mirimo myinshi yo mu gihugu. Abari muri iyo nama bagenwa n'Umukuru w'igihugu. Ingingo ya 166 1bwirizwa ni ryo ryerekana ingene 1nama Nkuru y' ubutunzi n' imibano i tunganijwe n'ingene irangura amabanga yayo. Ikigabane c'icumi IVYEREKEYE INAMA NKURU ISHINZWE UMUTEKANO MU GIHUGU Ingingo ya 167 1nama Nkuru ishinzwe umutekano mu gihugu ni urwego mpanuzwajambo rufasha Umukuru w'igihugu n'Urweg0 Nshikiranganji mu gutegura imigambi yose yerekeye umutekano w'igihugu, mu gucungera ko iyo migambi ishirwa mu ngiro no mu gutora uburyo burashe bwokoreshwa mu kwivuna umwansi igihe igihugu gitewe canke habaye imidurumbanyo. 1yo Nama ishobora guhanuzwa kuri ico cose cerekeye umutekano. • Ingingo ya 168 Abagize 1nama Nkuru ishinzwe umutekano bagenwa n'Umukuru w'igihugu. Le Conseil économJ.que et social est composé de membres choisis pour leur compétence dans les différents secteurs socio-professionnels du pays.
+
+Les membres du Conseil économique et social sont nommés par le Président de la République.

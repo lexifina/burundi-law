@@ -1,0 +1,3 @@
+# Article 164
+
+Le Conse i l économiq ue et social est un organe consultatif ayant compétence sur tous les aspects du développement économique et social du pays. Il est obligatoirement consul té sur tout projet de plan de développement ainsi que sur tout projet d' intégration régionale ou sousrégionale. Le Co ns e i 1 éc onomiq ue et social peut de sa p~opre initiative, sous forme de recommandation, attirer l'attention de l'Assemblée Nationale ou du Gouvernement sur les réformes d'ordre économique et social qui lui paraissent conformes ou contraires à l'intérêt général. Il donne également son avis sur toutes les questions portées à son examen par le Président de la République, le Gouvernement, l'Assemblée Nationale ou par une autre institution publique. Ingingo ya 165

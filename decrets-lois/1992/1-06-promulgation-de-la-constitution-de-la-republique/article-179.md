@@ -1,0 +1,7 @@
+# Article 179
+
+L ' Etat v i Il e au développement harmonieux et équilibré de toutes les communes sur base de la solidarité nationale.
+
+Titre XIII DE LA REVISION DE LA CONSTITUTION Articie 180 L' ini tiati ve de la révision de la Constitution appar~ 1 w' igi hugu aban je guhanuza Urwego Nshikiranganji canke bisabwe n' abarenga ica kabiri c'abagize Inama Nshingamateka. Integuro y' ingingo ihindura Ibwirizwa Nshingiro iyo ari yo yose yemezwa n' i vya bitanu bine vy'abagize Inama Nshingamateka. Ingingo ya 181 Umukuru w'igihugu arashobora guc isha mw' i tora ry' abarundi bose integuro y'ingingo ihindura Ibwirizwa Nshingiro. Ingingo ya 182 Nta na rimwe integuro y' ingingo ihindura Ibwiri~wa Nshingiro izokwemerwa mu gihe yoza i tegekanya ko Uburundi buretse kuba Repubulika, canke ko bwegamiye idini iryo ari ryo ryose, ihungabanya ubumwe bw'abarundi, canke ishinga ko imbibe z' igihugu zihindurwa. Nta na rimwe integuro y' ingingo ihindura Ibwirizwa Nshingiro izokwemerwa mu gihe igi hugu catewe, canke ata mahoro akirangwamwo. Ikibane c'Icumi na kane IVYEREKEYE INGINGO MFATAKIBANZA N'IZISOZERA Ingingo ya 183 • Mu gihe zidateye kubiri n' iri Bwirizwa Nshingiro, ingingo z'amabwirizwa n'amategeko yari ahasanzwe ziguma zikutient concurremment au Président de la République après consultation du Gouvernement et à l'Assemblée Nationale statuant à la majorité absolue des membres qui la composent.
+
+Le projet ou la proposition d'amendement de la Constitution est adoptée à la majorité des quatre-cinquièmes des membres composant l'Assemblée Nationale.
