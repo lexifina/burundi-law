@@ -2,3 +2,4 @@
 UN Treaty Collection reference: XXVII-8.
 Depositary: Secretary-General of the United Nations.
 Signature: 1992-06-11.
+Ratification: 1997-04-15.
