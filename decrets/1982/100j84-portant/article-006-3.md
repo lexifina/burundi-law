@@ -1,0 +1,5 @@
+# Article 6 3
+
+A la constitution le eapital de la société a été fixé à trois cent cinquante mille francs, représenté par trois cent cinquante actions.
+
+Les assemblées générales extraordinaires du : Il octobre 1962 a augmenté le capital de un million deux cent mille francs et émis les titres sans désignation de valeur. 7 octobre 1965 a augmenté le capital de quatre cent cinquante mille francs. 10 octobre 1969 a augmenté le capital de un millions de francs. 3 juin 1972 a augmenté le capital de deux milions de francs. 7 juin 1975 a augmenté le capital de six millions de francs. Toutes ces augmen ta tions On t eu lieu par prélèvement sur les réserves et sans création de nouveaux titres. L'assemblée générale du vingt neuf octobre mille neuf cent quatre vingt un a décidé trois augmentations du capi tal : la première de quatre millions par prélèvement sur les réserves et sans création de dtres nouveaux. la deuxième de cinq millions par prélèvement sur la plus-value de réé valua tion et sans créa tion de titres nouveaux. - la troisième de cinq millions de francs par émission de cent vingt cinq actions nouvelles souscrites en espèces.

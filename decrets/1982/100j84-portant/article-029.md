@@ -1,0 +1,5 @@
+# Article 29
+
+Les parties entendent se conformer entièrement aux lois coordonnèes sur les sociétés commerciales. En conquéquence, les dispositions de ces lois auxquelles il ne serait pas licitement dérogé par le présent acte, réputées inscrites dans les statuts, les clauses contraires au x disposi tions impératives de ces lois sont censées non écri tes. En ce qui concerne la succursale du Burundi, la société se conformera aux lois en vigueurs dans le pays,
+
+Fait à Bujumbura, le 07 Novembre 1981. G. DEFFRISE Administrateur-délégué. A. S. nO 5.028. Reçu au greffe du Tribunal de Grande Instance du Burundi à Bujumbura, ce 19 décembre 1981 et inscrit au registre ad hoc sous le numéro cinq mille vingt huit. Le préposé au registre de commerce : (sé) BAZINGA Evariste Perçu: droit dépôt: 10000 F; 10 copies: 800 F; suivant quittance n° 45/0056 Ic du 22 décembre 1981 Pour copie certifiée conforme, A Bujumbura, le 22 décembre 1981. Le préposé au registre de commerce: (sé) BAZINGA Evariste. SOCIETE EXPRESS DE CONSTRUCTION AU BURUNDI « SOEXCOBU »
