@@ -1,0 +1,3 @@
+# Article 6
+
+Sur proposition du conseil d'aministration de la Régie des Services Aéronautiques, le Ministre ayant l'Aéronau tique dans ses attribu tions, sur avis conforme du conseil de formation, décide du programme des études, de l'ouverture et de la périodicité de chaque formation, en tenant compte des besoin.s en personnels de la Direction de l'Aéronau tique et éventuellement d'autres administrations publiques à la demande du Ministre intéressé. Le Ministre ayant l'Aéronautique dans ses attributions nomme parmis les personnels de la Régie des Services Aéronautiques un responsable chargé du cenhe. • CHAPITRE III. De l'Admission des étudiants.
