@@ -1,0 +1,5 @@
+# Article 150
+
+Les registres ou documents suivants, dont la consistance et l'usage sont fixes par ordonnance du Ministre charge des Mines, sont tenus et conserves a la Direction Generate des Mines et de la Geologie. A.- Pour les substances concessibles : Matrices minieres Registre des autorisations de prospection Registre des permis de recherches Registre des pennis d'exploitation Registre des concessions Registre des divers contrats, protocoles, conventions ou accords vises a l' article 25 ci-dessus Registre des autorisations d' exploitation des minieres 46 Retombes minieres, B.- Pour les produits de carrieres: Registre des declarations d' ouverture et de fenneture des carrieres Registre des autorisations d' exploiter les carrieres Registre des pennis d'exploitation de carriere Registre des conditions particulieres d' exploitation des carrieres. A l'exception du registre des divers contrats, protocoles, conventions ou accord vise ci-dessus en A., tous les registres et des documents precites peuvent etre communiques, sans deplacement, a toute personne qui en ferais la demande.
+
+TITRE VII DISPOSITIONS FISCALES

@@ -1,0 +1,3 @@
+# Article 146
+
+L'ensemble des activites extractives, leurs Iondements et leurs prolongements, qui concernent les substances minerales ou fossiles relevant de la presente loi et des textes qui en precedent constituent l'Industrie Minerale de la Republique du Burundi. L'ensemble des terrains couverts par les titres miniers (permis de recherches, permis d'exploitation et conces-sions) en constitue le domaine minier. L'ensemble des terrains ou sont exploitees des carrieres, y compris les tourbieres, en constitue Ie domaine carrier. COMPENDIUM OF ENVIRONMENTAL LAws OF AFRICAN COUNTRIES / VOLUME vm SECTORAL ENVIRONMENTAL LAws AND REGULATIONS

@@ -1,0 +1,3 @@
+# Article 172
+
+Sauf cas de force majeure ou derogation accordee sur justification par le Ministre charge des Mines: les travaux sur permis de recherches minieres doivent commencer dans les six mois de I'institution de ces permis et etre poursuivis avec diligence et sans inter-ruption superieure atrois mois. les travaux de preparation de I' exploitation et d'exploitation elle-meme doivent commencer dans les douze mois de l'institution d'un titre minier d' exploitation. Ces travaux doivent etre poursuivis avec diligence et sans interruption superieure adouze mois pour un perrnis dexploitation ou quinze mois pour une concession.

@@ -1,0 +1,5 @@
+# Article 184
+
+Les titulaires de titres miniers ou les amodiataires et leurs agents, les exploitants de carrieres, ainsi que les titulaires d'autorisation de recherches de carrieres vises aI'article 111 ci-dessus, sont tenus de mettre sans delai ala disposition des fonctionnaires de la Direction Generals des Mines et de la Geologie vises a I' article 182 du present Code tous moyens d' acces aux chantiers et de parcours des travaux accessibles. Ils doivent leur presenter les plans tant interieurs qu'exterieurs, les registres d' avancement des travaux, de controle des ouvriers, de production, de stockage, d'expedition, d'investissement, d'exploitation, d'analyse et de commercialisation des produits. Ils doivent leur fournir tous renseignements sur l' etat des recherches et de l'exploitation et les faire accompagner dans leurs visites par des agents competents, capables de leur fournir toutes informations utiles.
+
+Les exploitants de minieres doivent a ces memes fonctionnaires I' acces aleurs travaux, et leur en faciliter l'inspection et Ie controle.

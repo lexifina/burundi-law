@@ -1,0 +1,3 @@
+# Article 182
+
+Les fonctionnaires de la Direction Generale des Mines et de la Geologie, dument accredites acet effet, ont mission, sous l'autorite du Ministre charge des Mines, de veiller a I' application du present Code Minier et Petrolier et des decrets, ordonnances et reglements pris pour son application. Dans les memes conditions, ils sont charges de la sur-veillance administrative et technique des activites visees par ce meme Code et concourrent, dans les entreprises qu'il vise, au controle de l'application de la legislation et de la reglementation du travail. Ils sont tenus au secret professionnel.

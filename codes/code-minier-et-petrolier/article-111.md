@@ -1,0 +1,3 @@
+# Article 111
+
+Lorsque la mise en valeur des gites d'une substance appartenant ala classe des carrieres ne peut, en raison d'une insuffisance des ressources connues de cette substance ou pour toute autre cause, prendre ou 42 garder le developpement necessaire pour satisfaire les besoins des consommateurs, I'economie generale du pays ou celIe d'une region des decrets peuvent, apres enquete publique de deux mots, definir les zones dans lesquelles le Ministre charge des Mines peut accorder par ordon-nance: des autorisations de recherche a defaut du consentement du proprietaire du sol, des permis d'exploitation de carriere conferant aleurs titulaires Ie droit d' exploiter les gites de cette sub-stance a I' exclusion de toute autre personne, y compris Ie proprietaire du sol.

@@ -1,0 +1,3 @@
+# Article 186
+
+Tous les detenteurs de permis et d'autorisation de recherche ou d'exploitation sont tenus a presenter annuellement a la Direction Generale des Mines et de la Geologie la situation des reserves minieres certaines, possibles et probables evaluees suite aux travaux de recherches et d'exploitation effectues, conformement aux previsions de l' article 185 ci-dessus, .Article 187: Les documents ou renseignements recueillis en vertu des articles 185 et 186 ci-dessus ne peuvent, sauf autorisation de l'auteur des travaux, etre rendus publics ou communiques, ades tiers par l' administration qu'a l'issu d'un delai d'un an acompter de l'expiration du titre minier de la personne qui a fourni les renseignements.

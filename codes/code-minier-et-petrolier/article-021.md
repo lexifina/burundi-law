@@ -1,0 +1,3 @@
+# Article 21
+
+Pour des motifs d' ordre public et sous reserve des droits acquis, des decrets peuvent instituer : des zones interdites ala prospection, ala recherche etaI'exploitation de toutes ou de certaines substances, des zones reservees dans lesquelles Ie droit de re-cherche et d' exploiter toutes ou certaines substances est reserve a I'Etat ou a des organismes qu'il aura crees ou agrees acet effet, des zones protegees englobant certaines des exploitations minieres et leurs dependances, en ce qui concerne les substances concessibles visees al' article 22 ci-apres, zones al'Interieur desquelles la circula-tion pourra etre reglementee et surveillee.

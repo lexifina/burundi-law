@@ -1,0 +1,3 @@
+# Article 192
+
+Les permissionnaires, lestitulaires d' autorisations d' exploiter, les concessionnaires et amodiataires, les exploitants de mines, minieres et carrieres sont tenus d'appliquer les mesures qui peuvent leur etre ordonnees par les fonctionnaires de la Direc-tion Generale des Mines et de la Geologie dument accredites acet effet, pour mener les travaux en vue d'une recuperations maximale possible des reserves connues. Tout exploitant de mines d'hydrocarbures est tenu d'appliquer aleur exploitation les methodes confirmees les plus propres a I'exploitation maximale compatible avec les conditions economiques.

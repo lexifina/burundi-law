@@ -1,0 +1,3 @@
+# Article 56
+
+Outre les declarations et autorisations prealables prevues aI'article 25 ci-dessus, et s'agissant d'un permis H, sont soumis aapprobation prealable par decret tous protocoles, contrats, conventions ou accords relatifs notamment: a la conduite des operations de recherches et eventuellernent d' exploitation des hydrocarbures, au partage des charges, des resultats financiers et de I'actif en cas de dissolution, 37 BURUNDI au partage et ala disposition des produits extraits. Cette approbation est requise aussi bien pour les contrats intervenus entre les titulaires des titres miniers, que pour ceux passes entre tiers ou entre titulaires et tiers.

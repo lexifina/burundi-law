@@ -1,0 +1,3 @@
+# Article 84
+
+La concession miniere d'hydrocarbures est instituee et renouvelee par decret, dans les conditions prevues l' article 63 ci-dessus. Elle ne peut etre delivree que pour les substances sur lesquelles porte Ie perrnis H dont elle derive. Si necessaire, une ou des conventions complementaires relatives aux modalites d'exploitation et de transport des produits extraits, sont conclues entre le demandeur et Ie Ministre charge des Mines avant instituion de conces-sion. A peine de nullite, ces conventions doivent contenir une clause d'approbation prealable par Ie decret institutif de la concession, auquel elles seront annexees,
