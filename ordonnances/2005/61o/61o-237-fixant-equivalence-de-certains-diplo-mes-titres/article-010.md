@@ -1,0 +1,3 @@
+# Article 10
+
+Les diplômes de Graduat en Banque en douane; en Administration dcs A ffàires et Gestion des Projet:; Multiples; en Développement CommunautaÎre et Rural et en Gestion des Hôpitaux et Pharmacies dél vrés par l'Institut Supérieur Technique, Commercial" et Economique d'Uvira en RDC,jouÎssent de l'équivalence administrative avec le diplôme de Technicien Supérieur de niveau A 1 délivré au Burundi. Article Il Le diplôme « Advanced diploma in Co-operative Management» délivré par la Co-operative College de Moshi en Tanzanie,jouit de l'équivalence administrative avec le diplôme de licence délivré au Burundi.
