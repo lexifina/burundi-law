@@ -1,0 +1,3 @@
+# Article 33
+
+Le Conseil d'Administration fixe le plafond de l'encaisse au-delà duquel le comptable doit déposer l'excédent à un eompte spécial à vue ouvert à la Banque de la République du Burundi. Sauf les opérations de caisse désignées par le Conseil d'Administration toutes les recettes et dépenses d'AIR-BRUNDf s'effectueront par ce compte spécial, Aucun paiement ne peut être effectué par le comptable sans le visa préalable du Directeur ou de son Adjoint. ..fL; Tout chèque tiré sur le compte d'AIR BURUNDI doint porter, outre la signature du comptable. celle du Directeur ou du Directeur-Adjoint, ou d'un cadre de direction jouissant de la délégation de si· gnature prévue à l'article 11.

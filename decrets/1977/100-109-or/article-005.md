@@ -1,0 +1,3 @@
+# Article 5
+
+Le Gouvernement attribue à ArR-BURUNDI; - L'exclusivité de l'exploitation des transports aériens, réguliers ou non, à l'intérieur du territoire national ; L'exclusivité de l'exploitation des droits résul· tant, pour le Burundi, de conventions signées avec des Etats Etrangers, COncernant les droits de trafic commercial international régulier ou non régulier. Toutefois, au cas où l'exploitation visé à l'alinéa précédent ne pourrait pas être assurée, en tout ou en partie, par AIR-BURUNDI, celle-ci pourra B·O.B. nO 1/711, concéder, dans la mesure nécessaire, cette exploitation à cl 'autres sociétés ou organismes nationaux ou étrangers. Cette concession comportera une clause de dénonciation moyennant un préavis de trois mois.

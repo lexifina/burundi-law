@@ -1,0 +1,3 @@
+# Article 22
+
+Le Directeur a l'initiative de tous Jes actes releYant de la gestion journalière. Ceux-ci engagent valablement AIR·BUR.UNDI sauf lorsque la matière à laquelle il se rapportent a été réservée par le Conseil d'Administration par décision spéciale, soit en considération de la valeur en cause, soit en considération de la nature de .l'acte ou par tou t autre motif conforme à l'intérêt d'AIR-BURUNDI. Pour les actes qui sorten t de la simple gestion journalière, les p011voirs du Directeur sont établis par le procès-verbal de la délibération du Conseil d'administration rehltlve à l'acte concerné ayant délégué des pouvoirs. 4. LES COMMISSAIRES AUX COl\1PTES

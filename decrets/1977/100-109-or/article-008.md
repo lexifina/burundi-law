@@ -1,0 +1,3 @@
+# Article 8
+
+Le Conseil d'Ad ministration exerce les pouvoirs ct 'administration les plus étendus et notamment : il veille à la préparation du budget, qui n'est exécutoire qu'après son approbation ; - il approuve les comptes de l'exercice écoulé sur rapport des commissaires aux comptes ; - il délègue au Directeur des pouvoirs spéciaux i# pour la réalisation d'actes qui sortent de la gestion journalière : - il établit le réglement général d'exploitation fixant notamment les tarifs et les modalités des transports des passagers ; il établit le statut do personnel. • Lo règlement général d'eXploitation et ses modifications ultérieures ainsi quo le stututdu personnel ne sont exécutoires qu'après approbations par le Ministre de Tutelle.
