@@ -1,0 +1,3 @@
+# Article 3
+
+Le remboursement anticipé d'un ou de plusieurs titres de l'emprunt pourra être demandé à tOUt moment par le sous. cripteur, moyennant un préavis de trois mois, Art. 4, La Banq~ du Royaume du Burundi est autorisée à débiter automatiquement le compte du Gouvememj!nt à chaque échéance en faveur du compte 1129/2 du Fonds d'Egalisation géré par rO,GI.B.U" 'ouvert auprès de la Banque du Royaume du Burundi, du montant dû pour les intérêts. Ii en sera de même pour le titre d'emprunt présenté à l'é. chéance ou pour ~e ou les titres restan.t à échoir dont j'D,C.LB,U, demanderait le remboursement anticipé confor. mément aux dispositions de l'article 3 ci-dessus.
