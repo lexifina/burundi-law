@@ -1,0 +1,3 @@
+# Article 16 3
+
+Outre l'analyse critique des services rendus par l'employé, celui -ci est apprécié de façcon détaillée et chiffrée SUr base des critères ci-après: 1. Consolidation de l'unité nationale 2. Justice sociale, disponibilité, accueil et équité 3. Sens du respect de la chose publique 4. Initiative 5. Sens de responsabilité 6. Participation aux travaux de développement communautaire est à la notation, s'il a pres té ses sesvi~s durant aU moins six mois (6) au COUrs de l'année précédant celle pour laquelle la notation est valable. S'il a pres té ses services pendant moins de six mois, il est procédé à la reconduction de sa note précédente. Au cas où l'employé en stage est coté pOUr la première fois il lui est d'office attribué la note «BON». ;. 6. Les manoeuvres.

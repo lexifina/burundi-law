@@ -1,0 +1,3 @@
+# Article 21 3
+
+Lorsqu'à l'expiration d'un congé médical de trois mois, l'employé ne peut pas reprendre son service, il bénéficie d'un traitement égal à la moitié de son traitement d'activité jusqu'à la décision définitive d'une commision médicale. Tou tefois, le bénéfice de ce traitement est limité à une période maximum de 3 mois. Si l'inaptitude temporaÎle résulte d'une maladie professionnelle ou d'un accident de travail, l'employé bénéficie dans les mêmes conditions de durée d'un traitement correspondant' à 2/3 de son traitement d'activité. L'employé en suspension d'activité de service pour inaptitude physique temporaire conti. .~- nue-~ee"oir l'i~1!illi~:1W~n...:t::etl~ài1o~. -~ -'-ëations familiales.
