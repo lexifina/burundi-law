@@ -1,0 +1,3 @@
+# Article 7
+
+Le cycle normal comprend : - une période de formaUon durant deux années -1.tne année de stage. ~" , ' ~" - ' ;r~.~ ...~~;:\ .: , . """ . 97 Art. 8, " .": Chaque étudiant qui aura satisfait aux épreuves de fin de '\. :, seconde année, effectue pendant l'année académique sui, '!':-1er vante, du sptembre au 31 juillet, des stages dans des administrations publiques et entreprises industrielles ou commerciales. Chaque étudiant stagiaire eSt affecté auprès de la plus haute autorité administrative du service publics ou de l'entreprise dans laquelle il effectue son stage : directeur général du ministère, directeur général ou directeur d'entreprise industrielle ou oommerciale, TITRE IV.
