@@ -1,0 +1,5 @@
+# Article 5
+
+La pré.ente ordonnance entrera en vigueur le 18 Juillet 1911.
+
+Fait à Bujuabura, le 12 Juillet 1911 Ingingo ya J. .aatariki yo kwakira ipampa ft t "91 yayo ari ku karendari ifatanye n~i· tegeko. Ingingo ya 4. ibantu bellejwe na ba Gouverneura ba 1, vince kugirango bagurire ipampa mat' Janza vyashinzwe t IIU lcu.kuriki za inC: \0 ya 36 y' iiegako, barar.kuwe kut "1" .. ikiguzi ct ipallpa bakuriki je ikici 0 ca.hinzwe ku kilo kandi kikaba t: angajwe muri vyo bibanea. .abordero asokwandikwako ibiro UJlurt yi w... yas&DYe t baku.riki je , . co.mu e aba,ltlvo n'itarilti ,-ashoreyeko ipe>ili ryiwe. learo!'" i. () ka bordero bazogaha U.u8e ~ira Leta, akandi kazoguma muri "Kom:n·nyi ya "RUZIZI". Ingiago ya 5. ri tegeko rizotan.gu.ra kuku.rikizwa )( va k:wtigenekerezorya 18 Muk.akaro 19 7. B1gi:r Wé i Bujuabura. igenekerezo rya lé::;<;. akaro 1977. XAYIBIGI Phil ber't JUJOR• .lanexe CALDDRIJ:R CJXP.lGNI COroNllIERf 916-1917 USSDBL_D1' coroJf-aRAINI-aECO '1'1: 1911. Secteur Centre-Sud C.R.. Kah41si Secteu.r )lor'! > !Il!! 8 Juillet 1911 d Juillet 1971
