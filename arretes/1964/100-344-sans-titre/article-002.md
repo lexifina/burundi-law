@@ -1,0 +1,5 @@
+# Article 2
+
+Le présent arrêté entre en vigueur au jour de sa s:(Jriature. Bujumbura. le 6 janvier 1964. !
+
+Le Ministre de la Justice, -4Aravye ibwirizwa ryo ku wa 29 Ruheshi 1962 mu Ngoma y'i Burundiibikorwa nshingamateka n'iblkorwa nshingamate~ geko vyaglzwe n'abatulera. Aravye ~e cane ingingo 6'1 y'ibwirizwa ryoku wa 28 Nyakanga 1962 ivugaamabwirizw~ yerekeye ibironderwa mu kuzlmu vyose, Ategetse: Ingingo ya 1" Igihe glfiswe n'aban n'uruhusba rwo kwimba intabonwa n'impusha zlri ukwazo zoo kuzlrondera zatanzwe bakurikije amabwirizwa ya kera kugira ngo bashobore gusaba Umushi* kirangoma w'uhutunzi uruhusha. rwo kugira ind!lgano yo kwimba iDtabonwa batoye cungururijweku wa 1".1: Ruhuhuma 196".1:. Ingingo ya 2. Iri tegeko ritangurs gukurikizwa umunsi bal'Ùlbtriyeko ~ mukono, Rigiriwe 1 Bujumbura ku 15 Nzero .196".1: Umushikirangoma w'Ubutungane. , Vu 'la loi du 29 juin 1962 portant application au Royaume du 'Burundi des actes législatifs et rég~ementaires édictés par l'autorité tutélaire ; _ Vu. spécialement en son artit~e 6'1 la 101 du 28 sePtembre 1962 portant législation générale des mines et carrières; Arrête:
