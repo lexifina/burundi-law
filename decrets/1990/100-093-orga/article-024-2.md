@@ -1,0 +1,3 @@
+# Article 24 2
+
+Les avantages consentis aux entreprises COnventionnées en vertu des dispositions du présent titre ont pour but de définir les charges financières publiques auxquelles elles seront soumises et de stabiliser .\:~l\ lesdi tes charges, le tou t pend an t un délai défini 'Il!' conventionnellement pour chacune d'elles. Pendant ledit délai, ces charges financières publiques ne peuvent être globalement accrues que par une mesure législative visant expressément les entreprises conventionnées. En cas de pluralité de délais, seul le plus long est pris en compte pour l'application du présent alinéa.

@@ -1,0 +1,5 @@
+# Article 12
+
+Le Département de l'Hydraulique et de l'Assainissement en Milieu Rural est chargé de coordonner toutes les activités d'approvisionnement en eau potable en milieu rural et de participer aux activités d'assainissement et d'éducation pour la santé. A cet effet il s'occupe notamment des actions suivantes: 1~ l'inventaire et l'exploitation de toutes les données nécessaires à l'approvisionnement en eau potable en milieu rural,
+
+2°) la préparation d'un plan de développement du secteur « alimentation en eau potable et assainissement ». 3~ la planification, la coordination, la réalisation et la surveillance de l'exécution des travaux neufs, de l'entretien et de la réfection des infrastructures hydrauliques et d'assainissement, 4~ l'assistance aux communes dans la prise en charge technique des installations, . 5~ la formation du personnel nécessaire à l'installation du matériel d'adduction d'eau et d'aménagement de puits et de sources, et 6~ l'étude de nOUVeaux projets pour constituer une banque de données.
