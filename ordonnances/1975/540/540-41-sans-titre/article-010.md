@@ -1,0 +1,9 @@
+# Article 10
+
+Dépréciation des valeurs d'actif.
+
+La dépréciation des immobilisations est calculée sous forme d'un amortissement. L'amortissement permet la constatation compta~ ble de la perte subie sur la valeur d'actif des immobilisations qui se déprécient avec le temps et est destiné à reconstituer les valeurs immobilisées. Il est calculé selon les usages de la profession de façon à amortir chaque catégorie d'immobilisations sur la durée normale d'utilisation prévue, mais les annuités d'amortissement peuvent être adaptées aux conditions particulières d'exploitation. Lorsque l'évaluation comptable des immobilisations constate des moins-values exceptionnelles ou portant sur des éléments non amortissables ces moins values se traduisent par la création de provisions. 2 Lorsque la valeur économique réelle au jour de l'inventaire des marchandises, matières ou produits en stock, est inférieure au coût moyen pondéré d'achat ou de production ( à la valeur déterminée par une autre méthode d'évaluation effectivement employée), les entreprises doivent constituer une provision constatant cette dépréciation. 3 Une provision pour dépréciation des créances peut être constituée. Art. Il. Réévaluation de l'actif. ~-La réévaluation a pour but de corriger la valeur d'entrée dans le patrimoine de l'entreprise pour l'ajuster aux conditions économiques et monétaires du moment. 2 La réévaluation est dite « légale » lorsqu'elle est autorisée et calculée conformément à des règles édictées par l'Etat. Elle est dite « libre» lorsqu'elle ellt effectuée sous la responsabilité de l'entreprise. • ) L'augmentation de valeur prise par certaine éléments de l'actif du fait de leur réévaluation est portée dans le tableau de passage aux soldes des comptes patrimoniaux.
+
+La contrepartie au passif de cette augmentation de l'actif constitue une correction des capitaux propres.
+
+Chapitre 3 Règles de comptabilisation.

@@ -1,0 +1,3 @@
+# Article 6
+
+Les régIes d'évaluation contenues dans les articles 7 à Il ci-dessous figurent à titre indicatif et n'excluent pas la possibilité pour les entreprises d'employer d'autres méthodes, à condition qu'elles possèdent les caractères de sincérité, d'exactitude et de permanence. Le conseil national de la comptabilité sera compétent pour estimer si les méthodes d'évaluation employées par une entreprise possèdent ces trois caractéres. 2 - Dans le cas où une entreprise n'utiliserait pas les méthodes d'évaluation recommandées dans l'alinéa précédent. elle devra être en mesure de fournir. sur une demande de l'Administration. toutes précisions sur la méthode employée.

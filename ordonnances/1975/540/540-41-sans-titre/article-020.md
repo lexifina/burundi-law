@@ -1,0 +1,3 @@
+# Article 20
+
+Le tableau de passage aux soldes des comptes patrimoniaux. 1- Le tableau de passage aux soldes des comptes patrimoniaux a pour but de retracer schématiquement l'évolution des comptes patrimoniaux à partir d'une situation initiale pour aboutir à une situation finale, en décrivant les mouvements intervenus au cours de la période concernée. 2- Les mouvements patrimoniaux distinguent deux catégories d'opérations: les opérations portant sur les immobilisations corporelles et les stocks (flux physiques), et les opérations financières (flux financiers). Leur description comptable permet de retracer les investissements, l'évolution de la trésorerie de l'entreprise et ses moyens de financement.
