@@ -1,0 +1,3 @@
+# Article 49
+
+-Les Commissaires aux Comptes ont mandat de vérifier les livres, la caisse, le porte-feuille et les valeurs de la Régie, de contrôler la régularité et la sincérité des inventaires et des bilans, ainsi que l'exactitude des informations données sur les comptes de la Régie dans le rapport de la Direction. Ils peuvent prendre connaissance sans déplacement des livres, de tout docwnent comptable et de toute pièce justificative. Ils peuvent agir ensemble ou séparément. Ils établissent pour. chaque exercice un rapport dans lequel ils rendent compte de l'exécution de leur mandat, signalent les irrégularités ou inexactitudes qu'ils auront relevées et proposent des solutions appropriées.
