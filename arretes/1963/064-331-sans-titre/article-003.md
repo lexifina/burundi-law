@@ -1,0 +1,5 @@
+# Article 3
+
+i i Urutondekane rurikumwe n'itegeko n° 69/418 ryo kuwa 24 Le tableau annexé à l'ordonnance nO 69/418 du 24 août. ! :] Myandagaro 1959 rwerekeye ibiro vy'amaposta an mu Buru1959 est modifié comme suit en ce qui concerne les bureaux 1 1 ndi rwahindutse gurtya : de poste du Burundi : ~ 1 ~r::.~!~r::_j_s~~~:!,.:rc~Pti~~~ Bureaux a:::_i_Ùa_ir_es_I__ P_e_t'C_~_p_tl_'o_1I8_--,_S_o_us_-_P_e_rc_e_p_t_io_1I8_...:..r_B_u_t'_e_a_ux_B_ux_il_ia_.i_t'e_s_ Il BURURI-RUTANA KITEGA 1 KITEGA BURURI-RUTANA Il RUYIGI ~ RUYIGI Kayanza-Kirundo NGOZI ~~~·I 1 K~;-~:~~~:mdO ~~~~~_-~-~_-_--.-.-_-_ NGOZI i Muhinga ---"-"--1 : 1. BUJUMBURA 1 1 USA-AEROGARE 1 Bubanza-Muramvya ~ -USUM;URA 1 U~-::-AiROGARE Bubanza-Muramvy" . i ~MBULAN 1 NGAGMA-USA 2 il ! AMBULANT 1 :NGAGARA-USA 2 . AMBULANT 2 1 ! ~ i AMBULANT 2 1 Ingingo ya 4. Iiri tegeko rizotangura kukwirUdzwa kuva ku wa 1 Kigarama 1963. Bujumbura, ku wa 20 Munyonyo 1963, Umushikirangoma araba ivyo kutumiranira amakuru. Art, "!. L~ présent arrêté en~rera en Vigueur le 1"' décembre 1963. Usumbura, le 20 novembre 1963.
+
+Le Ministre des Communications KATIKA TI Félix.
