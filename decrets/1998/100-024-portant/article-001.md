@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Magistrats à titre définitif au grade 10 (MS) des Magistrats dont les noms suivent: matricule 214.679 au 09/11/1995 matricule 215.448 au 11/06/1995 matricule 215.267 au 13104/1995 matricule 215.266 au 13/04/1995 matricule 215.842 au 06/05/1996 matricule 216.084 au 30/11/1996 matricule 214.353 au 12/08/1993 matricule 216.080 au 08/12/1996 matricule 215.183 au 08/01/1995 matricule 215.259 au 13/04/1995 matricule 214.986 au 06/11/1994 matricule 214.984 au 12109/1994 matricule 215.260 au 22/04/1995 matricule 216.317 au 27106/1997 matricule 215.424 au 14/06/1995 matricule 214.680 au 18/03/1994 matricule 215.220 au 17/03/1995 matricule 214.732 au 27/04/1994 Toutes dispositions antérieures contraires au présent décret sont abrogées.
