@@ -1,0 +1,3 @@
+# Article 14
+
+1. Les opérations f~cières et ~omptables, d; l'Institut sont effectuees par le Directeur General et l'Agent Comptable, sous le contrôle du Conseil d'Administration. 2. Le Directeur Général a la qualité de ges~on~aire des crédits pour l'engagements et la liqUIdation des dépenses autorisées par le budget de l'Institut. 8.0.8, no 7 à 9(82 3. L'Agent comptable exerce ses attributions sous l'autorité et le contrôle du Directeur Général. Il est responsable de la sincérité des écritures. 4. Sa gestion est garantie par un cautionnement dont le montant est fixé par ordonnance conjointe du Ministre de Tutdle et du Ministre des Finances.

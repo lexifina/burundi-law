@@ -1,0 +1,3 @@
+# Article 10
+
+1. Le Conseil se réunit une fois par trimestre en session ordinaire et, en session extraordinaire, sur demande écrite présentée par sept de ses membres ou sur convocation du Président. 2. Il. se, r~unit o~1igat~irement dans la période ~w pre~de la fln de 1 exercice comptable pour 1adoptIon du budget de l'Institut et en début ~'exercice,. en tous cas avant le 31 mars, pour 1 approbatIOn des comptes de l'exercice écoulé. 3, Les décisions du Conseil doivent être prises à la majorité des voix, en présence de neuf mem~ bres dont au moins un de chaque groupe. En ~s de partage, la voix du Président est préponderante. 152 8.0.8. no 7 à 9/82
