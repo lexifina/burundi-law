@@ -1,0 +1,3 @@
+# Article 82
+
+En cas de manquement à la discipline de nature à justifier une sanction disciplinaire, un compte rendu est établi dans les plus brefs délais par le chef de poste. A la suite de ce compte-rendu, un rapport est établi par le préposé à la garde, et adressé à la direction de l'établissement. Ce rapport comporte tout élément d'information utile sur les circonstances des faits reprochés au détenu sans aucune valeur de jugement. Le chef d'établissement apprécie, au vu du rapport et après s'être fait communiquer, le cas échéant, tout élément d'information complémentaire, l'opportunité de poursuivre la procédure.

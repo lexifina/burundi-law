@@ -1,0 +1,3 @@
+# Article 90
+
+La commission de discipline peut accorder le bénéfice du sursis pour tout ou partie de l'exécution de la sanction disciplinaire. Elle fixe un délai de suspension sans que celui-ci puisse excéder 6 mois. Si au cours du délai de suspension de la sanction, le détenu commet une nouvelle faute donnant lieu à une sanction, le sursis est, sauf sur décision contraire de la commission, révoqué de plein droit. La première sanction est alors exécutée cumulativement avec celle afférente à la seconde faute. RO.R n Q 10/2004 Si au cours du délai de suspension de la sanction, le détenu n'a commis aucune autre faute disciplinaire donnant lieu à une sanction, la sanction assortie de sursis est réputée subie. Il en est fait mention sur le registre des punitions.
