@@ -1,0 +1,3 @@
+# Article 33
+
+Le Conseil d'Administration fixe le plafond de l'enoai.se ~-dell duquel le Comptable doit déposer l'excédent à un oompte spécial 1 vue ou~ert &la Banque de la République du Burundi. Sauf le. opérations de oai••e 'é.ignée. par le Conseil d'Administration toutes les recette. et dépenses de l'Offioe .'effeotueront par oe compte spécial. Aucun paiement ne peut 3tre effectué par le Co.ptable sans le visa 'l'éalable du Directeur ou de son Adjoint. ~out ohèque tiré 8ur le compte de l'Offioe doit porter. outre la signature du Ccmptable. celle du Directeur ou du Direoteur-Adjoint, ou d'un oadre de direction jouissant de la délégation de signature prévue à l'article 17.

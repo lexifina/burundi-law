@@ -1,0 +1,7 @@
+# Article 23
+
+Baoluaent. d. ao..i ••aire. ~ Le. "oluaea~. d.. oc••i ••air.. ooa.i.teni .n uae .0... fixe établie aU d'but et pour la duré. du .andat par l·A••••blé. Général•• Il. peuvent l'ira .oditié. avec l'aocord , •• parti••• BA dehors d. o.a é.oluaenia les oomaissair •••e p.uv.at reo••eir au~ avaata,. d. la .ooié'é, .ous quelque fora. que
+
+o. aoit. La sooi6t6 ne peut ooa•••tir cl•• prit. eu avano.m ni donner ou eo~&tituer 'e. ,Brant!•• l l.ur pr.tit~Ar,. 24. ai••ioA d.. oo••i ••air•• Le. oo..ieeair•• ont, l tout .o.ent, oonjoint•••nt ou sépare.eat, UA boit ll1iait6 tu ",".illanoe et 4. ooatr8l. &ur toutellil les op6ration8 de la ,!!IIoo14't'. • ~:!!II---------------------------------""--'---"'------Il. peuvent pr.ndr. oo..als."o., sans dépla...eni, 4.. livre., 4. la cerr••pondanoe, d •• prooè...erbaux et généralea_.t de toutes les éoriture. de la eooiété. L•• oo..l.saire. doiv.nt Bouaeiire à l'A••emblée Général. 1. ré.ultat de leur a1s.10n aveo les propositions qu'ila oroient oonvenabl•• et lui fair. coana!tre 1••ode d'aprèa lequ.l l1s oni oontr8le 1•• inventaire•• Ar~. 25. Ind••nités L'AB•••blé. Générale peut acoorder aux aùiJlistrateurs UIle ind.lUité tixe, iaPQtable sur les frai. généraux. Le COn80il d'Adainistration esi égal••
+
+• ent autori.' à allouer aux &daini.irateurs et OG••1ssair. t ohargé. 4. fonctiona ou d••ission. spéoiales, de. traiteaents ou iAdemnités A prélever sur les trais s'néraux. Titr. IV 1 - A••••blée Général.

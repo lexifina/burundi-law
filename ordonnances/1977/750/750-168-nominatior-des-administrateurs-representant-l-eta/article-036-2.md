@@ -1,0 +1,7 @@
+# Article 36 2
+
+Eoritur•• social•• Le dernier m.ror.di d. févri.r de chaque ann'e, il .st dressé par le. soins du conseil d'administration un inventaire oontenant l'indication d•• valeurs aobilièr.s et immobilières et de toutes le. dettee activ•••t pa.sives de la société, avec une ann.xe oontenant en résumé, toua ses engagement•• A la ml.e époque, les écritur•••ooiale. sont arr3té•••t le oonseil d'admini.tration forlSe 1" bilan et le oompt. de profits et pert•• dans lesquels les ..ortis.e••nts néo••saire8 sont fait •• L'Administration rem.t les pièces, avec un rapport sur l.s opérations de la société, un moie au moins avant l'a.s.mblée générale ordinaire aux oommiseairee qui doivent faire un rapport contenant l.urs propositions.
+
+Le bilan et 1. oompte dee profite et perte., de m3me que lee rapports
+
+d.e co••i8eaires doivent Itre adressés aux actionnaires en non, en ml•• tempa que la convocation. Art .. 37. Vote du bilan L'a8eemblée générale annuelle statue 8ur l'adoption du bilan et du compt. de profit .t p.rtes. Après l'adoption du bilan l'as.emblé. générale se prononce par un vote .pécial eur 1. décharg. à donner aux administrateurs .t oo..issair••• Le bilan .t le oo.pte dee profits et pert•• , précédé. de la mention de la date 'e la publication d•• act•• constitutif. d. la .ociété sont, dans les trente joara d. leur approbation publiés auz frai. de la sooiété et par les .oi.s deB admini.trat.urs.

@@ -1,0 +1,5 @@
+# Article 38
+
+Di.tribution L'.xo6'aat ta.ora~le du bilan, déduetio. faite des frais généraux, chaPees 1001a1••,(t18881••) .i ..ortl••••eat. con.tiiu. le bénéfic. Aet. --_.._--~•.._----
+
+Sur oe bén'fioe, il est pr'levé. I/ Cinq pour oent pour la r'serve légale 1 oe prélèvement oesse d'atre obligatoire lorsque la réserve atteint le dixième du oapital. 2/ Nonobstant oe qui préoède le montant des dividendes etfeotiveaent distribués aux aotionnaires ne pourra en auoun oas exoéder 6 ~ du reliquat pendant les 5 premières années d'activités de l'h8tel. Le solde sera obligatoire.ent atteoté à des Ponds de Prévisions de Réserve Extraordinaire. Le. transf.rt. se feront suivant la législation en la matière. Toutetois, le oonseil d'administration peut proposer à l'assomblée générale d'affeoter tout ou partie du bénéfice net, après le prélève.ent prévu pour la réserve légale, soit à das reports à nouveau, soit à des tonde de prévision ou de réserve extra.rdinaire et cette proposition, é.anant du oonseil, ne peut atre amendé. ou rejettée que par un vote de l'assemblée gén'rale, r'unissant le8 trois quarts des voix pour lesquelle. il est pris part au vote.

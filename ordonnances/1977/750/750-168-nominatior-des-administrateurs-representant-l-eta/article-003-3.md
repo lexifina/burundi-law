@@ -1,0 +1,3 @@
+# Article 3 3
+
+Le Milliatre'de l'Education National••st 'cale••nt ooapétell' pour fixer le8 oonditions ganérales et particulièrea auxquelles aOllt souais l'octroi, le maintien et le ret~ait des bcurses d'études et de ata&8a. Ar't. 4 .. L6 Kini8t:t~ d6 ltEducation Waticnale fixe annuelle.ent, après av!.s du Coneeil de. MiniBtr~8, le taux de la bourae d'études et de ataces, déteraine les études ou 8~agea donnant droit à l'obtention de cette bou~se et indique lea paya où les études ou stages doivant être entrepria ou continués. Il fixe aussi les autres avantages dont la bourse d'études peut atre a••ortie et notamment les tr~iB de transport, le aoins de santé et les allocations familiales éventuelles.

@@ -1,0 +1,5 @@
+# Article 16
+
+Déliberatio.s Le Conseil ne peut déliD6rer valableaeni que 8i la ~ajoriié de ses membres en ~onotion est présente ou représentée. Si oette condition n'est pas reaplie, une nouvelle r'union sera oonvoquée dans un délai de quinze jours laquelle délibérera valablement quel que soit le no.bre des aeabres présents ou représenté•• Cbaque administrateur empaohé peut, aa•• par Riaple lettre, télégramme ou télex, déléguer un autre membre du Conseil pour le représenter et vote~ en ses lieu et plaoe. Aucun administrateur ne peut représenter plus d'un membre du Conseil.
+
+Les résolutions seront prises à la simple majorité des voix des membre. présents ou représentés. En oas de parité de voi~, oelle du président est prépondérante. Si l'un des membres présents ou représentés ne peut prendre part à la délibération parce qu'avant un intérat opposé à oelui de la sooiété dans l'opération soumise à l'approbation du Conse11, la résolution sera valablement prise l la majorité des autres membres présent. ou représentés.
