@@ -1,0 +1,5 @@
+# Article 8
+
+-Appels de fonds: Pour la libération des parts sociales qui viendraient à être créées à la suite d'une augmentation de capital. le Conseil d'Administration fait des appels de fonds sur les parts sociales non entièrement libérées au moment de leur souscription. par un avis envoyé par lettre recommandée au souscripteur, au moins quinze jours avant la date fixée pour les versements. Tout versement en retard produira. de plein droit. intérêt au taux de six pour cent l'an au profit de la société, à compter du jour de l'exigibilité jusqu'au jour du paiement.
+
+Les droits attachés aux parts sociales resteront en suspens jusqu'au jour du paiement du principal et des intérêts. lIB. NU 9/0). 288 --Aprés un second avis recommandé, resté sans résultat pendant un mois, le Conseil d'Administration pourra prononcer la déchéance du souscripteur défaillant et, aux risques et périls de celui-cUa;re vendre en bourse ou hors bourse, les parts sociales en retard de versement, sans préjudice des moyens ordinaires de droit. notamment pour la tquidation du restant dû ainsi que de tous dommages et intérêts éventuels.
