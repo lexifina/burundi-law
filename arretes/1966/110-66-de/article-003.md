@@ -1,0 +1,3 @@
+# Article 3
+
+Le raccord latéral des soupapes sera pourvu d'un filet tel qu'une erreur dans le raccordement, tant au remplis_ sage' qu'à l'utilisation. soit pratiquement impossible. Pour les gaz combustibles. le pas du filet doit être gau_ che ; pour les autres le pas du filet doit être droit. En outre, pour l'hydrogène, ce raccord sera mâle et pour J'oxygène il sera femt>ne. Pour 1 les raccords peuvent être à étrier. L~" raccords à étrier peuvent toutefois être employés pour touS les gaz mais uniquement dans les ateliers de remplissage. et pour autant que la possibilité d'une confu_ sion soit totalement exclue. IV. RECIPIENTS A ACETYLENE DISSOUS·

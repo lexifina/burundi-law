@@ -1,0 +1,5 @@
+# Article 4
+
+Les récipients à acétyJ.'ne dissous seront remplis, sans vide ni cavité. d'une substance poreuse, Glpable d'arrêter toute propClgaVon de déflagration.
+
+Le mélange de la matière poreuse et du solvant ne peut avoir aucune action sur le métal des récipients ou sur l'acétylène, même Si l'ensemble était p<lr!é à une temperature de 50" centigrades. Le devra imbiber complètement la masse poreuse et ne pourra s'en séparer, méme sous des chocs répétés, La quantité de solvant introduite dans le récipient sera telle tenant compte de la porosité de la masse et du volume occupé par le dissolvant après dissolution de- 1','''aux conciiiions limites de chargement autorisé, un volume laissé libre il l'intérieur cie la matière poreuse. suffisant pour que la pression ne dépasse pas 40 kilogrammes pm centimètre carré, même si la température atteint 50", Dans le cas d'emploi d'acétone, le volume laissé libre sera au moins de 15p,c. de la capacité en eau du récipient. ~ 199 ~ V. PROTECTIO!j DES SOUPAPES.
