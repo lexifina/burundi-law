@@ -1,0 +1,15 @@
+# Article 23
+
+Le Ministre des Finances est chargé de l'exécution du présent Décret qui entre en vigueur à partir du 1er Janvier 1995.
+
+Fait à Bujumbura, le 30 Décembre 1994 Sylvestre NTlBANTUNGANYA. Par le Président de la République Le premier Ministre Anatole KANYENKIKO.
+
+Le Ministre des Finances Salvator TOY!. DEPENSES DE FONCTIONNEMENT DU MOIS DE JANVIER 1995. Services généraux: 01. Présidence de la République : 130.238.586 02. Assemblée Nationale : 40.560.250 B.0.8. nO 3/95 03. Premier Ministère 04. Ministère de la Planification du Développement et de la Reconstruction 05. Ministère des relations Extérieures et de la coopération 06. Ministère de la Défense Nationale 07. Ministère de l'Intérieur et de la Sécurité Publique 08. Ministère des Finances 09. Ministère de la Justice 10. Ministère de la Communication Il. Ministère de la Fonction Publique 12. Ministère des Réformes Institutionnelles et des Relations avec l'Assemblée Nationale 13. Secrétariat d'Etat auprès du Ministère des Relations Extérieures et de la Coopération chargé de la Coopération 14. Secrétariat d'Etat auprès du Ministère de l'Intérieur et de la Sécurité Publique chargé de la Sécurité Publique TOTAL DES SERVICES GENERAUX Services sociaux : 20. Ministère de l'Enseignement Secondaire, Supérieur et de la Recherche Scientifique 21. Ministère de l'Enseignement de Base et de l'Alphabétisation des adultes 22. Ministère des Droits de la personne humaine, de l'Action sociale et de la promotion de la Femme 23. Ministère de la Santé Publique 24. Ministère du Travail, de l'Artisanat et de la Formation Professionnelle 25. Ministère à la Réinsertion et Réinstallation des Rapatriés et des Réfugiés 26. Ministère de la Jeunesse, des Sports et de la Culture TOTAL DES SERVICES SOCIAUX Services Economiques: 40. Ministère de l'Agriculture et de l'Elevage 41. Ministère du Développement Communal 42. Ministère du Commerce, de l'Industrie et du Tourisme. 43. Ministère de l'Energie et des Mines 44. Ministère des Transports, Postes et Télécommunications 45. Ministère des Travaux Publics et de l'Equipement 46. Ministère de l'Aménagement du Territoire et de l'Environnement Total des services économiques Total général du budget de fonctionnement Plus Amortissement de la Dette Publique TOTAL GENERAL 27.452.779 14.814.033 196.456.171 743.523.468 53.984.336 411.560.094 109.358.491 54.621.584 36.520.516 1.248.061 393.430 1.264.728 : 1.821.996.527 516.484.989 373.780.730 13.218.320 210.974.542 4.357.408 3.956.395 30.903.800 : 1.153.676.184 59.376.124 15.751.456 13.355.606 14.204.196 55.834.999 48.383.283 19.058.894 225.964.558 3.201.637.269 701.479.594 : 3.903.116.863 1 B.GB. n° 3/95 Ordonnance n Q 520/003 du 04 Janvier 1995 portant Commissionnement au Grade Supérieur des candidats Officiers des Forces Armées Le Ministre de la Défense Nationale;
+
+Vu la Constitution de la République du Burundi;
+
+Vu le Décret-Loi n° 1/95 du 29 septembre 1967 sur les Forces Armées:
+
+Vu le Décret-Loi n° 1/017 du 5 mars 1993 portant statut des officiers des Forces Armées du Burundi;
+
+Vu les dossiers des intéressés; ORDO~NE:
