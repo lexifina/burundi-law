@@ -1,0 +1,3 @@
+# Article 7
+
+1° Une prime mensuelle d'encouragement peut être octroyée aux caporaux et soldats spécialistes' repris ci-dessous Cordonniers Mécaniciens Tailleurs Menuisiers Peintres Magasiniers Plombiers R.P. Soudeurs Policiers militaires Maçons , Qairons Chauffeurs Cuisiniers B~D.êardiers 2" Une prime mensuelle peut, être accordée à tous les militaires commando quel que soit leur grade pour autant que les intéressés aient obtenu leur brevet commando et ou'ils soient en service à la compagnie commando. 3" Les primes prévues au 1" et 1: ci-de:ssus sont fixées me'llsuellement par les commandants d'unité et sont fonction, dans les limites prévues au tableau en aunè'xe, du :rendement des militaires,
