@@ -1,0 +1,3 @@
+# Article 15
+
+L'exercice financier commence le premier janvier . et se termine le trente-et-un décembre de chaque année. Si le résultat de l'exercice est bénéficiaire, il est reporté à l'exercice suivant dans la mesure où il n'excède pas les besoins nOrmaux de l'Agence. L'excédent éventUel est pris en recette au budget des voil's et moyens de l'Etat. Si le résultat de l'exercice est déficitaire, il est reporté à l'exercice suivant et le Ministre délègue les crédits budgétaires nécessaires à l'apurement des comptes. Il donne toutes les instructions utiles pour la restauration de l'équilibre financier de l'Agence.
