@@ -1,0 +1,3 @@
+# Article 87
+
+Il doit y être annexé : 10 un rapport détaillé sur les résultats des travaux de recherches à la date de la demande ; 20 les résultats des essais de production des puits et sondages à mettre en production ; 30 le programme de développement du champ; 40 le programme de production des puits et sondages à mettre en production pour la durée de l'exploitation provisoire; 50 les cartes et plans, à la plus grande échelle possible, indiquant la situation de tous les puits et sondages forés sur le gisement depuis '. l'institution du permis H ; les plans des installations de productions projetées. • 60

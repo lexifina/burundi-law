@@ -1,0 +1,3 @@
+# Article 48
+
+Le point-repère doit être un point remarquable et invariable du sol, bien défini et aisément reconnaissable, dont le demandeur a l'obligation de constater au préalable l'existence et la fixité tel que point géodésique ou astronomique cimenté, angle de bâtiment en dur ou ouvrage d'art, axe d'un croisement de routes. A défaut de point répondant à ces conditions, le demandeur peut établir une borne repère maçonnée et en décrire dans sa demande la position par rapport à des points remarquables, mais imprécis, du sol tels que, par exemple, confluent des rivières ou sommet de montagne.

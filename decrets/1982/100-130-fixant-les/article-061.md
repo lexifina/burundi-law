@@ -1,0 +1,3 @@
+# Article 61
+
+Lorsqu'une autorisation de prospection porte sur une surface couverte par des titres miniers et si les titulaires de ces titres miniers estiment que les opérations entreprises ou projetées par les titutilaires de l'autorisation de prospection sont de nature à leur occasionner une gêne directe et matérielle, ils en saisissent le Ministre. Ce dernier adresse en tant que de besoin, les injonctions nécessaires au titulaire de l'autorisation. • Art. 62• En cas de contestation survenant entre plusieurs titulaires d'autorisation de prospection, .O.B. NO 4;,1.:5 le Ministre prend toutes l~ " llll 'lll es nécessaires.

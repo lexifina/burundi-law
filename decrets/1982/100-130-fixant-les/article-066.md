@@ -1,0 +1,3 @@
+# Article 66
+
+Il doit y être annexé : 10 un programme général des travaux projetés avec un calendrier indicatif; 20 les justifications techniques et financières; 30 l'effort financier minimal que le demandeur s'engage à consacrer à ces travaux p~ndant la première période de validité du permis; 40 un extrait de la carte de référence de la région où le permis est demandé faisant apparaître les limites du périmètre et les pàints-repères aux bornes-repères servant à la définir ; 50 des croquis cotés de rattachement des sommets ou angles du périmètre aux points et bornes-repères ; 60 le récépissé du versement du droit fixe., ---------------------------~ 8.0.8. NO 4/85

@@ -1,0 +1,3 @@
+# Article 147
+
+Elle indique en outre : 10 si l'exploitation prévue doit avoir un caractère permanent ou temporaire, et, dans ce dernier cas, la durée prévue de l'exploitation ; 20 la nature du matériaux de carrière, et son utilisation prévue ; 30 la localisation de la carrière (zone, commune, arrondissement et province) ; 40 le périmètre à l'intérieur duquel se développent la carrière et sa dépendance ; 50 le titre de propriété du demandeur, ou la nature des droits coutumiers ou droits d'occupation en vertu desquels il exerce des droits réels sur le terrain où il se propose d'ouvrir une carrière ; 60 si l'exploitation prévue est souterraine ou à ciel ouvert.

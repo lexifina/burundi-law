@@ -1,0 +1,3 @@
+# Article 93
+
+Il doit y être annexé : 10 un rapport détaillé fournissant la preuve de l'existence d'un gisement exploitable (type de minéni, réserves et teneur moyenne) ; 20 un programme de travaux d'équipement et de préparation du gisement ; 30 une estimation des investissements, nécessaires et un calendrier pour l'exécution de ce programme de travaux; 40 une justification détaillée des moyens technique et financier avec plan de financement et indication de l'origine des capitaux ; 50 des croquis cotés de rattachement des sommets ou angles du périmètre aux points et bornes-repères; 60 le récépissé du versement du droit fixe. ŒAPITRE II. Instruction et enquête.

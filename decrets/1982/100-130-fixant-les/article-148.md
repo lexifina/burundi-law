@@ -1,0 +1,3 @@
+# Article 148
+
+Il doit y être annexé un plan à grande échelle (au moins 1/2.000) de situation de la carrière (le cas échéant, extrait du plan cadastral) montrant le périmètre visé à l'article précédent, la délimitation du droit réel, l'emplacement prévu de l'exploitation et sa situation par rapport aux habitatwns, bâtiments, chemins, ouvrages d'art et travaux d'utilité publique situés à moins de cinq cents mètres des limites prévues pour l'extension de la carrière. Art. 149• Sil'exploitation doit être souterraine, le plan doit en outre indiquer l'emplacement des puits ou des galeries projetées, s'il existe déjà des travaux souterrains ceux-ci doivent figurer sur le plan.

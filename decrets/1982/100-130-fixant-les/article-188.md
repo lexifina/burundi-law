@@ -1,0 +1,3 @@
+# Article 188
+
+, Par intérêt direct, on entend la détention par les fonctionnaires, agents de l'Etat, magistrats et officiers, agents et employés des établissements et offices publics, par leurs épouses ou époux, par leurs ascendants et descendants au premier degré et par les ascendants et descendants au premier degré de leurs épouses ou époux, de titres miniers ou carriers, indivuduellement ou sous forme conjointe, la particpation à une société de personnes ayant parmi ses objets les activités minières ou de carrières au Burundi, le fait de percevoir sous quelque forme que ce soit, des participations aux résultats, commissions, honoraires d'une entreprise de mines ou de carrières ou d'une entreprises faisant le commerce des produits de mines et de carrières au Burundi.
