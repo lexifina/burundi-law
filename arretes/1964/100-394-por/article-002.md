@@ -1,0 +1,7 @@
+# Article 2
+
+Sont respectivement agréés en qualité de représentant légal et de représentant légal suppléant de la dite assocat;on Messieurs BAZAHICA Tito, transporteur de nationalité l'lu'undi résidant à Gasoro, et GASAGO Sylvère moniteur de naLonalité murundi rés:dant à Makamba. Art.' 3.
+
+Le présent arrêté entre en vigueur au jour de sa signature. Bujumbura, le 4 mars 1964.
+
+Le Ministre de la Justice, KARISABIYE François. Itegeko nshikirangoma n° 100/407 ryo ku wa 17 Ntwarante 1964 rigena bamwe bamwe mu bakozi ba Leta bo mu bushikirangoma bw'ubuvuzi bw'abantu ngo babe abacamanza nyamirambi. Umushikirangoma w'Ubutungane, . Aravye Ishimikiro ry'Amateka y'lngoma y'i Burundi ; Aravye cane cane ingingo y'9 y'jbwirizwa ryo ku wa 26 Mukakaro 1962 ryerekeye ukuringaniza n'ubukuru bwa Sentare; Bisabwe n'Umushikirangoma w'Ubuvuzi bw'abantu ; Ategetse: Ingingo ya 1. Baragizwe abacamanza nyam'rambi Abayobozi bakora muri Leta bize ivyo kuvura BAKIRE Morisi. BARINYEGEZA Petro, CIZA Augustino. DE WIEPELAERE Mariselo. GAHUNGU Balthazari. HIBONEYE Yohani, KARIYO Evaristo, KINYABUKU Rojeri, KIROMBO Inyasl. LANDRAINT Fernando, n'abakuru b'ibitaro vya mu gahinga BlTARIHO Stefano. BlZIMANA Yohani-Batista, MISAGO Alforisi, MUSHUGUTANYI Sebasiyano. NIYIBIZI Donasiyano. RWIGIMBA Pawulo. 'VYUMVUHORE Pawulo. son, les deux premiers commerçants et le troisième cultivateur tous de nationalité murundi et résidant à Vugizo. Son gérant est Monsieur RWASA Jacques, cultivateur de nationalité murundi, résidant à Kikuzi.
