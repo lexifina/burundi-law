@@ -1,0 +1,5 @@
+# Article 4
+
+La Commission 61ege, dans les conditions fixées par l'article 139 du décret-loi n° 501/67 du 5 A.vril 1972 susvisé, avec l'af?sistance d'un 'secrétaira ou d'un secrétaire suppléant désignés par le Ministre ayAnt la Sécurité S.ociale dans ses at tribut ions parmi le persor.ne l relevant de sor~ ,autorité. Art. '). Le"s dispositions de l'article 1t\ du décr!,!'t:-loi n" 501/6'1 du.5 Avril 1'972 susvisé sont applicables au sécrétaire de 'la Corr,misf.,:'on. Art. b • . Les frais de fonet fonnement de la CommiSS1,0n sont 'à lA (:l;:n"~e (le l'In6~itut National de Sécurité Sociale. Toutefois la Commission peut mettre â la charge des ~pq~~rqnts dont le recours aur~ été rejeté le mont~nt des frais 2'enqu~te ou d'exoertisE engagés pour l'examen de ce recours.
+
+CHAPITRE II PROCEDUH.2: A SUIVRE DEVAl\'.r LA :":CMMISSIO!I NATIONALE Dl:: SECU:nTE .:.)OC~ALE. Art .. 7. Le§ recours prévus a l'article 1~8 du d6cret-lo1 nO 501/67 du 5 Avril 1972 susvi~é doivent, â peine de forclusion ~tre introduits dans l~ délai d~ deux m~is au plus à compter de la notification éUX :~t~ressé6 àes " décisions ~ttaquées.
