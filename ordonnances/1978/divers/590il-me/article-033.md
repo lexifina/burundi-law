@@ -1,0 +1,5 @@
+# Article 33
+
+11 Y a trois sorles d'avancement, ['avancement de traitement, l'avancement de grade, et l'avancement de catégorie. L'avancement de traitement consiste en augmentations annuelles ajoutées au traitement initial du grade ct calculées proportionnellement à ce traitement initial. Ces augmentations sont accordées au l"r janvier, au l," avril, au j or juillet ou au 1er octobre. A l'une: de ces échéances l'agent doit compte au moins un an d'ancienneté au point de vue traitement. L'ancienneté est calculée à partir de la date d'entrée en service ou de la date de la précédente augmentation. • Le taux des nugmentations annuelles de traitement est de 1 % du traitelrent initi.t1. Ce taux est porté à 3 % pour l'agnet qui a obtenu la mention TRES BON ct à 5 %pOlir colni qui a obtenu la mention ELITE au signalement valable pour l'année en COUIS.
+
+Les mentions inférieures à BON suspendent l'avancement de traitement. Sont prises en considération pour le calcul de l'ancienneté de traitement, les périodes cl 'activités, de congé, à l'exclusion d ~s périodes de suspension d'activités.

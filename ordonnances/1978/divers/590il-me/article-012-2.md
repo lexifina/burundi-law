@@ -1,0 +1,3 @@
+# Article 12 2
+
+Les opérations financièros du Comité de Gestion sont soumises au contrôle tt.chnique de deux Commissaires aux comptes nommés par le Ministre ayant les Finances dans ses attributions. Un rapport doit être établi tous les 3 mois dont le Conseil d'Administration reçoit copie. En plus du rapport périodiquo, ils signalent sans délai, au Ministre de tutelle et au Ministre des Finances tout e irrégularité, toute négligence, toute situation sus;cptible de compromettre le fonctionnement normal de l'olganisme. Ils peuvent à cet effet prendre à tout moment connaissance sur place de toutes pièces et de toutes écritures en possession de l'organisme.

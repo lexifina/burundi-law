@@ -1,0 +1,5 @@
+# Article 13
+
+Lorsque le Président ,\ fixé la date, le lieu de la séance, la composition de la Chambre conformément à l'article 5 ci-dessus, le secrétaire avise le fonctionnaire en cause de cette fixation d'audience afin qu'il puisse éventuellement produire 1111 mémoire et des pièces justificatives complémentaires. Sauf urgence, cet avis est transmis par voie hiérarchique. Ar!. 14. Si l'avÎs prévu par l'article précédent n'est pas parvenu au requérant dans le mois de la remise du recours par la voie hiérarchique il peut adresser directement au secrétaire de la Chambre copie de ce recours avec l'accusé de réception prévu à l'article 10 ci-dessus. Art. 15, Si le recours est mallÎfcstement irrecevable pour forclusion des délais ou incompétence matérielle, le Président peut constater cette irrecevabilité par une décision portée en marge du recours. Avis de cette décision d'irrecevabilité est aussitôt adressé par le Secrétaire de la Chambre à ('auleur du recours pal' voie hiérarchique.
+
+La décision d'irrecevabilité ne peut être attaquée que par voie de prise à partie, conformément au code de procédure civile.
