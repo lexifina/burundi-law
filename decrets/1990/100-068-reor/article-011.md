@@ -1,0 +1,3 @@
+# Article 11
+
+,>rLr,~r:ne,m~tes -du Conseil ont droit à des jetors de 1 ~ présence. Les dépenses du Conseil d'Administration sont portées SUr le compte des frais généraux du Centre. i '"',. !-; " ....
