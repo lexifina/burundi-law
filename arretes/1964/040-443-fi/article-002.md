@@ -1,0 +1,5 @@
+# Article 2
+
+Les prix de vente des pains dont les poids ne sont pas re~ pris à l'article premier seront calculés proportionnellement au prix du poids du pain le plus rapproché. B.O.B. Tl- 6/64. - 343Aravye ivyashinzwe n'Inama iraba ibigirwa muri OCiRU. Ategetse : Ingingo ya I. Igitig:ri c'impembo ya licence kitangwa kw'ikawa itakarame yamaze kuhabwa na OCIRU licence yo kuva mu Burundi bayisubije ku mafranga <;,kwirikira ; - ikawa Arabica : 25.20 Fr. k4bilo 10 bitakuweko n'igice ; - ikawa Robusta: 10,00 Fr. ku bilo 10 bitakuweko n'igice. Ingingo ya 2. Ibuguro ry'ikawa Arabica rishinzwe kurabwa n'Isandugu y'ama[ranga y'ukuringaniza ibiciro vy'amakawa y'Uburundi no mu Rwanda. Ingingo ya 3, OCIRU ni yo izohabwa iryo bugu. Ingingo ya 4. Itcgeko nshikirangoma n° 040/207 ryo ku wa 1 Rllsama 1%3 rirakuweho. Ingingo ya 5. Iri tegeko rizotangura kukurikizwa kw'itallki ya 1 Rusama 1964. Bujumbura, italiki -ya 30 Ndamukiza 1964, Umushikirangoma w'Ubutunzi n'Amafaranga,
+
+Vu les décision" du Conseil et du Comité de Gestion de l'OCIRU; Arrête :

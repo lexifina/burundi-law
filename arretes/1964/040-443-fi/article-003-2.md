@@ -1,0 +1,3 @@
+# Article 3 2
+
+1,05 Fr 1,02 Fr 1,10 Fr 1.35 Fr 0,97 Fr 1.10 Fr 1.18 Fr 1.28 Fr 1,15 Fr 1.17 Fr 1,18 Fr 1,10 Fr 1,40 Fr 0,55 Fr 0,10 Fr 0,62 Fr 0,91 Fr 0,62 Fr 0,81 Fr 0,68 Fr 050 Fr 0,27 Fr 0,95 Fr 1,00 Fr 0,68 Fr Pour tout montant dépassant 5 francs (cinq francs) la somnyene gushora kizongana n'igitigiri gito canke kikuru nk'uko Igitigirl cose kirenga amafranga 5, ko gitigiri co kiriha me totale à payer au producteur sera arrondie au franc inico gice kirl musi canke kiruta Imeya, , férieur ou supérieur selon 9ue sa fraction décImale est infé. rieUl'e' ou supérieure à 050 Fr. Ingingo ya 4, Art. 1, L'arrêté ministériel nO 040/193 du mai 1963 est abrogé. ma 1963 rirakuweho. Ingingo ya,5. Itegeko nshikirangoma n° 010/193 ryo kw'itariki 1 Rusa. 1
