@@ -1,0 +1,3 @@
+# Article 4
+
+La Régie a pour objet la promotion de l'habitat social en faveUr des Officiers et des Sous-Officiers des Forces Armées en rapport avec la politique du Gouvernement en matière de logement. . Pour la réalisation de cet objet, la R.M.C. fournit tou t l'appui administratif nécessaire notamment dans la recherche du crédit immobilier et dans l'acquisition des parcelles. A cet effet, la R.M.C. joue l'intérmédiaire entre les demandeurs de Crédits immobiliers et les Institutions de financement d'une part ainsi qu'entre les entreprises de construction et tous les autres services tant publics que privés d'autre part.

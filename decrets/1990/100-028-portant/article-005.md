@@ -1,0 +1,3 @@
+# Article 5
+
+La Régie bénéficiera de toutes les facilités et garanties organisées et accordées par l'Etat dans le cadre de la politique gouvernementale en matière de logement notamment l'aval de l'Etat les talCes de bâtisse etc...

@@ -1,0 +1,3 @@
+# Article 41
+
+Le remboursement en capital et intérêt des crédits contractés pour la promotion de l'habitat social en faveur des Officiers et Sous-Officiers des Forces Armées devra se faire en engagean t prioritairement les indemnités de logement des bénéficiaires, leur épargne obligatoire ainsi que les suppléments nécessaires à la réalisation de la mensualité due à l'institution du crédit; celle-ci sera prélevéeàla source par le biais du Bureau Central des Traitements des :Forces Armées au profit du prêteur, conformément aUX conventions conclues entre les Institutions de Financement et la Régie Militaire de Construction.
