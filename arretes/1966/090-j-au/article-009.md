@@ -1,0 +1,3 @@
+# Article 9
+
+Est décomptée dans l'a'ncienneté dans le grade dont l'homme de troupe de gendarmerie est revêtu: 1 0 pour TOurE sa durée, toute péricde de non.activité pour motifs de convenance personnelle, ipOUr des infractions établies et pour des condamnations à une peine non disciplinaire privative de liberté, et pour absence irrégu. Iière 1 2· pour la MOITIE de la durée, toute période de 1liC'Il.activité pour cause de maladie ou d'infirmité intentionnellement provoquée; 3· pour tDUt ou ,partie de la durée, toute période de nonactivité pour raison de captivité, sur décisi~n de la com. mission Sjpéciale créée par le Secrétaire d'Etat à~a Gen-, darmerie. ... ~ "".,. , ~ ~ ~ ~

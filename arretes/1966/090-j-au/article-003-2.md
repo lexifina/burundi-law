@@ -1,0 +1,3 @@
+# Article 3 2
+
+Pour les magistrats et les ageQts en fonction aiprès le 1'" ianvier 1965 et 'lUi n'ont pas, entretemps, bénéficié d!un .wancement de grade ou de traitement. le droit à la première augmentation annuelle prévue à l'article 4 de l'arrêté ro_ yal précité s'ouvre à la date du 1er iBl!vier 1966. Pour les magistrats èt les agents entrés en fonction après le l'er janvier 1965 ou qui, postérieure.ment à cette datiJ ont 85.000.78.000.72.000._ 69.000.40.000.27500.20.000.bénéficié d'un avancement de grade ou de traitement. le droi.t à la première augmentation annuelle prévue à J'article 4 de l'arrété royal précité s'ouvre à l'expiration d'un délai d'un an prenant cours à la date de l'entrée en fonction ou du dernier avancement de grade ou de traitement.

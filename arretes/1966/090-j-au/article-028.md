@@ -1,0 +1,5 @@
+# Article 28
+
+Les disposiUctI'Is des 'articles 4û et 411. de l'arrêté royal n° sont appltcables aux hommes de troupe de Gendarmerie en service actif. - l'appréciation TRES BON est ooressée d'office aux hommes de troupe de Gendarmerie en service actif ayant fait l'objet durant l'année écoulée d'une seule pun,ition supé_ rieure à 4: jours d'arrêts dans le quartier , l' l'appréciation ELITE n'est adressée qu'aux hommes de troupe de Gendarlmerie en service actil n'ayant encouru durant J'année écoulée aucune punition. Ce signalement constitue la base essentielle de la détermination des Htres de l'homme de troupe de gendarmerie en service actif à l'avancement de traitement. La forme de ce signalement consiste en un tableau prévu réglementaire· ment transmis pour te 15 mai au plus tard de chaque année par les différents chefs hLérarchiques. Tous les hottlmes de troupe de Gendarmerie en service actif indistinctement doivent figurer sur ce tableau même s'Us ne font l'objet d'aucune proposition d'avancement.
+
+CHAPITRE 6 - DEVOIRS ET INCOMPATIBILITES.
