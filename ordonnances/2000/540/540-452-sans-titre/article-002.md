@@ -1,0 +1,7 @@
+# Article 2
+
+La gar.mtle est fixée à 100% pendant la période de construction et à 20% pendant la durée de remboursement et portera sur le montant effectivement débloqué.
+
+Fait à Bujumbura, le 20/06/2000.
+
+Le Ministère des Finances, Charles NlHANGAZA.
