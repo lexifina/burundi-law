@@ -1,0 +1,3 @@
+# Article 2
+
+80nt nommés au grade de Lieutenant-Colonel à la date du 01 juillet 1999, les Majors dont les noms suivent: Jean-Chrisostome KIBOYOGO 80308 François-Xavier KAVYINABUHIYE 80368 Adrien KARIMBANE 80357 Bernard NIYONIZIGlYE 80423 Rogatien N8HIMIRIMANA -80441 Gédéon N8HIMIRlMANA 80473 Zénon NZOJIBWAMI 80479 Pierre RUHEZAMIHIGO 80488 Jean-Bède NDAYIZAMVYE 80513 Damien NIJIMBERE 80514 Tharcisse MUGIRENTE 80522 Didace NDAYIKUNDA 80530 Aloys NIVYABANDI 80544 Aloys HARU8HAMAGARA 80550
