@@ -1,0 +1,3 @@
+# Article 3 3
+
+Sont nommés Chefs de Service des Régions Militaires : Service Chargé du Personnel et de la Logistique de la Région Militaire de KA YANZA: Major Pierre RUH EZAMI HIGO, S0488 de la matricuk, Service Chargé de l'En traînement et des Opérations de la Région MiE taire de KA YANZA ; Major Salvator HARUSHIMANA, S0552 de la matricule. - Service Chargé de l'Entraînement et des Opérations de la Région Militaire deMABANDA. Major Didace NDAYIKUNDA, S0530 de la matricule. Art. 4, Sont nommés Ch0fs de Service du Groupement d'Intervention de BUJUMBURA: - Service Chargé de Renseignement: Commandant Pontien BARITONDA, S0721 de la matricule. Service Chargé du Personnel ct de la Logistique; Commandant Cyria'lue N[KOKUBOKO, S0695 de la matricule. -
