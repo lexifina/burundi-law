@@ -1,0 +1,3 @@
+# Article 23
+
+Les magistrats en suspension d'activité de service pour exercer un mandat politique est soumis à la notation si, pendant l'année sous revue, il a presté des services judiciaires pendant au moins six mois; s'H a presté des services judiciaires pendant moins de six mois ou s'il n'a presté aucun service judiciaire pendant l'année qui précède celle pour laquelle la notation est valable, il lui est attribué une notation d'office. Cette notation est "Elite" pour le magistrat qui, le premier janvier de l'année pour laquelle la notation est valable, exerce le mandat de Ministre ou la fonction de Chef de cabinet; "Très Bon" pour le magistrat qui, à la même date, exerce tout autre mandat ou fonction politique.
