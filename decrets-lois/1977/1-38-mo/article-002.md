@@ -1,0 +1,9 @@
+# Article 2
+
+Les articles 80 il. 82 du code pénal susvisée sont abrogés et remplacés par l~s dispositions suivantes: « Article 80 : En l'absence de l'une ou l'autre
+
+d.::s circonstances aggravantes spécifiées il l'article 81 ci-après, le vol est puni d'un'~ servitude pénlle de cinq ans au maximum el d'une amende de 25 à mille francs au plus ou d' une d-~ ces pciu('s seulement )}. {( Article 81 : La selvilude pénale peut être portée- jusqu'à dix années si k vol a été commis avec l'une des circonstances cÎ-aplè:, spécifiées. Elle pellt être portée à vingt années si le vol a été commis avec del'x au moins des circonst,lflces suivantes : 1 0 si le vol a été commis la l'luiL 2 Q s'.iI a été commis par un groupe dl." deux ou plusieurs personnes, 3 0 si le ou les coupables onl agi à l'aide d'effraction extérieure ou d'escalade ou de fausses cIers. dans un local habité ou servant à J'habitation ou ses dépendances, 4 0 si le ou les coupubles ont agi' en prenant le titre ou les insignes d'un fonctionnaire public ou cn alléguant un faux ordre de l'autorité pllbliquc. 50 si le vol a étè commis avec viole:lce ou m::naces, 1 B.a.B.Jlol/78 5U
+
+6° si le oules coupables se sor.l assuré la disposition d'un véhicule motorisé en vue de faciliter leur entreprise ou de favoriser leur fuiti!, 7 n si "un ou plusieurs des coupables étaient porteurs d'une arme. 8 0 si le vol a été commis par un foncliol1naire public à l'aide de ses fonctions.
+
+9° si le vol a porlé sur du gros bélail. « Article 82>} : « Quiconque, pO\.lr commettre Ull vol, a fait usage de violences ayant occasioné à la victime une infirmité permanente ou une incapacité totale de travuil porsonnel excédant trois mois est puni de la servitude pénale à perpétuité. Si l'infirmité permanente ou l'incapacité tolale repris à l'alinéa précédent ra été occasionnée par l'usage d'une arme, le coupable pourra être puni de mort. "

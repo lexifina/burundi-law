@@ -1,0 +1,3 @@
+# Article 1
+
+L'article 15 du code pénal SUSViS0 ost complété par les dispositions suivantes qui en formeront 1<: an avant l'expiration de chaque période de sa valL dité. Conlcu il. Bucarest, le 14 juillet 1977 en deux exem plaires originaux, chacun en langues françaisc et roumaine, les deux textes faisant également foL Pour le GouverIlCl11c,nt de la Ré,1ublique du Burundi, Edouard NZAMBIMANA Premier Ministre du Go uvernement. Pour le Gouvernement de la République socialiste de Roumanie Manea MANESCU Premier Ministre du Goavnnement. • dernÎcr alinéa : ({ Toutes [cs personnes condamnées Commf.l co-auteurs ou complices d'Lille ou de plussieurs infractions, sont ttnues. solidairement et indivisément aux r:::slitutions 1.:\ dommages intérêts».
