@@ -1,0 +1,3 @@
+# Article 18
+
+Les décisions du Conseil, outre celles soumises à l'approbation expresse du Ministre de tutelle, ne sont exécutoires que si, dans un délai de quinze jours, ce dernier n'a pas fait usage de son pouvoir de tutelle. A cette fin, le Ministre de tutelle ou éventuellement, lorsqu'il est fait application de l'article 5, le Commissaire du Gouvernement doit recevoir sans délai un exemplaire de tout document soumis au Conseil ou émanant de ce dernier. Sectioll Il . Conseil de Directioll. Ar1.19. L'exécution des décisions du Conseil, la gestion quotidienne et l'Administration de l'Oftice sont confiées à un Comité de Direction.

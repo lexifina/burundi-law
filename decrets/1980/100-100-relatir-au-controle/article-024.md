@@ -1,0 +1,3 @@
+# Article 24
+
+A vant chacune des réunions trimestrielles du Conseil visées à l'article 12, le Directeur Général adresse aux membres du Conseil un rapport de l'exécution des décisions adoptées au cours de la précédente réunion, des 1Ilitlatives prises, des difficultés rencontrées et de la situation générale de l'office. il adresse pour la même période, en y joignant, si besoin est, toutes observations utiles, la situation comptable au Ministre de Tutelle, aux Commissaires· aux comptes et, le cas échéant, au Commissaire du Gouvernement. En fin d'année, il prépare les propositions de budget prévisionnel de l'exercice à venir et après la clôture de chaque exercice, il établit un rapport général faisant ressortir les comptes et le bilan de l'exercice écoulé.
