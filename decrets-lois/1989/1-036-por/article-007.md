@@ -1,0 +1,3 @@
+# Article 7
+
+L'organisme sus-visé procède à l'élaboration de projets de normes et de codes de bonne pratique et en fait une large diffusion auprès du public. Des suggestions écrites au sujet de l'un ou l'autre projet de normes ou de codes de bonne pratique peu vent être envoyées par toute personne intéressée audit organisme dans un délai de six mois à compter de la date de leur diffusion. 1 c., •• "'.i Ci Les projets de normes ou de codes de bonne pr atique éventuellement révisés sont soumis au Ministre ayant le Commerce dans ses attributions qui décide dans un délai d'un mois de leur homologation après avis du Conseil National de Normalisation et Contrôle de la Qualité qui sera créée à cet effet.
