@@ -1,0 +1,3 @@
+# Article 9
+
+Les personnes choisies par le Conseil pour leur compétence en matière d'information ou de documentation peuvent assister aux réunions du Conseil avec voix consultative, Le nombre de ces personnalités ne peut dépasser les deux tiers du n'Ombre d<>s admini~trateurs. Le Conseil peut également prévor b ,préren~e à ces réunions de conseillers techniqueS ou ex;perts proposés par les départements ministériels ou les organismes publics et privés les plus représentatifs de la pré~ sence du Burundi à l'étranger ou de l'action d'information et de documentation destinée à faire mieux connaitre le Burundi en dehors de ses frontières. En aucun cas dans le ConseU d'Administration de l'institut, la représentation du secteur public ne saurait être inférieure aux deux tiers.

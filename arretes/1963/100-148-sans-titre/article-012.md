@@ -1,0 +1,3 @@
+# Article 12
+
+Le Conseil d'Administration ,peut sous sa responsabilité déléguer tout ou partie de ses pouvoil'l!l à l'un des membres qui portera en ce cas le titre d'Administrateur délégué ou à un Comité de direction pouvant comprendre tant des membres du Conseil d'Administration que de tiers et présidé par le Pré. sldent du Conseil d'Administration. Les fonctions de Présidènt du Conseil d'Administration. d'Administrateur délégué et de membre du Comité de direction peuvent être rémunérées. sauf si les intéressés bénéficient déjà d'un traitement à charge du Trésor. Le Conseil d'Administration fixe le montant des indemnités et des traitements.

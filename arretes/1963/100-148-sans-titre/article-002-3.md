@@ -1,0 +1,15 @@
+# Article 2 3
+
+,' Notre Ministre de la Justice est charilé de l'exécution du présent afreté qui sort 'ses effetS à partir du premier janvier ' 1963. . Donné â Usumbura, le 24 janvier, 1963. Par le Roi, Le Ministre de la Jusfîc~, -11 :...... Itegeko ry'Umwami n° 01/138 ryo ku wa 23 Nzero 1963 rishiDga amaharl w~i 1II'IIM hrYa~ makuru n'ubumenyi mu Bunmcli.
+
+- Twebwe, MWAMBlITSA WA IV. Mwami w'Abarundi, Mwese, abariho n'abazovuka, Mwaramutse ! Turavye lahimiklro ry'IagO!na y'i' 8unmdl ; Turavye ibwirizwa ryo ku wa 29 Ruheshi 1962 rts1Hra. mu Burundi lblkorwa nshlngamateka n'Ibikorwa.nshingamategeko vyagizwe n'a~; Turavye ltegeko ryo kuwa 28 Kigarama 1888 ryerekeye Ibishingwa. Bisabwe n'UmushlkirangO!na wacu wa mbere. Twarategetse kandi dutegetse ibi : IGICE CA 1. l%i1'1ll n'icièaro. Inglngo ya' l, Hashlnzwe urufatiro rwitwa « Umuhari w'Abarundi utu.mbereye kurangura ivy'amakuru n'ubumenyi bw'ibiglrwa mu Burundi », mu ncamake witwa : « IMIOOC :1>, Mur'iri tegeko uzoguma wltwa : « UMUHARI », Ingingo ya 2, Idcaro c'umuhari kir'! Bujumbura, kandl uralhobora. nlya. ba blshatswe n'Iuma iwutegeka kwimurirwa mu wundi mwanya wose wo mu hunelt Ihlnduka ryose ry'idcaro ryandikwa mu kinyamkuru ca Leta y'l Burundi kandl bikagirwa n'lnama iwutegeka, IGICE CA II, Ico ukurildranye n'aho ikura im.atî. Ingingo ya 3, Umuhari ufise igikorwa co gufasha mu biraba uhuhinga mu gufasha abakuru bose ~tègeka n'amashlrahamy mu kazi no mu buryo bwœe butumbereye kumenyesha ne:za uk'Ubunmdi bumeze. Urasbobora. bisabwe n'aOO bakuru bategeka ha, mwe n'amashlrahamwe canke ariwo uvyitumye, kwiga no gukonsha Integ.uro. àuburyo bushoOOra gutera icubablro Uburundi mu hindi blhugu, gushlshikara guteza Imbere iVy'aba. gendagenda kuraba Uburundi. kubungabunga ivy'lmlgen:zo ya kera,c:anke gusigurira hamwe.hamwe aho hakeneye kumenya iblshakwa .Il'ukuntu intWaro y'l'Burundi l.kwiye kumera. Mu bikorwa vyawo vyo.se. umuhari ushishikara guserukira uko bishooot~ kose ivyo vyose biraba ubwenge, ubutegetsi canke ivyèrèkeye ururimi rw'igihugu.Umuhari uzoshishikara ...• gufasha mu buryo kirumara hudye mu makuru no mu nyigisho, uzoshiraho ahakozi bahembwa ku misi bako:ze, gushiraho abakozi 00 kUlllara igihel=3nke ab'amasezerano mu kazi, aba. hlnga b'abarund! canke ab'akavantata. gutegura ivy'irusha. nywa. inylgisho, ahantu ho kwigi~a ubwenge, kwerekana ivy'imigen:zo ya kera mu mahaD(llt- canke kurunglka intumwa mu mahanga, . ' Jbl bivuzw, .Il'lbibaye birlldoodwa ariko ntibigarukira abo. . ' Arrêté royal nO 01/138 du 23 janvier 1963 por~ tant crtation de t'Institut Munmcli d'Information et de DOCUDlentation. Nous, MWAMBlITSA IV, Roi des Barundi, A toÙs, présents et à venir, Salut !
+
+Vu la Coostitueio.a du Royaume du BuiùDdi :
+
+Vu la Loi du 29 juin 1962 portant applicatioll des actes législatifs et réglementaires édictés par làutorité tutélaire :
+
+Vu le.décret du 28 décembnd888 sur les Institutions ;'
+
+Sur proposition de notre Premier Ministre ; Avons arrêté et arrêtons :
+
+TITRE I. Dénomihation et siège de rInstitut,
