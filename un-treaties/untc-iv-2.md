@@ -2,3 +2,4 @@
 UN Treaty Collection reference: IV-2.
 Depositary: Secretary-General of the United Nations.
 Signature: 1967-02-01.
+Ratification: 1977-10-27.
