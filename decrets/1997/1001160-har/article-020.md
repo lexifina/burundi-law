@@ -1,0 +1,3 @@
+# Article 20
+
+Chaque trimestre, le Directeur Général adresse aux membres du Conseil d'Administration un rapport qui rwd compte de la situation générale de la Compagnie, de l'état d'exécution des décisions prises lors des réunions précédentes, des initiatives prises et du niveau d'exécution du budget par rapport aux prévisions. Au cours du mois d'octobre, il présente au Conseil d'Administration un projet du budget prévisionnel de l'exercice à venir. Après la clôture de l'exercice, il présente au Conseil d'Administration et au Ministre de Tutelle un rapport annuel d'activités de la Compagnie et un rapport de la gestion faisant ressortir les comptes et le bilan financier de l'exercice écoulé.
