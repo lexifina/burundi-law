@@ -1,0 +1,3 @@
+# Article 11
+
+Le procès-verbal de constat de faute disciplinaire et de notification d'ouverture de l'action disciplinaire est rédigé suivant le modèle en annexe 1. Il comprend l'énumération des faits reprochés au magistrat et de toutes circonstances de temps et de iieu susceptibles de les situer avec précision. Il énumère aussi les pièces éventuellement retenues à charge de l'intéressé qui doit en prendre connaissance, et acte les déclarations des témoins éveI!tuels. Deux copies du procès-verbal doivent être datées et signéès pour réception par le magistrat en cause. L'une est destinée à l'autorité qui ouvre l'action disciplinaire pour le classement, l'autre est transmise à la Direction de l'Organisation Judiciaire.
