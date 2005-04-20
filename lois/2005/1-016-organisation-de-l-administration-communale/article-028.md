@@ -1,0 +1,5 @@
+# Article 28
+
+L'Administrateur communal exerce un pouvoir hierarchique direct sur le detachement de la police aff ecte dans sa commune. II exerce un pouvoir de surveillance et d'orientation sur les agents des services . deconcentres de l'Et~t affectes ;dans sa commune. En cas de manquement de ces agents a leur devoir 04 de mauvais fonctionnement de ces services, ii adresse un -rapport circon*tancie aux r'esponsables de ces services. I I I . Aux fins des Jremieres elections posHransition, chaque Conseil Communal elit en son seip un Administrateur communal. Celui-ci prend· ses fonctions a la date de la! signature du decret de nominatiottf par,:ilei President de la Republique. 1 · ..:$··\-' _."_0;,_ Pour les elections suivantes, l'Assemblee N~ttbnale·\·et le Senat pourront, apres evaluation, legiferer pour que· l'Administrateur soit elu au suffrage universe! direct. · _).b1·· ,. . f::; :.i ,.::~ -· ... ~ .• ,
+
+• . .:,, . :f .- • .I I l .. .. . . ' ) . \ . 1 ] Article 29 : Le mandat le l'Adminlstrateur :munal est de cinq ans.

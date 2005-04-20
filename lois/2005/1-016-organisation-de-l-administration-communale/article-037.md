@@ -1,0 +1,7 @@
+# Article 37
+
+La coHine ou le quartier est' administre(e) par un Conseil de colline ou de quartier compose de cinq membres l;lus au suffrage universe! direct pour un mandat de ciriq ans. · · Le conseiller qui a obtenu le plus grand nombre ae vobf dey,i'ent le chef de la colline ou de quartier. m:_.v I • Lors des Jmieres elections post-transition/ les candidats doivent se presenter a ur independant. . : . : . . . -. . I l . .. ' Le Conseil de colline ou de · quartier se reunit une fois par mois sur convocation du chef de colline ou de quartier. Ses membres pereoivent des jetons de presence, a charge 'de la commune, et dont le montant est determine par le Conseil Communal. Sous la supervision du chef de colline ou de quartier, le Conseil de coJline ou de quartier a pour mission : I 1 ° · de fixer, en concertation avec le Conseil communal, les mesures et conditions de realisation des actions de deveJoppement et de sauvegarde de la p!ix sociale sur la col6ne ou dans le quartier ; , 2• . d'assurer, sur la colline ou au- =sein 1'du· quartier, avec les · Bashingantahe de l'entite, l'arbitrage, la mediation, la conciliation ainsi que 1e r~leinent de~ conflits de voisinage :
+
+3° de donner .des-avis-1sur toutes les questions concemant la colline ou le Q!Jartier ; · '' ,., '
+
+4° de suivre, au nom de la population, la gestion des affaires de la colline ou du quartier. "•·-:;,;~ -=---~a- ... , • I J ~ - ' ! I I i I . J J I - , I , ••', Section 4 : Du chef de colline ou de quartier

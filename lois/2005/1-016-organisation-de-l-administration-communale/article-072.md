@@ -1,0 +1,3 @@
+# Article 72
+
+Les dons et legs provenant des particuliers ou des organismes publics ou prives, d'une valeur superieure a dix millions de francs burundais doivent etreportes·a la connaissance du GOuverneur ou du Maire~ .' . .... . , .: ~ ~ , .. i " . .... " " Afi~ d'assurerl un dEwel~pp?ment equili.bre p,ntr.e"tout!S:- les ~~munes. et . :regions, du paE' en partlcuher en ce qUI conceme les(mfrastructures SOClo-economiques e base, l'Etat accorde a la communef'en' complement de ses ressources pfi pres, les moyens soffisants·pour sedoter d'une politique de developpeme~t de ces inrrastnlc;mres,' nQta'mmerU:(dans les domaines de l'educatiOn, de! la sante, du -reseau 'mtitier,J(fe I'electricite et de I'eau.

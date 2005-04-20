@@ -1,0 +1,3 @@
+# Article 34
+
+i I .. En· cas de .t_cance du ~e d'.Administrateur ~munaJ pour l'u~ d~ causes enu .. frees a l'article precedent, le Consetl communal procede a I'~, dans _ les trente jours qui suivent, d'un nouveau candidat qu'il soumet a la '.nomination du President de la Republique, apres verification des equilibres par le Senat. II acheve le mandat de son predecesseur. Dans l'intervalle qui precede les elections, !'interim est assure par le conseiHet technique charge des questions administratives et sociales vise a l'art1e4e 54;da la presente loi. ··! ' . ' l ' ' -. ' ' .. ~ . : ~ft . . .' • '. ,! ' ,. ' • ' ' S~ction 3 : Du conseil de colline ou de quartier.

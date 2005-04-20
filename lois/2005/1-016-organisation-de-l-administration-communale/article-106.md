@@ -1,0 +1,3 @@
+# Article 106
+
+Le plan Communal de developpement communautaire fixe les participations financieres de la commune ainsi que les complements ·apportes par les institutions d'appui au developpement comm(mah·'. L~s participations communales constituent des depenses oblig~tofres au: sens de !'article 56 de la presente loi. Art I cle 107 : \ ': ""'.t I . I ' Le plan Cortjmunal de devel_9ppetnent communautaire devient executoire de plein droit, apres approbation du Conseil communal, et apres verification de sa coheren~· avec le plan national de developpement par le Ministre ayant la planiticaU du developpement ~ans ses attributions. P~ ~n-~ ,,·_d'un mois a partir de la reception dudit plan commuoat par le mlnistre inte j. sans re.ponse, le plan devient egalement executoire. '
