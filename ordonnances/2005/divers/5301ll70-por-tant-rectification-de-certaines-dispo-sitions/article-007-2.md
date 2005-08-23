@@ -1,0 +1,3 @@
+# Article 7 2
+
+Les prognllllllles de ln section Lettres M(ldernc~ contiennent les disciplincs ~Lli\alltes : Kirundi. FraJH;;;iÎ~. I\ngiab, Mathénwliques. Phy~ique. Chimie. Biologie, Géographie. Hi"toirc, Economie. Sciellce~ Ilumailles. Education Physique et Sportive. Informat.ique. Lducatinll il b citoyenneté, Religion :vlora le. Arlick 8: les programmes de la sellion scientifique A contiennent les disciplines suivuntes : Kirundi. Français. Anglais. Mathématiques, Des"in SCÎCntifique, Physique. Chimie. Biologi..., (j(o!lrarhk, Hi~loire. EcoJlomie. Sciences : iumaines. Edl!CatioJ1 Physique, Inhmmltiquc. Education ;; la citoyenneté. Religion/Morale.

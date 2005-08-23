@@ -1,0 +1,3 @@
+# Article 1 15
+
+Fstnommé: DIRECTEUR ADMINlSTRATIF ET fiNANCIER a.i DE L'I-IOPITAL DE MlJRAMV'(A Monsieur NIYONEMEYE Ladislas.
