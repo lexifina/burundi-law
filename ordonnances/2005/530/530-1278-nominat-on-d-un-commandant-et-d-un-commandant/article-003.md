@@ -1,0 +1,7 @@
+# Article 3
+
+.
+
+Le Directeur Général de la Police Nationale et le Commissaire Général de la Police de l'Air, des Frontières et des Etrangers sont chargés chacun en ce qui le concerne de l'exécution de la présente ordonnance qui entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 22/912005 Ambassadeur Salvator NTACOBAMAZE (Sé) • - ORDONNANCE MINISTERIELLE N°530/1279 Dl) 22 SEPTEMBRE 2005 PORTANT DECOLJP)GE ADMINISTRATIF DU BURLJNOI Le !\1inistre de l'Intérieur et de la Sécurité Publique; -Vu la Loi n° 1:010 du 'fol mars 2005 portant promulgation de la Constitution de la République du BURUNDI: . -Vu la Loi n G 10 16 du 20 anil 200S portant organisati~)tl d~ 1" Administration Communale spéc,ialement en son artick . Il () ; . J -Yu le Décret-Loi n L33 du Og no\embrc 1991 portant modification du Décret-Loi n" 1i29 du 24 septembre 19x2 portant délimitation des Provinces et COllllnullcs Urbaines de la République du Burundi: -Vu le Décret- Loi n(~ LAO du 26 novembre 19lJ2 portant délimitation du périmètre urbain de Bujumbura; -Vu la Loi n" l ,(}06 du IOdécembre IlJ9X portant création de la Province MWARO et délimitation d~ !a Province de M\VARO.etdeMURAMVYA; -Yu le Décret nO 1OCl/57 du 31 juillet 2000 portant Classification des l,Centres Urbains; -Vu le Décret n° 100/109 du 05 aoÛ(20(}4 portant organisation du Ministère de l'Intérieur; -Sur proposition des Gouverneurs des Provinces et des Administrateurs Communaux; . ORDONNE
