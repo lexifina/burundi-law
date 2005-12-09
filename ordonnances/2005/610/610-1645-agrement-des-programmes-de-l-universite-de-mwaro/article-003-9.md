@@ -1,0 +1,3 @@
+# Article 3 9
+
+Sont chargés de la supervision de la passation de l'Examen d'Etat: 16.Madame le Directeur Provincial de l'Enseignement en Mairie de Bujumbura Président du Centre du Lycée du Lac Tanganyika: 17. Madame l'Inspecteur Régional en zone Ouest: Président du Centre de rETS Kamenge : 18. Madame le Directeur de l'Enseignement Secondaire Général et Pédagogique Public: Président du Centre du Lycée Notre Dame de Rohero : 19. Monsieur l'Inspecteur Principal du BAEP : Président du Centre du Lycée Ngagara : 20. Monsieur le Directeur Provincial de l'Enseignement de Gitega : Président du Centre du Lycée de Gitega (ex-ENG) 21. Monsieur !"Inspecteur Régional en Zone Centre-Est: Président du Centre du Lycée Notre Dame de la Sagesse.
