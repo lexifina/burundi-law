@@ -1,0 +1,3 @@
+# Article 8
+
+La catégorie des Officiers de Renseignement comprend dans l'ordre croissant les dix grades suivants : 1. Officier de Renseignement de 3ème Classe (OR3) 2. Officier de Renseignement de 2ème Classe (OR2) 3. Officier de Renseignement de 1 ème Classe (ORl) 4. Officier de Renseignement Principal de 3ème Classe (ORP3) 5. Officier de Renseignement Principal de 2ème Classe (ORP2) 6. Officier de Renseignement Principal de 1 ère Classe (ORPl) 7. Officier de Renseignement Chef de 3ème Classe (ORC3) 8. Officier de Renseignement Chef de 2ème Classe (ORC2) 9. Officier de Renseignement Chef de 1ère Classe (ORCl) 10. Officier de Renseignement Chef (O.R.c.)

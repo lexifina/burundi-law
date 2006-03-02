@@ -1,0 +1,3 @@
+# Article 86
+
+Le personnel du Service National de Renseignement bénéficie d'une assurance-maladie dans les conditions équivalentes à celles des autres corps de défense et de sécurité. Il est affilié, par l'employeur, à l'Institution National de Sécurité Sociale et bénéficie d'un régime de sécurité sociale dans les conditions et limites définies par le régime applicable à l'institut National Sécurité Sociale, notamment aux pensions, rentes pour survivants et risques professionnels. Il est classé parmi les personnes travaillant dans des conditions dures et pénibles comportant beaucoup de risques suivant les dispositions du code de la sécurité sociale. Il est libre de s'affilier aux autres organismes de sécurité sociale.

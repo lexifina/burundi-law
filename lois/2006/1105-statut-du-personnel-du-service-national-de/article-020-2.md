@@ -1,0 +1,3 @@
+# Article 20 2
+
+A la fin de leur stage probatoire, les Administrateur. le; Officiers et les IlIspe<.:teurs de Renseignement prêtent serment de fidélité au Président de la République, et s'engagent par écrit il lui ohéir, il adhérer fi la Charte de l'unité Nationale et à respect<.:r la COllstitution el les lois: « Je jure obéis~allce et fidélité 'au Président de la République, à la Charte Lie ("unité Nationale. :1 la Con~titutilll1 de hl République du Bunilldi. alt." klis ct règlements en vigueur», L'ancienneté t:ourt ft j'al tir du du reLTlllemelH. Toutefois, la pérîode de sla~~..: Il, 'il Li.'1Hili,:;J1 If C',! P,lS pri;L' en considération sauf pour le L'a!cul des Jroits il la pension. SecfùJII 3 De la formation et du pcd'ct'llOilncmcnt
