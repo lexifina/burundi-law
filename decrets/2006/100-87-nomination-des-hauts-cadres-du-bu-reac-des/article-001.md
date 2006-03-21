@@ -1,0 +1,7 @@
+# Article 1
+
+Est nommé : • Directeur Général: Monsieur Léandre NIYONZIMA;
+
+- Directeur Technique : Monsieur Augustin NAHIMANA.
+
+- Directeur Administratif et Financier: Monsieur Damien MAPFA. • z 8.0.8. N°3/2006. Ingingo ya 2: Ingingo zose zari zihasanzwe ziteye kubiri n'iri tegeko ry'lImlikuru w'igihugll ziratùswe. Ingingo ya 3: Umllshikiranganji w'indero n'imico kama ashinzwe gushira mu n&iro iri tegeko ry'umukuru w'igihugu kuva umunsi ritereweko igikumu. Bigiriwe i Bujumbura, ku wa 21 Ntwarante 2006. NKURUNZIZA Pierre (Sé). KU BW'UMUKURU W'IGIHUGU lCEGERA CA KABIRI C'UMUKURU W'IGIHUGU, NZOMUKUNDA Alice (Sé). UMUSHIKIRANGANJI W'INDERO N'IMICO KAMA Sé KIBEYA Saïdi (Sé).ITEGEKO RY'UMUKURU W'IGIHUGU INOMERO 100/88 RYO KU WA 21 NTWARANTE 2006 RIGENA ABAYOBOZI BAKURU N'ABAYOBOZI MU BUSHIKIRANGANJI BW'INDERO N'IMICO KAMA. Umukuru w'igihugu, Yihweje ibwirizwa nshingiro rya Republika y'Uburundi ; Yihweje ibwirizwa inomero 1/09 ryo ku wa 17 Ntwarante 2006 ritandukanya amabanga ya politike n'ayafatiye k'ubllmenyi n'ubuhinga ; Yihweje ïtegeko bwirizwa inomero 1/024 ryo ku \Va 13 Mukakaro 19X9 ryerekeye itunganywa ry'amashiraham>.ye ya Leta yigenga cane cane mu ngingo zaryo za !.{ na 9 ; Yihweje itegeko inomero 100/121 ryo ku wa 30 Munyonyo 2005 riringaniza ukundi gusha ubushikiranganji bw'indero n'imico kama ; Bisabwc n'ul11ushikiranganji w'indero n'imico kama ; ATEGETSE IBI BIKURIKIRA : Ingingo ya 1: Haragenywe: - Umuyobozi mukuru w'inyigisho mu mashure yisumbuye n'ay'inderabigisha : BAMPOYE André.
