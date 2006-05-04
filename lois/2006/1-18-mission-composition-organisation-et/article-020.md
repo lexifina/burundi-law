@@ -1,0 +1,3 @@
+# Article 20
+
+Le fait de faire· obstruction au travail de la Commis-sion, soit en refusant de collaborer, soit en cachant des· renseignements utiles, soir en donnant un renseignement iilexact ou en usant de mnnœuvres de natùre à ~êner ou à "alentir la mission de la Commission, constitu~une in-fraction punissable des mêmes peines que celles prévues à l'article précédent.· . ·Article 21: Un membre de la Conventien Nationale ou de la Dé-· ~ation Provinciale peut être révoqué pour manquement Ive sans préjudice des poursuites pénales qui peuvent e engagées contre lui confo~ément à la loi. ,~ " Article 22:) . --~ Les décisions de la Commission sont notifiées aux rties en cause et copies leur sont remises. Elles sont sus-Jtibles de recours devant les juridictions compétentes.
