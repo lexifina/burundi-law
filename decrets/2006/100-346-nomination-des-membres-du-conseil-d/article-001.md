@@ -1,0 +1,5 @@
+# Article 1
+
+Sont nommés membres du Conseil d' Administration de l' Hopital de GITEGA : -Dr NDIHOKUBWAYO Georgette: Président -Monsieur HICUBURUNDI Sosthène:Vice-Président -Dr NIYONKURU Fidèle: Secrétaire -Dr BUNZIRIGI Etienne: Membre -t\1onsieur BUKOBERO Prosper: Membre -Monsieur HAKIZIMANA Venant: Membre -Monsieur HAGERIMANA Diomède :Membre Art 2. foutes (hSpüSlti~)11'O ~lI1térielHcs contrairès au pn.'-~ent Décret san! abrog<:.'cs. 1 Ll: Ministre d(" i:l Santé Pubhque est chargé {k' I,l J'exécution du pn~siJc:r.t iXClet qui cmre en '.iguem le jour de sa signature. 1 Fait ~l Bujumbura, le 13/1212006 1 B.OB N" 1J IJOl)6 h\R LI: PIŒSlDE:--JT DE LA REPUBLIQUE, Pit'!Tt, '\iKURl''\iZIZA ( Sé) DU:X!CviE VfCE PRES!DE\iT DE LA REPI.'BLlQt:E :Ybrine HARAMPAMA.( Sé) vlINISTRE DE LA SANTE PUBLIQUE, Dr. Triphoniè '\iKURUNZIZA .(Sé) DECREI N° 100/3 ..7 DI f 13 /12/2006 PORTANT ~OMINATION DES :\lF~,mRES nu CO:"\SEIL D'Al)MINISTR,\TION Dl; CENTRE NsnONAL DE TRANSFUSION SANGClNE ((,1'1S). LE PRESIDENT DE LA REPUBLIQUE, Vll la Constitm!011 de la RépublicillC du Burund!,
+
+Vu le Décret
