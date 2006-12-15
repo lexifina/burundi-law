@@ -1,0 +1,3 @@
+# Article 2 2
+
+Toulc5 dispo5ition antéllcun:5 cOlltr;,lin~s â b présentc ordonnance sont abrogées, Articlc 3, Le Directcur Général de b Poli..:e ),;ationak du Bumndl est dlargé de l'exécution de b présente ordonnance qui elltre en \'igueur le jour de sasignilture , Fait;l Bujumbura, le 15/12/2006 Evariste NDAYISHIMIYE Général de Brigade (Sd ORDONNE Arti\.'\e l Est nommé Commissaire chargé de l'Administration et Gestion au sein du Commissariat Gélh;ral de la Police Pénitentiaire: -OPC2 MPAYINDAYYI Préfcct, Matricule OP\: n003 Anie!.: 2 Est nommé Commissaire chargé de l'Instruction .::t opér:.ltillllS :lU sein duCommissariat Général (le la PolIce PénitcntiaÎre : -OPC2 lIAKIZI:YIANA Charles, :Ybtriculc OP~ 0014

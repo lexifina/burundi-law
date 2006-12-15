@@ -1,0 +1,3 @@
+# Article 9
+
+Au-delà des contributions obligatoires. toute personne physique ou morale peut effectuer des contributions volontaires. Cette contribution volontaire peut également être donnée en nature. Cette contribution volontaire COI1ceme les citoyens burundais vivant au Burundi, les citoyens vivant il l'extérieur du pays. ainsi que les personlles de nationalité étrangère vivant à l'intérieur ou à l'extérieur du Burundi. - Al1icle 10 La contribution Obligatoire à la Solidarité Nationale due par les entreprises doii être versée au plus tard le 31 janvier 2007. Article Il La contribution due par les ménages sera versée par le Chef de ménage suivant les modalités qui seront fixées par le Ministre de l'Intérieur.
