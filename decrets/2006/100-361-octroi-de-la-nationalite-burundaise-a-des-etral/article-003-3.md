@@ -1,0 +1,3 @@
+# Article 3 3
+
+Dans le cadre de leurs missions, les Officiers de la Brigade Spéciale :mti-Corruption sont investis des pouvoirs d'Officier de Police Judiciaire tel que pœscrit à rarticle 6 de la loi n° J112 du 18 avril 2006 pOItant Mesures de Préventiop et de Répression de la Corruption et des Infractions Connexes. A ce titre, ils sont habilités à constater les infractions de corruption et les infractions connexes, à en rassembler les preuves, à en rechercher les auteurs et, le cas échéant, à procéder à la garde à vue confonl1ément au Code de Procédure Pénale. --~-"-------CHAPITRE Il DE L'ORGANISATION ET DU FOl\'CTIONNEMENT DE LA BRIGADE SPECIALE ANTICORRUPTION
