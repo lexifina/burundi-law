@@ -1,0 +1,5 @@
+# Article 2
+
+La présente loi entre en vigueur le jour de sa promulgation.
+
+Fait à Bujumbura, le 30 décembre 2006, Pierre NKURUNZIZA (sé) PAR LE PRESIDENT DE LA REPUBLIQUE, VU ET SCELLE DU SCEAU DE LA REPUBLIQUE, . LE MINISTRE DE LA JUSTICE ET GARDE DES SCEAUX, M,lÎtre Clotilde NIRAGIRA (sé). INSTRUMENT DE RATIFICATION PAR LA REPUBLIQUE DU BURUNDI nu TRAITE RELATIF A LA CONSERVATION ET LA GESTION DURABLE DES ECOSYSTEMES }'ORESTlERS D'A.FRIQUE CENTRALE ET INSTITUANT LA COMMISSION DES FORETS D'AFRIQlJE CENTRALE (COMIFAC). NOUS, Pierre NKURUNZ1ZA, PRESIDENT DE LA REPUBLQUE, Ayant vu et examiné le Traité relatif à la conservation et la gestion durable des écosystèmes forestiers d'Afrique Centrale et instituant la Commission des Forêts d'Afrique Centrale (COMIFAC) ; 8.0.8. ."/'" 1! COrJ{! C:lvons approuvé Cl l':lpprouvon,; en toutes ct chacune Cie 'ic:~ dlSpOSltioliS conlünn~rne'it :1 la kgisir,tiol< en vigué'ar ~HI bl!r1il1,ii : Dédarons qu'il est accepté, r,:nifié et confirme: Promdtùns qu'il sera intégr3kmem et il1viuiabkment observ~ ; EN FOI DE QCOI, ~Nous <1,016 donné le présent Instrument de RatificatIOn revêtll du Sceau r.k la Répllblique.
