@@ -1,0 +1,3 @@
+# Article 36
+
+Le retrait définitif d'agrément, par décision du Ministre ayant les Douanes dans ses attribu-tions, peut être également prononcé dans les cas suivants : 1. s'il y a dissolution de la société ; 2. s'il y a : 2.1. inactivité pendant au moins une année ; 2.2. complicité avérée dans la planification et la réalisation de fautes professionnelles graves notamment si le commissionnaire se rend coupable d'infractions douanières suivantes : 2.2.1. soustraction de marchandises au paie-ment des droits et taxes ; 2.2.2. détournement des marchandises sous le régime de transit ; 2.2.3. falsification des documents douaniers ou autres documents accompagnant la déclaration. FORME, ENONCIATION ET ENREGISTREMENT DE LA DECLARATION

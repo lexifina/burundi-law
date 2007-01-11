@@ -1,0 +1,3 @@
+# Article 104
+
+Les permis de cabotage doivent obligatoire-ment être présentés au bureau de réimportation dans le délai fixé en même temps que les mar-chandises qui s'y rapportent. Après l'apurement par le Receveur de ce bu-reau, le document est remis à l'intéressé. Celui-ci assume l'obligation de le remettre au bureau de sortie où le cautionnement doit être libéré. Si l'intéressé désire modifier la route, il doit en faire la demande au Chef local du bureau de sortie qui annote en conséquence le permis de cabotage et avise, le cas échéant, son collègue du bureau de réimportation. TRANSFORMATION SOUS DOUANE POUR LA MISE A LA CONSOMMATION

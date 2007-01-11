@@ -1,0 +1,3 @@
+# Article 59
+
+1. Sans préjudice des dispositions de l'article 183 du Code des Douanes quiconque désire ob-tenir la concession d'un entrepôt privé doit : avoir au moins une année d'activité dans le domaine de l'importation ; 2. 3. avoir un chiffre d'affaires annuel de cinq cent millions de francs burundais par an au moins ; 4. en faire la demande écrite au Ministre ayant les Douanes dans ses attributions ; 5. fournir une description exacte des lieux ; 6. indiquer les espèces de marchandises pour lesquelles la concession est de-mandée ; s'engager à fournir le cautionnement des droits, taxes et de toutes autres sommes exigibles soit en numéraire, soit sous forme de garantie bancaire libérée con-formément à l'annexe 6 de la présente ordonnance ministérielle.

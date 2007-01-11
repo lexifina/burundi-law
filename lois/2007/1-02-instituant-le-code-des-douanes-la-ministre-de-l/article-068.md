@@ -1,0 +1,5 @@
+# Article 68
+
+3.
+
+Le triptyque est admis par la douane lorsqu'il concerne des véhicules à moteur importés par : 4. des personnes physiques dont la résidence principale se trouve à l’étranger et qui les utilisent pour leur usage privé. C’est-à-dire à des fins autres que le transport des personnes contre rémunération, prime ou avantage ma-tériel ou à des fins autres que le transport in-dustriel ou commercial des marchandises ; 5. des entreprises dont le siège d'exploitation se trouve à l'étranger et qui les utilisent au transport sans rémunération, prime ou autre avantage matériel, de personnes qui ont leur résidence principale à l'étranger ; ces transports ne peuvent être effectués qu'en partance ou à destination d'un endroit situé à l'étranger. des entreprises dont le siège d'exploitation se trouve à l'étranger et qui les utilisent, soit au transport de personnes moyennant rémuné-ration, prime ou autre avantage matériel, soit au transport industriel ou commercial des marchandises avec ou sans rémunération ; LES CONDITIONS DE CIRCULATION DES VEHICULES IMPORTES SOUS LE COUVERT D'UN TRIPTYQUE.

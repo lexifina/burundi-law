@@ -1,0 +1,3 @@
+# Article 38
+
+Au sens de l'art.121 du Code des Douanes, sont admises à la déclaration verbale (quittan-cier 126 bis) : les marchandises qui ont une valeur en douane inférieure ou égale à l'équivalent moné-taire de cinq cent mille francs burundais (500.000Fbu). Cependant, les marchandises transportées par groupage et par voie terrestre ne sont pas admises à la déclaration verbale. les marchandises sans caractère commercial ; ce sont des marchandises qui ne peuvent pas être vendues tels que le sang de transfusion, les organes humains de greffe, etc.... Le modèle de la déclaration verbale se trouve à l'annexe 3 de la présente ordonnance.

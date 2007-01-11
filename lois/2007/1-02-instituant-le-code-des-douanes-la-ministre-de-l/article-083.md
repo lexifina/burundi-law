@@ -1,0 +1,3 @@
+# Article 83
+
+Sur production de leurs pièces d'identité, le Chef local peut délivrer aux personnes habitant la Communauté Economique des Pays des Grands Lacs (CEPGL) et de Communauté Est Africaine (CEA ou EAC) se rendant au Burundi avec leurs véhicules, une carte d'entrée valable pour un voyage dont le modèle se trouve à l'an-nexe 9. Le délai de validité ne dépasse pas un mois et dispense les intéressés du dépôt d'un cautionnement et de toute formalité inhérente à l'importation temporaire. De même, le Chef local délivre un laissez-passer permanent valable pour dix voyages dont le modèle se trouve à l'annexe 10. Son délai de validité ne dépasse pas trois mois.
