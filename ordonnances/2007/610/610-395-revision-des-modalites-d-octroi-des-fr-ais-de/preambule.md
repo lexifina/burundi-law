@@ -1,0 +1,5 @@
+# Ordonnance ministérielle n°610/395 du 18 avril 2007
+
+PORTANT REVISION DES MODALITES D'OCTROI DES FR.AIS DE STAGES ET DE MEMOIRE AUX ETUDIANTS DU 1er ET DU 2ème CYCLE DE L'ECOLE NORMALE SUPERIEURE
+
+Le Ministre de l'Education Nationale et de la Culture,
