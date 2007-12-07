@@ -1,0 +1,3 @@
+# Article 1 5
+
+• Sont nommés membres de la Commission de Gestion des Bourses d'Etudes et de Stages : • Monsieur BUNGUZA Libérat, Directeur du Bureau des Bourses d'Etudes et de Stages, Se-crétaire • Madame NTAWE Rose, Conseiller Principal à la Deuxième Vice-présidence, Membre ; • Monsieur NTABINDI Jean, Directeur Général de l'Enseignement Supérieur et de la Re-cherche Scientifique, Membre ; • Monsieur NTAHONKURIYE Philippe, Direc-teur Général Chargé des Relations avec l'Afrique, l'Asie et l'Océanie, Membre ; • Monsieur BAMPOYE André, Directeur Géné-ral de l'Enseignement Secondaire Général et Pédagogique, Membre ; • Madame HAMENYAYO Béatrice, Directeur du Budget, Membre ; Madame KAZAGE Caritas, Directeur de Ges-tion des Traitements, Membre ;

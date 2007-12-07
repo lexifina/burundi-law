@@ -1,0 +1,3 @@
+# Article 6 5
+
+La composition du Comité technique de For-mulation est définie comme suit : Président : Directeur Général de la Décentra-lisation et de la Mobilisation pour l'Auto-Développement ; • Membres : • Directeur Général de l'Administration du Ter-ritoire ; • Directeur Général du Fonds National d'Inves-tissement des Communes (FONIC) ; • Directeur Général de la Planification ; • Un représentant du Ministère de la Bonne Gouvernance et de l'Inspection Générale de l'Etat et de l'Administration Locale ; • Un représentant du ministère des finances ; • Représentant de l'Union Européenne (projet GN) ; • Représentant de la Banque Mondiale (projet PRADECS) ; • Représentant du PNUD/BINUB (Programme P & G) ; Représentant de la Coopération Suisse au Bu-rundi.
