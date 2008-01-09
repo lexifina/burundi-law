@@ -1,0 +1,3 @@
+# Article 12
+
+Sans préjudice des dispositions relatives à la législation douanière et au Code Général des Impôts et Taxes, les irrégularités ou fraudes constatées et confirmées sont signalées au Mi-nistre ayant les Finances dans ses attributions sous forme de rapports d'inspection et/ou de contrôle. Ce dernier instruit les directions des impôts et des douanes de procéder immédiatement à l'enrôlement et au recouvrement des impôts éludés ou des droits fraudés. Des sanctions administratives et des pour-suites pénales le cas échéant pourront alors être prises à l'encontre des auteurs de ces irrégulari-tés.

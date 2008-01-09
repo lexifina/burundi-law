@@ -1,0 +1,3 @@
+# Article 8
+
+• Les Inspecteurs sont des cadres et agents pu-blics spécialisés ou qualifiés pour bien mener à priori et/ou à posteriori, des travaux de : • contrôles d'engagement, liquidation et paie-ments budgétaires ; • contrôles douaniers ; • contrôles fiscaux et d'autres recettes non fis-cales ; • contrôles de respect des règles de passation des marchés publics ; • contrôles de gestion administrative et finan-cière ; • contrôles du respect et suivi des engagements entre le Burundi et les partenaires extérieurs ; suivi des décisions prises, subséquemment à ses rapports d'inspection ou de contrôle.
