@@ -1,0 +1,3 @@
+# Article 10
+
+Le mandat d’Administrateur prend fin à l’expiration normale de sa durée, par décès, par démission ou à la suite de la perte de la qualité ayant motivé sa nomination ou encore par révoca-tion en cas de négligence ou d’incompétence, à la suite d’une faute grave ou des agissements incom-patibles avec la fonction de membre du Conseil d’Administration. En cas de décès en cours de mandat ou dans toutes les hypothèses où un membres du Conseil d’Administration n’est plus en mesure d’exercer son mandat, il est procédé à son remplacement, se-lon les mêmes modalités et formes que celles qui ont présidé à sa nomination, pour la période du mandat restant à courir.
