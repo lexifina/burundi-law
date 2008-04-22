@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés, au sein de l’Inspection Générale de l’Etat : - Inspecteur principal de l’Etat, chef de Division des recettes publiques : Madame Agnès GAHWAYI ; - Inspecteur Principal de l’Etat, chef de Division des Dépenses Publiques : Monsieur Arthémon MUHITIRA ; - Inspecteur Principal de l’Etat, chef de Division des Sociétés à Participation Publique et pro-jets : Madame Prisca MVAKURE ; - Inspecteur Principal de l’Etats, Chef de Divi-sion des Affaires Administratives, financières et juridiques ; Monsieur Martin NITERETSE ; - Inspecteur Principal de l’Etat, Chef de division de la Formation, des méthodes et de la Docu-mentation ; Monsieur Germain-Herman NKESHIMANA ;
