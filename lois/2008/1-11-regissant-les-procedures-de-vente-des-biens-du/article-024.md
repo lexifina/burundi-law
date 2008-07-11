@@ -1,0 +1,3 @@
+# Article 24
+
+Sauf J'effet de dispositions legislatives ou reglcmentaires speciales, la vente d'un bien immobil ier ou d'un bien mobilier du domaine prive de I'Etat a lieu par adjudication puhlique. Art icle 25 : La mise en ceuvre des procedures de vente des biens du domaine prive de I' Btat et Ja supervision de tomes les operations y relatives sont assurecs par la Commission Chargee de 1a Vente des Biens du Domainc Prive de I'Eta!. Artidc 26: La Commission Chargee de 1a vente des Biens du Domai ne Ptive de I'Etat est creee par decret sur proposi tion du Ministre ayant les finances dans scs attributions qui dete rmine sa composition, son organisation ct son fonctionnement.

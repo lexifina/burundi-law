@@ -1,0 +1,7 @@
+# Article 28
+
+Lc Gouvernemcnt met a la disposition de la Conunission Chargee de 1a Ve nte des Biens du Domaine Prive de l' Etat les rcssources budgctaires necessaires au linancement des operations de la procedure des ventes et des dcpenses y relatives. Arti cll' 29 : Sous peinc de nullite, ct sous sanctions encourues pour des infractions y relatives prevucs par le Code penal , II'S membres du Gouvemcment, 11'$ mcmbres de la Commission Chargee de la Vente des Biens du Domainc Prive de I'Etat, les agents mandates acet effet ainsi que leurs conjoints, descendants et ascendants directs ou allies au let degre ne peuvent se porter, meme par personne intcrposce acquereurs des biens a vendre, ni accepter aucune retrocession des objets dent la vente leur est contiee.
+
+Les memes interdictions s'appliqucnt aux consultants et experts dont la Commission se fait assister ainsi que leurs conjoints, descendants et ascendants directs ou allies au I'" degre.
+
+Section I : Procedure d e note des Biens Immobiliers du domain c prh'e de !' Etal. Art icle 30: Pour Ies biens immeubles, I'adjudication e51 autorisee par decrer aptes avis de 1a Commission Chargee de 1a vente des Biens du Domaine PriYC de l'Etat. Les biens immobiliers du domainc prive de l'Etat a mettre en vente sont enregisuis a la Commission Chargee de la Vente des Biens du Domaine Prive de I'Etat ct presentee au Conscil des Ministres par Ie Ministre ayant les Finances dans ses attributions qui exerce la responsabihte sur la Commission Chargee de la vente des Biens du Domaine Privc de l' Etal.
