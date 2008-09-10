@@ -1,0 +1,5 @@
+# Article 21
+
+La présente loi entre en vigueur le 1er janvier 2009.
+
+Fait à Bujumbura, le 10/9/2008 Pierre NKURUNZIZA (sé) PAR LE PRESIDENT DE LA REPUBLIQUE, VU ET SCELLE DU SCEAUX DE LA REPUBLIQUE, LE MINISTRE DE LA JUSTICE ET GARDE DES SCEAUX Jean Bosco NDIKUMANA (sé).

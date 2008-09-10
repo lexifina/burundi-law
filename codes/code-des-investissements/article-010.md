@@ -1,0 +1,3 @@
+# Article 10
+
+La République du Burundi s’interdit toute dis-crimination basée sur la nationalité en matière d’acquisition immobilière ou de location immobi-lière. Pour les besoins de leur installation, les entre-prises peuvent demander à bénéficier de la procé-dure d’expropriation pour cause d’utilité publique. Des terrains ou bâtiments appartenant à l’Etat peuvent faire l’objet, à leur profit, de vente, de lo-cation ou d’apport en société. L’Etat, les collectivités locales et les organismes publics ou semi-publics peuvent, le cas échéant, procéder au profit desdites entreprises, à ces amé-nagements de zones ou de terrains industriels.
