@@ -1,0 +1,3 @@
+# Article 3
+
+1. Sont nommés Sous-Commissaires Régionaux : Sous-Commissaire Régional Sud de la Po-lice Pénitentiaire : 2. OPC 2 BIZIMANA Emmanuel, OPN 0089 Sous-Commissaire Régional Est de la Po-lice Pénitentiaire : 3. OPC 2 KABURUNGU Augustin, OPN 0126 Sous-Commissaire Régional Est de la Po-lice Judiciaire : 4. OPC 2 SENTORE Blaise, OPN 0059 Sous-Commissaire Régional Centre de la Police Pénitentiaire : 5. OPC 3 NIKOKUBOKO Cyriaque, OPN 0214 Sous-Commissaire Régional Nord de la Police Pénitentiaire : 6. OPC 3 BAKUNDUKIZE Philippe, OPN 0193 Sous-Commissaire Régional Nord de la Police de Sécurité Intérieure : OPC 2 MPAGARIKIYE Léonidas, OPN 0271
