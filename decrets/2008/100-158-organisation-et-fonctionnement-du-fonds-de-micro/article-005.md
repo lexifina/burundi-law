@@ -1,0 +1,3 @@
+# Article 5
+
+-Le Fonds est administré par un Conseil d’Administration composé comme suit : - Un représentant du Vice-Ministère de tutelle, Président ; - Un représentant des Institutions de Micro-Finance (IMFs), Vice- Président, - Un représentant du Ministère de l’Economie, des Finances et de la Coopération au Déve-loppement, Membre ; - Une personne choisie pour ses compétences particulières en micro-finance, Membre ; - Le Directeur du FMCR, Secrétaire. Sauf pour la personne choisie pour ses com-pétences particulières en micro-crédit, les autres membres perdent la qualité de membre du Conseil d’Administration dès qu’ils ces-sent de faire partie du personnel de l’Administration publique qu’ils représentent au Conseil d’Administration.
