@@ -1,0 +1,3 @@
+# Article 6
+
+-La Commission comprend les membres perma-nents suivants : - Le Directeur Général du Bâtiment : Prési-dent ; - Un représentant du Ministère ayant la Bonne Gouvernance dans ses attributions: Vice-Président ; - Le Directeur de la Planification et de la Ges-tion Immobilières : Secrétaire ; - Un représentant du Ministère ayant les Fi-nances dans ses attributions : Membre ; - Un représentant du Ministère ayant le Com-merce dans ses attributions : Membre ; - Un représentant du Ministère ayant l’Intérieur dans ses attributions : Membre Un représentant de l’institut des Statistiques et Etudes Economiques Burundi (ISTEEBU) : Membre ;
