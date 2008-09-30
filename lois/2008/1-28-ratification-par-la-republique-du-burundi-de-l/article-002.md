@@ -1,0 +1,7 @@
+# Article 2
+
+La présente loi entre en vigueur le jour de sa promulgation.
+
+Fait à Bujumbura, le 30 Septembre 2008, Pierre NKURUNZIZA. (sé) PAR LE PRESIDENT DE LA REPUBLIQUE. VU ET SCELLE DU SCEAU DE LA REPUBLIQUE, LE MINISTRE DE LA JUSTICE ET GARDE DES SCEAUX, Jean Bosco NDIKUMANA. (sé). INSTRUMENT DE RATIFICATION PAR LA REPUBLIQUE DU BURUNDI DE L’ACCORD DE DON DE DEVELOPPEMENT N° H 383-BI ENTRE LA REPUBLIQUE DU BURUNDI ET L’ASSOCIATION INTERNATIONALE DE DEVELOPPEMENT RELATIF AU FINANCEMENT ADDITIONNEL EN FAVEUR DU PROJET MULTISECTORIEL DE LUTTE CONTRE LE SIDA (PMLS), SIGNE A BUJUMBURA LE 16 JUILLET 2008. Nous, Pierre NKURUNZIZA PRESIDENT DE LA REPUBLIQUE ; Ayant vu et examiné l’Accord de Don de Déve-loppement n°H 383-BI entre la République du Bu-rundi et l’Association Internationale de Dévelop-pement, Relatif au Financement Additionnel en fa-veur du Projet Multisectoriel de Lutte Contre le SIDA (PMLS) signé à Bujumbura le 16 juillet 2008, L’avons approuvé et l’approuvons en toutes et chacune de ses dispositions conformément à la lé-gislation en vigueur au Burundi ; Déclarons qu’il est accepté, ratifié et confirmé ; Promettons qu’il sera intégralement et inviola-blement observé ; En foi de quoi, Nous avons donné le présent Instrument de ratification revêtu du Sceau de la République.
+
+Fait à Bujumbura, le 30 Septembre 2008 Pierre NKURUNZIZA (sé) PAR LE PRESIDENT DE LA REPUBLIQUE. VU ET SCELLE DU SCEAU DE LA REPUBLIQUE, LE MINISTRE DE LA JUSTICE ET GARDE DES SCEAUX Jean Bosco NDIKUMANA (sé).
