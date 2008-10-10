@@ -1,0 +1,7 @@
+# Article 2
+
+Au sens de la présente loi, on entend par : 1. « mine antipersonnel», une mine conçue pour exploser du fait de la présence, de la proximité ou du contact d’une personne et destinée à mettre hors de combat, blesser ou tuer une ou plusieurs per-sonnes ;
+
+Les mines conçues pour exploser du fait de la présence, de la proximité ou du contact d’un véhi-cule et non d’une personne, qui sont équipées de dispositifs antimanipulation ne sont pas considé-rées comme des mines antipersonnel du fait de la présence de ce dispositif ; 2. « mine » un engin conçu pour être placé sous ou sur le sol ou une autre surface ou à proximité, et pour exploser du fait de la présence, de la proximi-té ou à proximité, et pour exploser du fait de la présence, de la proximité ou du contact d’une per-sonne ou d’un Véhicule ; 3. « dispositif antimanipulation », un dispositif destiné à protéger une mine et qui fait partie de celle-ci, est relié à celle-ci, attaché à celle-ci ou placé sous celle-ci, et qui se déclenche en cas de manipulation ou autre dérangement intentionnel de la mine ; 4. « transfert », outre le retrait matériel des mines antipersonnels du territoire d’un Etat ou leur introduction matérielle dan celui d’un autre Etat, le transfert du droit de propriété et du contrôle sur ces mines, mais non la cession d’un territoire sur lequel des mines antipersonnel ont été mises en place.
+
+Titre II Des interdictions et dérogations Chapitre 1 Des interdictions
