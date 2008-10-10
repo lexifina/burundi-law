@@ -1,0 +1,7 @@
+# Article 2
+
+La présente loi entre en vigueur le jour de sa promulgation.
+
+Fait à Bujumbura, le 10 octobre 2008, Pierre NKURUNZIZA. (sé) PAR LE PRESIDENT DE LA REPUBLIQUE. VU ET SCELLE DU SCEAU DE LA REPUBLIQUE, LE MINISTRE DE LA JUSTICE ET GARDE DES SCEAUX. Jean Bosco NDIKUMANA. (sé). INSTRUMENT D’ADHESON PAR LA REPUBLIQUE DU BURUNDI A LA CONVENTION SUR L’INTERDICTION OU LA LIMITATION DE L’EMPLOI DE CERTAINES ARMES CLASSIQUES QUI PEUVENT ETRE CONSIDEREES COMME PRODUISANT DES EFFETS TRAUMATIQUES EXCESSIFS OU COMME FRAPPANT SANS DISCRIMINATION, ADOPTEE A GENEVE, LE 10 OCTOBRE 1980. NOUS, PIERRE NKURUNZIZA, PRESIDENT DE LA REPUBLIQUE DU BURUNDI ; Ayant vu et examiné la Convention sur l’interdiction ou la limitation de l’emploi de cer-taines armes classiques qui peuvent être considé-rées comme produisant des effets traumatiques excessifs ou comme frappant sans discrimination, adoptée à Genève, le 10 octobre 1980 ; L’avons approuvée et l’approuvons en toutes et chacune de ses dispositions conformément à la législation en vigueur au Burundi ; Déclarons y adhérer formellement et sans ré-serve ; Promettons qu’elle sera intégralement et invio-lablement observée ; EN FOI DE QUOI, Nous avons donné le pré-sent Instrument d’adhésion revêtu du Sceau de la République.
+
+Fait à Bujumbura, le 10 Octobre 2008, Pierre NKURUNZIZA. (sé) PAR LE PRESIDENT DE LA REPUBLIQUE. VU ET SCELLE DU SCEAU DE LA REPUBLIQUE, LE MINISTRE DE LA JUSTICE ET GARDE DES SCEAUX. Jean Bosco NDIKUMANA (sé).
