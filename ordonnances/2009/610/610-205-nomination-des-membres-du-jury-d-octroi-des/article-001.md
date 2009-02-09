@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres du Jury de l’octroi des Diplômes d’Etat, session 2008, les personnes suivantes : - Madame NDABIRINDE Adélaïde : Président - Monsieur NYAMPETA Boniface : Vice-Président pour l’Enseignement Secondaire Général et Pédagogique - Madame MPOZERINIGA Félix : Vice-Président pour l’Enseignement Secondaire Technique - Madame BITSURE Jeanne : Secrétaire - Madame NDAYISENGA Madeleine : Membre - Monsieur BARANSHARITSE Hilaire : Membre - Madame BUCUMI Hilde: Membre - Monsieur SINDAYE Séverin: Membre - Monsieur NITEREKA Dominique: Membre - Monsieur NIYONZIMA Jean Claude : Membre - Madame WEGE Aline : Membre - Madame MIHOFO Pascaline : Membre - Monsieur MANIRAMBONA Côme : Membre - Madame NDAYISHEMEZA Gloriose : membre - Madame RUGAMIRA Dévote : Membre
