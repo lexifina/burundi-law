@@ -1,0 +1,3 @@
+# Article 10
+
+Pour les livraisons de produits extraits ou fabri-qués au Burundi et autres échanges de biens, par le prix de vente réclamé au client ou par toutes les sommes, valeurs, biens ou services reçus ou à rece-voir en contrepartie. Pour les prestations de services, par le prix des services ou par toutes les sommes, valeurs, biens ou services reçus ou à recevoir en contrepartie. Pour les travaux immobiliers, par le montant des mémoires, marchés, factures ou acomptes, y com-pris les travaux confiés à des sous-traitants. Pour les livraisons à soi-même, par la valeur dé-terminée par la comparaison avec le prix normal des biens, services ou travaux similaires. Cette valeur ne peut en aucun cas être inférieure au prix de revient.
