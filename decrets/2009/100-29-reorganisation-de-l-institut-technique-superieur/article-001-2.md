@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont désignés membres de la Cellule de Gestion des Marchés Publics au Ministère de la Lutte contre le Sida ; 1. Monsieur NIYOBAMPAMA Libère, Di-recteur Général de la Planification, de la Prospective et de la Prise en Charge Glo-bale ; 2. Madame NDAYISENGA Glorisose, Direc-trice de la Planification et du Suivi Evalua-tion ; 3. Docteur NDABIHORE Nina, Directrice de la Prise en charge Globale ; 4. Monsieur HARAMATEGEKO Hugo, Conseiller à la Direction Générale de la Planification, de la Prospérité et de la prise en charge Globale ; 5. Madame NDAYININAHAZA Goreth, Conseillère au Cabinet du Ministre ; 6. Madame KANUMA Claire, Conseillère à la Direction de la Coordination des Pro-grammes.
