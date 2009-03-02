@@ -1,0 +1,3 @@
+# Article 3
+
+Les autres membres de la Cellule de Gestion des Marchés Publics sont : - Monsieur Iréné NDAYAMBAJE, Conseiller au Secrétariat Général de la Cour Suprême ; - Madame Josiane HABONIMANA, Conseiller au Secrétariat Général de la Cour Suprême - Madame Hélène IRAKOZE, Secrétaire en Chef au Secrétariat Général de la Cour Suprême - Madame Radegonde MVUYEKURE Secrétariat en Chef au Secrétariat Général de la Cour Suprême - Monsieur Ferdinand NSABIMANA, Huissier de la Cour Suprême - Madame Léonie HARERIMANA, Secrétaire à la Cour Suprême - Monsieur Nicolas SIMBANANIYE, Secrétariat au Parquet Général de la Répu-blique.
