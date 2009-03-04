@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés Membres de la Cellule de Gestion des Marchés Publics les personnes dont les noms suivent :  Monsieur Georges NYAMWANA : Expert, Ingénieur Civil en Construction au PRODAP ;  Monsieur Antoine KIYUKU : Expert en Pêches au PRODAP ;  Monsieur Félix NICAYENZI : Expert en Environnement au PRODAP ;  Monsieur Fidèle BASHIRWA : Directeur de la Direction des Eaux, Pêches et Pisciculture ;  Monsieur Déogratias KAREGA : Directeur du Centre National de Déve-loppement de l’Aquaculture et de la Pêche Artisanale ;  Monsieur Charles NDARUSANZE : Représentant le Ministère de l’Agriculture et de l’Elevage ;  Madame Jeanine NJEJIMANA : Représen-tant le Ministère de l’Agriculture et de l’Elevage.
