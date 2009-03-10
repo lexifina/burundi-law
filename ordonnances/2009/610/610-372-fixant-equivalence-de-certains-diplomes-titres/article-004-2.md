@@ -1,0 +1,3 @@
+# Article 4 2
+
+La cellule de Gestion des Marchés Publics (CGMP) à l’hôpital de BURURI est composé de :  Monsieur Nestor MWAMARAKIZA, Direc-teur Adjoint chargé de l’Administration et des Finances à l’Hôpital de BURURI ;  Madame Béatrice NIYONIZIGIYE, Chef Nursing ;  Madame Mariette BAZIRA, Chef Comp-table,  Madame Anésie BIZIMANA, Responsable de la Pharmacie ;  Monsieur Léonard NDAYIZEYE, Respon-sable syndical ;  Monsieur Rémy HAKIZIMANA, Respon-sable de la Maintenance ;  Expert en passation des marchés publics le cas échéant ;  Toute autre personne compétente selon la na-ture du marché.
