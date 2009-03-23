@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommés membres de la sous commission Autorité Régulatoire et Interprofession de la Filière Café du Burundi :  Monsieur Gaspard GACIYUBWENGE, Ex-pert du SCEP, Président ;  Ambassadeur Salvator NTIHABOSE, Direc-teur Général de l’ISABU, Vice-Président ;  Madame Illuminata NDABAHANGAMYE, Expert du SCEP, Secrétaire ;  Monsieur Evariste NGAYEMPORE, Direc-teur Général de l’OCIBU ;  Monsieur Prosper Mérimée BIGIRINDAVYI, Directeur Général de la SOGESTAL KIRUNDO-MUYINGA ;  Monsieur Alexandre SINDAYIGAYA, Di-recteur Adjoint à la BCB ;  Monsieur Pascal GIRUKWISHAKA, Direc-teur Economique de l’OCIBU.

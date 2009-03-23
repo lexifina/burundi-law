@@ -1,0 +1,3 @@
+# Article 1 4
+
+Sont nommés membres de la cellule de gestion des Marchés Publics au sein du Centre National de Technologie Alimentaire les personnes ci-après : 1. Monsieur MANYANGE Herménégilde, chef du Service Technologie Alimentaire ; 2. Monsieur NKUNZIMANA Didace, Chef du service Administratif et Financier ; 3. Monsieur NSABIYUMVA Désiré, Chef du Service Génie Mécanique Alimentaire ; 4. Madame NAHIGOMBEYE Florence, Chef du Service Etudes et Promotion 5. Monsieur NTAHOMVUKIYE Stany, Chef de la section hall de technologie alimentaire ; 6. Monsieur NIBOGORA Eric, chef de la sec-tion Formation et Vulgarisation 7. Madame MINANI Marie Thérèse, Conseil-lère au Cabinet du Ministère de l’Agriculture et de l’Elevage.
