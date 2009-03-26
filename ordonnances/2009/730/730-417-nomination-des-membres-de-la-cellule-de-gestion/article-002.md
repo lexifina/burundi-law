@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommées Membres de la Cellule de Ges-tion des Marchés Publics :  Monsieur Melchior NAHIMANA : Président  Monsieur BARANCIRA Stanislas : Vice-Président ;  Monsieur BARARWENDERA Constance : Membre ;  Monsieur BARIKORE Dismas : Membre ;  Monsieur GATOBERWA Alphonse : Membre ;  Monsieur NDABAZANIYE Léonidas : Membre ;  Monsieur NDIKUNKIKO Jean : Membre ;  Monsieur NDIKURIYO Fabien : Membre ;  Madame NIRAGIRA Candide : Membre ;  Monsieur NTAMBAZO Mathias : Membre ;  Monsieur RUHURAMBUGA Déogratias : Membre ;  Madame RUSIMBI Marie Goreth : Membre ;  Monsieur SINZINKAYO Grégoire : Membre ;  Monsieur VUGANEZA Nicolas : Membre.
