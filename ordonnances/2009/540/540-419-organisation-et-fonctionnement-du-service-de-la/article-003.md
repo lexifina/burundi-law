@@ -1,0 +1,3 @@
+# Article 3
+
+Supervisé par un chef de bureau, le bureau du traitement de la solde est chargée de : • Saisir les salaires et pensions ; • Collecter des informations dûment validées relatives au traitement de la solde ; • Procéder à l’engagement, la liquidation et le calcul de la solde ; • Assurer les relations avec les organismes sociaux, et en particulier, calculer, liquider et préparer les titres de créances concernant les cotisations sociales ; • Préparer les dossiers de pensions et liqui-der les droits y afférents ; • Constater les titres de recettes et ordres de versements relatifs à la solde.

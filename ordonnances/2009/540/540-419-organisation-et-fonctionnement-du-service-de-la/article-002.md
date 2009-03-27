@@ -1,0 +1,3 @@
+# Article 2
+
+Supervisé par un chef de bureau, le bureau du con-trôle des actes administratifs relatifs aux dépenses de personnel est chargé de : • Vérifier la régularité de tous les actes ad-ministratifs du personnel de l’Etat ayant une incidence financière, soumis par le Ministère de la Fonction Publique, du tra-vail et de la Sécurité Sociale ; • Elaborer toute étude et états statistiques et de synthèse relatifs à la situation du per-sonnel de l’Etat ; • Confectionner et préparer les bordereaux des titres de créances des salaires, pensions et retenues ; • Tenir la comptabilité budgétaire des dé-penses du personnel.
