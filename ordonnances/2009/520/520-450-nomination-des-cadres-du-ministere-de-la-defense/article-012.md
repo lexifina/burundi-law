@@ -1,0 +1,3 @@
+# Article 12
+
+Sont nommés commandant d’unités : - Commandant Camp NGAGARA : Colonel Gaspard BARATUZA, SS0145 de la ma-tricule ; - Commandant Bataillon d’Infanterie La-custre : Lieutenant-colonel Léonidas NINDEREYE, SS0365 de la matricule ; - Commandant 313 Bataillon d’Infanterie : Major Michel NDENZAKO, SS0483 de la matri-cule ; - Commandant 314 Bataillon d’Infanterie : Major Elysé RUMBETI, SS0456 de la matricule ; - Commandant 322 Bataillon d’Infanterie : Major Sébastien NIYONKURU, SS0556 de la ma-tricule ; - Commandant 423 Bataillon d’Infanterie : Major Gervais KABISA, SS0538 de la matricule ; - Commandant de l’Ecole des Sous-Officiers : Major Ildephonse NIYOYUNGURUZA, SS0545 de la matricule ;
