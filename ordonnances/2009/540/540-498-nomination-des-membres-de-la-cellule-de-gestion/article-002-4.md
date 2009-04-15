@@ -1,0 +1,3 @@
+# Article 2 4
+
+Sont nommés respectivement membres titulaires et membres suppléants du Conseil National du Travail représentant les Employeurs : - Aloïs KIRAHUZI, Président de l’Association des Employeurs du Burundi (AEB) et Direc-teur Général de FABRIPLASTIC, Titulaire ; - Jean Paul NTUHURUMURYANGO, Secré-taire Exécutif de l’AEB, Suppléant ; - Salvator NIZIGIYIMANA, Directeur Géné-ral de l’ONATEL, Titulaire ; - Gérard WAKARERWA, Juriste à la SO-GERBU, Suppléant ; - Gaspard NZISABIRA, Secrétaire Général de l’AEB ; - Philibert NZIGAMASABO, Chef de person-nel à l’OCIBU ; - Selemani Bernard, Directeur Général de la SODECO, BANCOBU, Titulaire ; - Noëlle Potamie NTUNGA, Chef du Person-nel au Novotel, Suppléant.

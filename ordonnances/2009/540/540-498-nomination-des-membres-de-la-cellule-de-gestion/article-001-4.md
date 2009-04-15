@@ -1,0 +1,3 @@
+# Article 1 4
+
+Sont nommés membres titulaires et membres suppléants du Conseil National du Travail repré-sentant le Gouvernement : - Le Directeur Général du Travail et du Perfec-tionnement Professionnel, Titulaires ; - L’Inspecteur Général du Travail, Suppléant ; - Le Directeur Général du Commerce, Titu-laire ; - Le Président du Tribunal du Travail, Sup-pléant ; - Le Directeur Général de la Protection So-ciale, Titulaire ; - Le Directeur de l’Emploi, Suppléant ; - Le Représentant du Ministère de la Bonne Gouvernance et de l’Inspection Générale de l’Etat, Titulaire ; - Le Conseiller Juridique au Cabinet du Mi-nistre de la Fonction Publique, du Travail et de la Sécurité Sociale, Suppléant ;

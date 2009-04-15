@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés membres de la cellule de gestion des marchés publics au sein de la Loterie Nationale du Burundi : 1. NDAYIZEYE Samson Directeur Administratif et Financier 2. MVUKIYE Did-mond Directeur Commercial 3. NSABIMANA Salvator Conseiller Juridique et Contrôleur Interne 4. MUVUZANKIMA Jean-Bosco Chef de Service Comp-tabilité 5. NIMPAGARITSE Judith Chef des Services Géné-raux et du Personnel 6. NTIBANYIHA Aimé Chef de Service Réseau Commercial, Ventes et Remboursements 7. NDAYISENGA Spès Caritas Chef de Service Recou-vrement 8. KANYANGE Alice Chef Adjoint des Ser-vices Généraux et du personnel 9. NDAYIRAGIJE Angélique Secrétaire de Direction 10. KARIRE Béatrice Chargée du stock 11. NIBOGORA Ma-gnustine Chef Comptable Adjoint
