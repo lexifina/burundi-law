@@ -1,0 +1,3 @@
+# Article 3 3
+
+Sous la supervision de la Direction des trans-ports internationaux, le service des Etudes et Plani-fication est chargé de la mise en œuvre des poli-tiques de développement des transports internatio-naux de surface par : - L’initiation des études pour le développe-ment du secteur des transports internatio-naux de surface ; - Le suivi des études et des travaux d’infrastructures et installations des trans-ports internationaux de surface ; - Le traitement des dossiers des demandes d’agrément des opérateurs du secteur des transports internationaux de surface ; - La planification de la formation dans les domaines des transports internationaux de surface ; - L’élaboration et le suivi des politiques des transports internationaux de surface.

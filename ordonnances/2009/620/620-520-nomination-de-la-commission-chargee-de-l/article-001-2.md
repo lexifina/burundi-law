@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommés membres de la Commission d’Evaluation et de Délivrance des Certificats de Compétence en navigation maritime, les personnes dont les noms suivent : - Monsieur Melchior BARANTANDIKIYE, Directeur du Département des Transports In-ternationaux, Président - Colonel Ambroise MANIRAKIZA, Com-mandant de la Marine à l’Etat Major Général de la Force de Défense Nationale, Vice-Président ; - Monsieur Augustin NKENGURUTSE, Ma-gistrat, Conseiller au Cabinet du Ministre de la Justice et Garde des Sceaux ; - Monsieur Dieudonné DUKUNDANE, Capi-taine de Bateaux et Conseiller au Départe-ment des Transports Internationaux, Secré-taire ; - Monsieur Henri HAVYARIMANA, Capi-taine de Bateaux à l’ARNOLAC.

@@ -1,0 +1,3 @@
+# Article 2 2
+
+La commission d’Evaluation et de Délivrance des Certificats de Compétence a pour missions de : - Evaluer la validité de tous les certificats de compétence et délivrer des certificats opéra-tionnels ; - Evaluer et vérifier les titres de navigation dé-livrées par des Institutions de formation et délivrer des certificats de reconnaissance ; - Appliquer les exigences et les normes de cer-tification des Officiers de pont, des Officiers mécaniciens et autres membres d’équipage ; - Organiser les examens de qualification nau-tiques et délivrer les certificats de compé-tence ; - Constater l’inaptitude du personnel naviguant et suspendre ou annuler, le cas échéant, leurs certificats de compétence ;

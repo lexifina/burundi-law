@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Commission d’organisation du Test National de fin de Collège, Edition 2009, les personnes suivantes : 1. Monsieur NYAMPETA Boni-face : Coordonna-teur 2. Monsieur NTAMATUNGIRO Edouard : Président 3. Madame CIMPAYE Jeannine : Vice-Président 4. Monsieur KARITUNZE Ilde-fonse : Secrétaire 5. Monsieur NYABENDA Fran-çois : Membre 6. Madame NDAYISHIMIYE Gertrude : Membre 7. Madame NINDORERA Alice : Membre 8. Madame RUSUKU Laurence : Membre 9. Madame BIGIRIMANA Ré-becca : Membre 10. Monsieur BIGIRIMANA As-tère : Membre 11. Monsieur NDIRAHISHA Ju-vénal : Membre 12. Madame NDAYISHIMIYE Félicité : Membre (appui à la saisie) 13. Madame NYINAWUMUNTU Farida : Membre (appui à la saisie) 14. Madame KAMARIZA Révo-cate : Membre (appui à la saisie)

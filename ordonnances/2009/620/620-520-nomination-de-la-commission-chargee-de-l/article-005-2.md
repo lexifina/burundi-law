@@ -1,0 +1,3 @@
+# Article 5 2
+
+Sous la supervision de la Direction des trans-ports internationaux, le service de Mouvement et Trafic, est chargé du suivi au quotidien du trafic et des statistiques de transports internationaux par : - La collecte et le traitement des données sta-tistiques des mouvements et trafics des marchandises et des passagers internatio-naux ; - L’immatriculation du personnel navigant et du personnel des transports internationaux routier et ferroviaire ; - L’organisation et l’encadrement des trans-porteurs et transitaires internationaux ; - Les inspections de départ et d’arrivée des bateaux de commerce ; - La délivrance des permis de sortie des ba-teaux de commerce ; - La perception des recettes administratives du Département des Transports internatio-naux.
