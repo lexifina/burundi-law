@@ -1,0 +1,3 @@
+# Article 381
+
+Lorsque l'outrage est adressé au chef de l'Etat, à un parlementaire, un membre du gouvernement, un magistrat, un fonctionnaire ou agent de l'autorité publique ou de la force publique dans l'exercice ou à l'occasion de l'exercice de leurs fonctions, l'auteur est puni de six mois à deux ans de servitude pénale et d'une amende de cinquante mille francs à cent mille francs ou d'une de ces peines seulement. Lorsque l'outrage a lieu lors d'une séance ou d'une réunion publique ou au cours d'une audience d'une Cour ou d'un Tribunal, les peines sont de six mois à trois ans et d'une amende de cinquante mille francs à deux cent mille francs ou d'une de ces peines seulement.

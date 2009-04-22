@@ -1,0 +1,3 @@
+# Article 382
+
+Celui qui a frappé l'une ou l'autre personne vi-sée à l'article 381 dans l'exercice ou à l'occasion de l'exercice de ses fonctions, est puni d'une servitude pénale de d'un an à trois ans et d'une amende de cent mille francs à trois cent mille francs. Si les coups portés ont occasionné une mutila-tion ou une infirmité permanente, la servitude pé-nale est portée de trois ans à dix ans et l'amende de cent mille francs à trois cent milles francs. Si les coups portés, sans intention de donner la mort, l'ont pourtant causée, la servitude pénale est portée de quinze ans à trente ans et d'une amende de cent mille francs à cinq cent mille francs.

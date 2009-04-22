@@ -1,0 +1,3 @@
+# Article 300
+
+Quiconque, dans le but de s'approprier une chose appartenant à autrui, s'est fait remettre ou délivrer des fonds, meubles, obligations, quit-tances, soit en faisant usage de faux noms ou de fausses qualités, soit en employant des manœuvres frauduleuses pour persuader l'existence de fausses entreprises, d'un pouvoir ou d'un crédit imaginaire, pour faire naître l'espérance ou la crainte d'un suc-cès, d'un accident ou de tout autre événement chi-mérique, pour abuser autrement de la confiance ou de la crédulité, est puni d'une servitude pénale de deux mois à cinq ans et d'une amende de cinquante mille francs à deux cent mille francs ou d'une de ces peines seulement.

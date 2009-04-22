@@ -1,0 +1,3 @@
+# Article 284
+
+Est puni d'une servitude pénale de trois mois à un an et d'une amende de cinquante mille francs à deux cent mille francs, le commerçant déclaré en faillite qui 1. Après cessation de payements, a favorisé un créancier au détriment de la masse ; 2. A, pour ses besoins personnels ou ceux de sa maison, fait des dépenses excessives ; 3. A consommé de fortes sommes au jeu, à des opérations de pur hasard ou des opéra-tions fictives 4. A, dans l'intention de retarder sa faillite, fait des achats pour revendre au dessus du cours ou, dans la même situation, s'est livré à des emprunts, circulations d'effets et autres moyens ruineux de se procurer des fonds.

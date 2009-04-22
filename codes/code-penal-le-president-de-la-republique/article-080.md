@@ -1,0 +1,3 @@
+# Article 80
+
+Lorsque le suivi socio-judiciaire accompagne une peine privative de liberté sans sursis, il s'ap-plique à compter du jour de la privation de liberté. Lorsque les mesures prescrites dans le cadre du suivi socio-judiciaire ne peuvent s'exécuter dans une maison de détention, toute incarcération du condamné suspend le délai légal du suivi socio-judiciaire de ce dernier. L'emprisonnement ordonné en raison de l'inob-servation des obligations résultant du suivi socio-judiciaire se cumule avec les peines privatives de liberté prononcées pour des infractions commises pendant l'exécution de la mesure.

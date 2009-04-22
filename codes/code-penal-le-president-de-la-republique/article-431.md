@@ -1,0 +1,3 @@
+# Article 431
+
+Est punie d'une servitude pénale de cinq ans à dix ans et d'une amende de cinquante mille francs à cinq cent mille francs, toute personne dépositaire de l'autorité publique, chargée d'une mission de service public ou investie d'un mandat public élec-tif, qui a sollicité ou agréé, sans droit, directement ou indirectement, pour son propre compte ou pour le compte d'autrui, des offres, des promesses, des dons, des présents ou des avantages quelconques pour user de son influence réelle ou supposée en vue de faire obtenir d'une autorité ou d'une admi-nistration publique des distinctions, des emplois, des marchés ou toute autre décision favorable.

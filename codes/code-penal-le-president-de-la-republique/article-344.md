@@ -1,0 +1,3 @@
+# Article 344
+
+Soit par des écritures faites ou intercalées sur des registres. Est puni d'une servitude pénale d'un an à dix ans et d'une amende de cinquante mille francs à cent mille francs, tout magistrat, tout fonctionnaire ou officier public qui, en rédigeant des actes de sa fonction, en dénature frauduleusement la substance ou les circonstances, soit en écrivant les conven-tions autres que celles qui ont été tracées ou dictées par les parties, soit en constatant comme vrais des faits qu'il savait faux, soit en attestant faussement que les faits avaient été avoués ou s'étaient passés en sa présence, soit en omettant ou en modifiant volontairement des déclarations reçues par lui.

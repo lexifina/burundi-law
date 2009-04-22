@@ -1,0 +1,3 @@
+# Article 601
+
+Est puni d'une servitude pénale d'un an à cinq ans et d'une amende de cinquante mille francs à deux cent mille francs, ou d'une de ces peines seu-lement, quiconque reçoit d'une personne ou d'une organisation étrangère, directement ou indirecte-ment, sous quelque forme et à quelque titre que ce soit, des dons, présents, prêts ou autres avantages, destinés ou employés en tout ou en partie à mener ou rémunérer au Burundi une activité ou une pro-pagande de nature à porter atteinte à l'intégrité ou à l'indépendance du Burundi, ou à ébranler la fidélité que les citoyens doivent à l'Etat et aux Institutions du Burundi.

@@ -1,0 +1,3 @@
+# Article 22
+
+La responsabilité pénale des personnes morales n'exclut pas celle des personnes physiques auteurs ou complices des mêmes faits.

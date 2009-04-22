@@ -1,0 +1,3 @@
+# Article 334
+
+Sont punis des peines prévues à l'article précé-dent: 1. 2. Ceux qui ont reçu ou se sont indûment pro-curés les vrais sceaux, timbres, poinçons ou autres marques de l'Etat, ou d'un Etat étran-ger, des administrations publiques nationales ou internationales, en ont fait une application ou un usage préjudiciable aux droits et aux intérêts de l'Etat d'une autorité quelconque ou même d'un particulier ; 3. Ceux qui ont mis en vente, distribué ou fait un quelconque usage de ces papiers à en-têtes ainsi fabriqués ou falsifiés. Ceux qui ont fabriqué ou falsifié les papiers ou imprimés à en-têtes officiels en usage dans les assemblées instituées par la Consti-tution, les administrations publiques, les par-quets ou les juridictions ;

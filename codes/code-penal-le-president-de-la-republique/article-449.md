@@ -1,0 +1,3 @@
+# Article 449
+
+Les loteries sont prohibées. Sont réputées loteries, toutes opérations offertes au public sous quelque dénomination que ce soit et destinées à faire naître l'espérance d'un gain qui serait acquis par la voie du sort. Article Les auteurs, entrepreneurs, administrateurs, préposés ou agents de loterie sont punis d'un an à deux ans de servitude pénale et d'une 450 amende cin-quante mille francs au maximum. Sont confisqués, les objets mobiles mis en lote-rie et ceux employés ou destinés à son service. Lorsqu'un immeuble a été mis en loterie, la con-fiscation spéciale est remplacée par une amende de cinquante mille francs à deux cent mille francs.

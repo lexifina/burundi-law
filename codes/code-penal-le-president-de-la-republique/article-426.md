@@ -1,0 +1,5 @@
+# Article 426
+
+Est puni d'une servitude pénale de cinq ans à dix ans et d'une amende portée du simple jusqu'au double de la valeur du profit illicite acquis, celui qui a proposé, sans droit, directement ou indirecte-ment, des offres, des promesses, des dons, des pré-sents ou des avantages quelconques pour obtenir d'une personne dépositaire de l'autorité publique, chargée d'une mission de service public ou investie d'un mandat public électif, qu'elle accomplisse ou s'abstienne d'accomplir un acte de sa fonction, de sa mission ou de son mandat ou facilité par sa fonc-tion ou son mandat. Est puni des mêmes peines le fait de céder à une personne dépositaire de l'autorité publique, chargée d'une mission de service public ou investie d'un mandat public électif, qui sollicite, sans droit, di-rectement ou indirectement, des offres, des promesses, des dons, des présents ou des avantages quelconques pour accomplir ou s'abstenir d'accom-plir un acte visé à l'alinéa précédent.
+
+Sous-section 2 De la corruption des personnes n'exerçant pas une fonction publique

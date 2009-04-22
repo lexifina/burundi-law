@@ -1,0 +1,3 @@
+# Article 329
+
+Sont punis d'une servitude pénale de cinq ans à dix ans et d'une amende de cinquante mille francs à cinq cent mille francs, ceux qui, sans être cou-pables de participation, se sont procurés, avec con-naissance, des monnaies métalliques ou des billets au porteur visés à l'article 328, les ont mis en circu-lation. Sont punis d'une servitude pénale d'un an à cinq ans et d'une amende de cinquante mille francs à cent mille francs, ceux qui, dans le but de les mettre en circulation, ont reçu ou se sont procurés, des monnaies métalliques ou des billets au porteur visés à l'article 328.

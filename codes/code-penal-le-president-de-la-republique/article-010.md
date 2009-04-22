@@ -1,0 +1,5 @@
+# Article 10
+
+Tout délit ou crime commis hors du territoire national par un Burundais ou un étranger est, sous réserve des conventions sur l'extradition, puni par la loi pénale du Burundi si l'auteur se trouve au Bu-rundi ou si la victime a la nationalité burundaise et que le fait est puni par la législation du pays où l'in-fraction a été commise. Dans les infractions autres que celles relatives à la contrefaçon des sceaux de l'Etat et des monnaies nationales, celles relatives aux actes de torture, au terrorisme, au génocide, aux crimes contre l'huma-nité et aux crimes de guerre, la poursuite et le ju-gement des infractions commises à l'étranger sont subordonnés au dépôt d'une plainte par la partie lésée ou à la dénonciation officielle de l'autorité du pays où l'infraction a été commise.
+
+La compétence des tribunaux burundais, en ce qui concerne le crime de génocide, le crime contre l'humanité et les crimes de guerre, n'est pas assujet-tie à ce que ces crimes soient punis par la législa-tion du pays où ils ont été commis ni aux conven-tions sur l'extradition.

@@ -1,0 +1,3 @@
+# Article 307
+
+Est puni d'une servitude pénale de huit jours à deux ans et d'une amende de vingt mille à cent mille francs ou d'une de ces peines seulement celui qui, sachant qu'il est dans l'impossibilité absolue de payer : 2. S'est fait donner un logement dans un hôtel où il s'est présenté comme voyageur ; 3. 4. Se fait transporter dans un bus ou tout autre moyen de transport public assurant le dé-placement rémunéré des personnes ; A pris en location une voiture de louage ; 5. 6. Se fait offrir un service de téléphone, fax, Internet ou secrétariat; Se fait offrir de l'eau et de l'électricité. S'est fait fournir du carburant ou du lubri-fiant;

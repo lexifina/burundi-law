@@ -1,0 +1,3 @@
+# Article 188
+
+Le condamné adresse la demande de réhabilita-tion à l'Officier du Ministère Public de sa rési-dence. Cette demande précise la date de la con-damnation et les lieux où le condamné a résidé de-puis sa libération. L'Officier du Ministère Public procède à une enquête de moralité sur le condamné. Il se fait délivrer une expédition des jugements de condamnation, un extrait du registre des lieux de détention où la peine a été subie et constatant quelle a été la conduite du condamné ainsi qu'un bulletin du casier judiciaire. Il transmet les pièces avec son avis au Procureur Général près la Cour d'Appel.
