@@ -1,0 +1,3 @@
+# Article 2
+
+Les engagements des dépenses sont régulés au moyen des dispositifs existants suivants : - Pour les dépenses des charges de la dette (intérêts et principal) les engagements sont réalisées conformément au calendrier d’amortissement établi. - Pour les dépenses de salaires, la régulation se fait notamment à travers la mise en œuvre du visa préalable au recrutement des nouveaux agents, visa prévu par l’article 35 de la loi de Finances 2009. - Pour les dépenses d’investissement, la régulation des engagements de dépenses est réalisée conformément aux plans annuels de passation des marchés publics prévus par l’article 15 du code des marchés publics.
