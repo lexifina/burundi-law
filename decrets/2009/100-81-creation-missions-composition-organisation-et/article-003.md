@@ -1,0 +1,3 @@
+# Article 3
+
+La Commission comprend les membres sui-vants : 1. Six Représentants du Conseil National du Travail ; 2. Un Représentant de la Présidence de la Ré-publique ; 3. Un Représentant de la Première Vice-Présidence de la République ; 4. Un Représentant de la Deuxième Vice-Présidence de la République ; 5. Trois Représentants du Ministère de la Fonc-tion Publique, du Travail et de la Sécurité Sociale ; 6. Deux Représentants du Ministère des Fi-nances ; 7. Un Représentant du Ministère de la Santé Publique ; 8. Un Représentant du Ministère de l’Enseignement Primaire et Secondaire ; 9. Un Représentant des Syndicats des Ensei-gnants.

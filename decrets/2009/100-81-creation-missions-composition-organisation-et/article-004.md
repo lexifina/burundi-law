@@ -1,0 +1,3 @@
+# Article 4
+
+Sa composition est établie comme suit : 1. Monsieur Pierre NTIRABAMPA, Président ; 2. Madame Marie BUKURU, Vice-Président ; 3. Monsieur Philippe NUWAKAMWE, Membre ; 4. Monsieur Célestin NSAVYIMANA ; Membre ; 5. Monsieur Philbert NZIGAMASABO, Membre ; 6. Monsieur Jean Paul NTUHURUMURYANGO, Membre ; 7. Monsieur Liévin MACUMI, Membre ; 8. Monsieur Prosper BIGIRIMANA, Membre ; 9. Monsieur Jean SINDAYIGAYA, Membre ; 10. Madame Marie Rosette NIZIGIYIMANA, Membre ; 11. Madame Caritas KAZAGE, Membre ; 12. Monsieur Deus NGERAGEZE, Membre ; 13. Monsieur Jacques NGENDAKUMANA ; Membre ; 14. Monsieur Nicodème NIMENYA, Membre ; 15. Monsieur Barnabé MAHENEHENE, Membre ; 16. Monsieur Gaspard KOBAKO ; Membre ; 17. Monsieur Philbert NGEZAHAYO, Membre.
