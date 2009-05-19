@@ -1,0 +1,5 @@
+# Article 11
+
+Les missions du Centre de Développement des Compétences (CDCP) sont les suivantes : - En collaboration avec d’autres Ministères, faire des études en terme de besoins locaux de formation professionnelle par rapport au marché de l’emploi et de l’auto-emploi ; - Suivre l’évolution de la technologie, de la recherche et les normes pédagogiques au niveau national, régional (Communauté de l’Afrique de l’Est) et international en vue d’adapter et/ou de créer des modules de formation aux métiers jugés nécessaires ; - En collaboration avec d’autres Ministères, organiser des formations continues des formateurs et développer des compétences professionnelles suivant les besoins du secteur de la production ; - Nouer des partenariats avec d’autres établissements de formation de renom dans le domaine des technologies ; - Coordonner, régler et contrôler les formations professionnelles en appui à la Direction Générale de l’Enseignement des Métiers et de la Formation Professionnelle.
+
+Le Centre de Développement des Compétences Professionnelles (CDCP) est une Administration personnalisée et sera mis en place par un décret.

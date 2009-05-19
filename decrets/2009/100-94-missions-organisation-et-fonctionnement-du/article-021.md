@@ -1,0 +1,5 @@
+# Article 21
+
+Les niveaux d’enseignement professionnel, les structures de formation et pré-requis des catégories cibles potentielles sont les suivants : - Enseignement des métiers comme niveau primaire d’apprentissage dans les Centres d’Enseignement des Métiers (CEM) au profit de toute personne désireuse et plus particulièrement les analphabètes/néo-alphabètes et les déscolarisés de l’éducation classique jusqu’en 8ème année ; - Formation professionnelle comme niveau de qualification professionnelle dans les Centres de Formation Professionnelle (CFP) au profit de toute personne avec un minimum de la 9ème année ;
+
+Le développement professionnel comme niveau de conception, de création et d’ajustement dans le Centre de Développement des Compétences Professionnelles (CDCP) sera organisé pour toute personne avec un minimum des Humanités ou de la qualification des Centres de Formation Professionnelle (CFP). En concertation avec les Ministères en charge de l’enseignement formel classique, les modes d’évolution dans le cursus de formation professionnelle et les passerelles entre l’enseignement formel et la formation professionnelle seront régis par un Décret.

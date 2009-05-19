@@ -1,0 +1,3 @@
+# Article 18
+
+La Direction de l’Education préscolaire est chargée de : - Participer à l’élaboration et suivre l’exécution de la politique nationale en matière d’enseignement préscolaire ; - Organiser et coordonner les activités de l’enseignement préscolaire ; - Participer à toute action d’innovation éducative ainsi qu’aux actions de formation continue des maîtres en collaboration avec les services concernés ; - Participer, en collaboration avec les services concernés, à la production des matériels didactiques des écoles maternelles ; - Diffuser et assurer le suivi des instructions du Ministère dans les écoles maternelles.
