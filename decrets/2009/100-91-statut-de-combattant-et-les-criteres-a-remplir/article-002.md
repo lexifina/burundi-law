@@ -1,0 +1,3 @@
+# Article 2
+
+Les critères de détermination du statut de combattant pour les membres des FNL sont arrêtés comme suit : - Faire preuve de l’appartenance aux FNL, être identifié physiquement, être enregistré sur la liste certifiée soumise au MCVS et présenter une arme individuelle en état de fonctionnement ou avoir accès à une arme collective conformément aux ratios spécifiés dans l’annexe au présent décret. - Etre reconnu comme combattant par l’Equipe Mixte de Liaison (EML) du MCVS après avoir démontré ses connaissances militaires pour avoir participé aux combats au Burundi au sein du Palipehutu-FNL avant la signature de l’Accord Global de cessez-le-feu.
