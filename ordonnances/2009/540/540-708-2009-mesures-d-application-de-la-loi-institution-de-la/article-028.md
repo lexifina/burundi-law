@@ -1,0 +1,5 @@
+# Article 28
+
+Le responsable de l’administration fiscale est chargé de l’application de la présente ordonnance qui entre en vigueur à partir du premier juillet 2009.
+
+Fait à Bujumbura, le 01/06/2009 La Ministre des Finances Clotilde NIZIGAMA (sé) Annexe Annexe prévue par l’article 21 de l’ordonnance ministérielle n° 540/708/2009 du 2/6/2009 relative à l’application de la loi n° 1/02 du 17 février 2009 portant institution de la Taxe sur la Valeur Ajoutée (TVA). TABLEAU INDIQUANT LES PERSONNES CONCERNEES ET LES MONTANTS FAISANT OBJET DE DEMANDE DE REMBOURSEMENT DES CREDITS DE TVA. N° d’ordre Secteurs ou personnes con-cernées Montant fixé pour le trimestre Montant fixé pour l’année Période par-ticulière 1 Ambassades, Consulats et Organismes Internationaux - - Sans délai et sans limite 2 Organismes de caractère social - - Sans délai et sans limite 3 Exportateurs Supérieur ou égal à 5.000.000 F BU Supérieur ou égal à 2.000.000 F BU - 4 Investisseurs industriels Supérieur ou égal à 5.000.000 F BU Supérieur ou égal à 2.000.000 F BU - 5 Entreprises commerciales ou des professions libérales Supérieur ou égal à 15.000.000 F BU Supérieur ou égal à 10.000.000 F BU -

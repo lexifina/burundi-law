@@ -1,0 +1,3 @@
+# Article 2
+
+Une personne est assujettie, lorsqu’elle réalise un chiffre d’affaires annuel supérieur ou égal à cent millions de francs burundais (100.000.000 Fbu). Sont également assujetties et redevables de la taxe, les personnes dont le chiffre d’affaires sera redressé à plus de cent millions de francs burundais (100.000.000 Fbu) après le contrôle fiscal, qu’il y ait eu ou non dépôt de la déclaration. Lorsqu’une personne ayant débuté une activité économique au cours de l’exercice comptable, réa-lise un chiffre d’affaires supérieur ou égal à cent millions de francs burundais (100.000.000 FBU) au cours d’un trimestre d’exploitation,, elle devient assujettie à partir du mois suivant ce trimestre.
