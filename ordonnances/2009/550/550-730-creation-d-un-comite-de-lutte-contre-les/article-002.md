@@ -1,0 +1,3 @@
+# Article 2
+
+La Commission a notamment pour mission de : - Suivre quotidiennement la question des violences basées sur le genre. - Proposer à l’autorité ministérielle des voies et moyens appropriés pour lutter contre les violences basées sur le genre. - Initier en collaboration avec le Service de Coordination des partenaires, un cadre thématique de réflexion sur la question des violences basées sur le genre. - Initier une réforme législative dans le sens de la lutte efficace contre les violences ba-sées sur le genre. - Contribuer à ce que l’administration de la justice soit efficiente particulièrement en matière de lutte contre les violences basées sur le genre.
