@@ -1,0 +1,3 @@
+# Article 1 2
+
+Les membres de droit du Conseil National de la Comptabilité sont : - Le Ministre ayant les finances dans ses at-tributions, Président ; - Le Chef de Cabinet à la Deuxième Vice-Présidence, 1er - Le Directeur Général du Budget et de la Comptabilité Publique, 2 Vice-Président ; ème - Le Conseiller Principal chargé des Ques-tions Economiques à la Présidence de la République du Burundi ; Vice-Président ; - Le Directeur Général du Ministère de l’Education chargé de l’Enseignement Su-périeur ; - Le Directeur Général de la Planification Agricole et de l’Elevage ; - Le Directeur du Département des impôts ; - Le Directeur du Département de la Comp-tabilité ; - Le Directeur de l’Institut des Statistiques et des Etudes Economiques du Burundi.
