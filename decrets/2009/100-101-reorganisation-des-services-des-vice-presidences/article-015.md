@@ -1,0 +1,3 @@
+# Article 15
+
+Les Services de la Vice-Présidence sont généra-lement chargés d’examiner toutes les propositions relatives à leur domaine d’intervention et de formu-ler toutes les propositions pertinentes. Ils agissent sur instruction ou d’initiative. Dans ce cadre, les responsables des services sont notamment chargé de : - Elaborer un programme annuel d’activités et un plan de répartition des tâches aux cadres et agents sous leurs responsabilités ; - Planifier, programmer et coordonner leurs activités ; - Superviser et suivre toutes les activités des Ministères placés sous l’autorité hiérarchique du Vice-Président ; - Veiller à l’application des missions spéci-fiques à chaque Ministère ; - Préparer les différentes activités nécessitant la présence du Vice-Président.

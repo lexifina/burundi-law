@@ -1,0 +1,3 @@
+# Article 29
+
+Le Bureau chargé des Questions Socio-Culturelles a pour missions principales de : - Etudier les dossiers relatifs à la situation so-ciale et culturelle du pays ; - Suivre les activités des pouvoirs publics et des privés dans le secteur socio-culturel ; - Suivre régulièrement la situation socio-culturelle du pays et faire rapport au Vice-Président ; - Gérer les programmes d’assistance publique et le parrainage des projets sociaux mis en place par le Gouvernement ; - Suivre les questions relatives à la santé pu-blique ; - Suivre et encourager les initiatives locales dans ce domaine ; - Suivre le climat des relations du travail, en particulier entre salariés et employeurs.
