@@ -1,0 +1,3 @@
+# Article 18
+
+Constituent notammenl des infractions punissabies au sens des articles 479 et 480 du Code Penal burundais, le fait de fl Causer des dommages corporels a quclqu'un, l'intimider ou exercer des menaces sur sa personnc en usant de son arme; Porter ou utiliser une arme sous J' effct de l 'al cool ou des stupefiants ; Conserver avec negligence uue anne, a tel point qu'elle cause des dommages a autrui OU a soi-meme. s CHAPITRE ITJ: DE L'IMPORTATfON ET DI<: L'EXPORTATION, DU COURTAGE, DE L:\ \'ENTE ET OU TRAFIC lLLIClTE DES ARMES Section l : De l'importation ct de l'cxporta(ion Paragraphe l : De l'autorisatiou d 'importation ou d'cxportation
