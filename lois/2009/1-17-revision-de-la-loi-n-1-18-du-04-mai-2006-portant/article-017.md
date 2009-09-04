@@ -1,0 +1,3 @@
+# Article 17
+
+Les panies peuvent saisir la COrrfTlission Nationale endéans 2 molS à partir de la date de notification dûment constatée contre les recommandations de solutions de la délégation provinciale. Article J 8 : La Cormnission Nationale analyse tout le dossier tel que dressé par la délégation provinciale. Elle peut ordonner un complément d'enquête à effectuer par elle-n*me ou par la dëlëgation provinciale. Lorsqu'dlc juge que le dossier est pn!t, la Commission l'analy~e ct prend une décision pour 011 contre les recomm.1ndatiOTlS de solutions émises par la délégation pro\"incille. """ - En cas de désaccord avec la ddégation provinciale, la Commission motive sa décision.

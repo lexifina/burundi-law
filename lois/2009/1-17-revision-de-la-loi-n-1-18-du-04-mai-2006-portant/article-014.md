@@ -1,0 +1,3 @@
+# Article 14
+
+La délégation provinciale est presidee par un membre de la Commission Nationale. Article-.il: En cas d'entente à l'aminble enlrC les parties en çause, III déléglllion provinciale prend acte ct en dresse le procès-verbal et entérine J'accord d'entente à l'amiable. La délégation dresse le dossier en la forme propre à ç[rc gouverné par les règles du contrat civil. Les copics de l'accord d'cntente à l'amiable et de l'acte d'entérinement de la délégation sont transmises aux panics en cause, :i. la Commission Nationale: et au: administrations provinciale et communale. Les deux administrJtions conservent ces documents dans dcs registres confectionnés à cel effet.
