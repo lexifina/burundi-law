@@ -1,0 +1,3 @@
+# Article 4
+
+Les services publics, institutions de l’Etat et organismes publics et privés soumis au contrôle de l’Inspection Générale de l’Etat s’entendent de : - tous les services publics ; - toutes les administrations publiques de l’Etat comprenant les services de la superstructure gouvernementale ; - tous les services centraux des départements ministériels ; - tous les services déconcentrés ; - toutes les administrations personnalisées ; - toutes les collectivités décentralisées ; - tous les projets publics de développement - tous les établissements publics nationaux et locaux ; toutes les sociétés à participation publique ; - toutes les autres institutions de l’Etat

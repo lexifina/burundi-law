@@ -1,0 +1,3 @@
+# Article 58
+
+Avant leur entrée en fonction, l’Inspecteur Général de l’Etat, l’Inspecteur Général Adjoint de l’Etat, les Inspecteurs Principaux de l’Etat et les Inspecteurs de l’Etat sont tenus, conformément à la loi, de prêter devant le Président de la République, le serment suivant : « Je jure de bien et fidèlement remplir ma fonction, de l’exercer en toute impartialité et objectivité dans le respect de la constitution, des lois et règlements de la République, de ne prendre aucune position publique et de ne donner aucune consultation à titre privé sur les questions relevant de la compétence de l’Inspection Générale de l’Etat et de me conduire en tout, comme un digne et loyal Inspecteur de l’Etat».

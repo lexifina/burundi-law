@@ -1,0 +1,3 @@
+# Article 36
+
+Dans le cadre de l’exercice de leurs fonctions, les Inspecteurs de l’Etat disposent du pouvoir discrétionnaire d’investigation et d’un droit d’information les plus étendus. L’obligation au secret professionnel n’est pas opposable aux Inspecteurs de l’Etat dans l’exercice de leurs fonctions de la part des agents, des commissaires aux comptes et des responsables des services publics, des institutions de l’Etat et organismes publics et privés contrôlés par l’Inspection Générale de l’Etat. Ces derniers sont, chacun en ce qui le concerne, déliés du secret professionnel envers les Inspecteurs de l’Etat et nul d’entre eux ne peut être poursuivi pour leur avoir livré des informations. Le secret bancaire n’est pas non plus opposable aux Inspecteurs de l’Etat.

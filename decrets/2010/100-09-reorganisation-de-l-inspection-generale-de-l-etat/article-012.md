@@ -1,0 +1,3 @@
+# Article 12
+
+L’Inspection Générale de l’Etat comprend : - un Inspecteur Général de l’Etat ; - un Secrétaire Exécutif ; - un Inspecteur Principal de l’Etat Chargé de la Division des Recettes Publiques ; - un Inspecteur Principal de l’Etat chargé de la Division des Dépenses Publiques ; - un Inspecteur Principal de l’Etat chargé de la Division des Sociétés à Participation Publique et projets ; - un Inspecteur Principal de l’Etat chargé de la Division des Affaires Institutionnelles, Administratives et Juridiques ; - un Inspecteur Principal de l’Etat chargé de la Division de l’Encadrement et de la Coordination des Inspections Sectorielles ; - des Inspecteurs de l’Etat ; - un personnel d’appui.

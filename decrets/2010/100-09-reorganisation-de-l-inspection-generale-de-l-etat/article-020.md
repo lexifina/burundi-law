@@ -1,0 +1,3 @@
+# Article 20
+
+Le Secrétaire Exécutif assiste l’Inspecteur Général de l’Etat dans la gestion quotidienne de l’Inspection Générale de l’Etat. Il est particulièrement chargé de : - coordonner les travaux de préparation du budget et des rapports d’activités ; - identifier les besoins en formation du personnel de l’Inspection Générale de l’Etat, élaborer le plan de formation et rechercher les ressources nécessaires à son financement, en suivre l’exécution et en évaluer les résultats et les impacts ; - gérer les dossiers administratifs du personnel de l’Inspection Générale de l’Etat et assurer la gestion des carrières au sein de cette institution ; - servir de mémoire à l’Inspection Générale de l’Etat. Paragraphe III Des Inspecteurs Principaux de l’Etat

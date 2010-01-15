@@ -1,0 +1,3 @@
+# Article 78
+
+Au titre des organismes relevant de ses contrôles, l’Inspection Générale de l’Etat reçoit : - les ampliations de tous textes législatifs et réglementaires notamment les lois, décrets, arrêtés, ordonnances ministérielles décisions, instructions et de tous actes de portée générale relatifs à leurs création, attributions, organisation, fonctionnement administratif et gestion comptable ; - les copies des rapports d’audit interne, d’audit externe des organes d’inspection générale ou d’inspection technique des ministères ainsi que de tous autres rapports de vérification, d’enquêtes ou d’études portant sur leur gestion et fonctionnement ; - les extraits des décisions judiciaires ou d’arbitrage portant condamnations pécuniaires desdits organismes.
