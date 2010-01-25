@@ -1,0 +1,5 @@
+# Article 11
+
+Après la proclamation des résultats des élections, le Conseil communal tient sa première réunion dans une période n’excédant pas sept jours. Lors de la même séance, le Conseil communal élit parmi ses membres le Président, le Vice-Président du Conseil communal et l’Administrateur communal. Ce dernier est de droit Secrétaire du Conseil communal. Ces élections se font au scrutin secret, sous la supervision d’un délégué de la commission électorale provinciale indépendante. La réunion est présidée par le conseiller le plus âgé. Le dossier du candidat administrateur élu est transmis, par les soins du délégué de commission électorale provinciale indépendante, pour le décret de nomination, après vérification des équilibres.
+
+Le Président du Conseil est élu pour la durée du mandat du Conseil communal. Toutefois, il peut être mis fin à ses fonctions en cours de mandat conformément aux dispositions de la présente loi en ses articles 23, 32,102 et 103 ou au règlement intérieur du Conseil communal.
