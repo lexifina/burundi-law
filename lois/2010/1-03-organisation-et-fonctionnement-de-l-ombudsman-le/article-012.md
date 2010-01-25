@@ -1,0 +1,3 @@
+# Article 12
+
+Actes d’instruction 1. L’Ombudsman peut fixer des délais impératifs de réponse aux agents ou services auxquels il adresse des questions dans l’exécution de sa mission. 2. Il peut de même faire toute constatation sur place, se faire communiquer tous les documents et renseignements qu’il estime nécessaires et entendre toutes les personnes concernées. 3. Les personnes qui, en raison de leur état ou de leur profession, ont connaissance de secret qui leur a été confié, sont relevées de leur obligation de garder le secret dans le cadre de l’enquête menée par l’Ombudsman. L’Ombudsman peut se faire assister par des experts.
