@@ -1,0 +1,3 @@
+# Article 12
+
+La Commission Nationale de l’Enseignement Supérieur au Burundi est chargée de proposer des orientations dans l’élaboration des actions de la planification, de coordonner le développement de l’enseignement supérieur conformément à la politique générale du Gouvernement, d’assurer la qualité de l’enseignement et de constituer un cadre permanent de consultation pour l’adéquation formation-emploi. Dans ce sens, la Commission Nationale de l’Enseignement Supérieur assure, en faveur du Ministère, l’interface avec le Secrétariat Exécutif Opérationnel de la mise en oeuvre du Plan Sectoriel de Développement de l’Education et la Formation. Ses missions spécifiques et son organisation sont fixées par décret.

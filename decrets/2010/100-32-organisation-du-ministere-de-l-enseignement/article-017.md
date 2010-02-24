@@ -1,0 +1,11 @@
+# Article 17
+
+La Direction de l’Enseignement Supérieur est chargée de :
+
+- participer à l’élaboration et à l’exécution de la politique gouvernementale dans le domaine de l’enseignement supérieur;
+
+- participer au suivi des activités liées à l’ouverture d’établissements scolaires, à l’équivalence et la reconnaissance des diplômes, des titres scolaires et universitaires, à l’accréditation et l’agrément des programmes d’études en collaboration avec les Commissions ad-hoc concernées ;
+
+- participer à la définition des critères d’admission à l’enseignement supérieur et à l’orientation des étudiants ;
+
+- assurer le contrôle régulier du respect des normes d’admission des étudiants à l’enseignement supérieur.
