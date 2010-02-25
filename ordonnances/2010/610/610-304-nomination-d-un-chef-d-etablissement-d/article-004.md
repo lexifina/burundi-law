@@ -1,0 +1,3 @@
+# Article 4
+
+La prime de fonction Elle est octroyée conformément au tableau suivant : Fonctions concernées Montant (en FBU) Inspecteur général 30.000 Directeur général 30.000 Directeur de département 25.000 Directeur de programme 15.000 Médecin provincial 25.000 Médecin chef de district 15.000 Conseiller et porte-parole 25.000 Directeur adjoint d’hôpital 15.000 Directeur d’école paramédicale 15.000 Superviseur principal 15.000 Coordonnateur provincial 15.000 Chef de service 15.000 Préfet 15.000 Coordonnateur de stage 15.000 Chef de poste 15.000 Titulaire de centre de santé 15.000 Chef de poste adjoint 10.000 Titulaire de centre de santé adjoint 10.000 Chef de secrétariat 7.000 Chef de salle 7.000

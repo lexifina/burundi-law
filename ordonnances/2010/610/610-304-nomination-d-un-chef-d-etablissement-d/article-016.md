@@ -1,0 +1,3 @@
+# Article 16
+
+Indemnité de garde Elle est octroyée dans les termes suivants: Pour les professionnels de la santé: Niveau de formation Montant (FBU) AIDE SOIGNANT 4.399 A3 7.258 A2 9.477 A1 12.944 LICENCIE 13.222 PHARMACIEN 14.886 DENTISTE 14.886 MASTER 14.886 MEDECIN GENERALISTE. 16.550 MEDECIN SPECIALISTE 1 18.215 MEDECIN SPECIALISTE 2 19.879 Pour les personnels non soignant: Niveau de formation Montant (FBU) TRAVAILLEUR 2.019 CHAUFFEUR 3.444 FIN COLLEGE 4.901 A3 7.258 A2 9.477 A1 12.944 LICENCIE 13.222 INGENIEUR 14.886 MASTER 14.886
