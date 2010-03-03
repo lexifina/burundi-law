@@ -1,0 +1,3 @@
+# Article 1 3
+
+Sont nommés membres de la Commission de Gestion des Bourses d’Etudes et de Stages : - Monsieur NYOBEWE Venant, Chef de Cabinet, Président ; - Monsieur BUNGUZA Libérat, Directeur du Bureau des Bourses d’Etudes et de Stages, Secrétaire ; - Monsieur KAREGEYA Alexandre, Conseiller à la Deuxième Vice-Présidence, Membre ; - Madame HAMENYAYO Béatrice, Directeur du Budget, Contrôle Financier et de la Solde, Membre ; - Madame HABONIMANA Espérance, Directeur de Gestion des Traitements, Membre, - Monsieur NYABENDA Salvator, Directeur Général de l’Enseignement Supérieur et de la Recherche Scientifique ; - Monsieur NTAHONKURIYE Philippe, Directeur Général Chargé des Relations avec l’Afrique, l’Asie et l’Océanie, Membre ;
