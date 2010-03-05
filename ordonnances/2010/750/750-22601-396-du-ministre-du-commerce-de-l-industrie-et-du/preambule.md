@@ -1,0 +1,13 @@
+# Ordonnance conjointe n°750/22601/396 du 5 mars 2010
+
+DU MINISTRE DU COMMERCE, DE L’INDUSTRIE ET DU TOURISME ET CELUI DE LA JEUNESSE, DES SPORTS ET DE LA CULTURE PORTANT CREATION DU CENTRE D’EXPOSITION-VENTE POUR LA PROMOTION DE L’ARTISANANT ET DU COMMERCE. LA MINISTRE DU COMMERCE, DE
+
+L’INDUSTRIE ET DU TOURISME, LE MINISTRE DE LA JEUNESSE, DES SPORTS ET DE LA CULTURE,
+
+Vu la Constitution de la République du Burundi ;
+
+Vu le Décret-loi n°100/103 du 29/1/2008 portant Structure, Fonctionnement et Missions du Gouvernement de la République du Burundi ;
+
+Le Conseil des Ministres en sa séance du 26/11/2009 ayant délibéré ;
+
+ORDONNENT SECTION I DE LA CREATION ET DES MISSIONS
