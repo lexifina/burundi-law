@@ -1,0 +1,3 @@
+# Article 15
+
+Le Secrétariat Général du Ministère est chargé de : - animer, piloter, coordonner et contrôler les activités des directions générales ; - superviser l’élaboration et la mise en oeuvre de la politique de développement de l’éducation et de la formation au Burundi ; - animer et coordonner les activités de mise en oeuvre du Plan sectoriel de développement de l’éducation et de la formation ; - animer et coordonner les activités des directions générales ; - définir et codifier les procédures internes du Ministère ; - définir et poursuivre le processus de déconcentration du Ministère ; - s’assurer de la célérité dans le traitement des dossiers ; - impulser la dynamique partenariale et coordonner les initiatives des
