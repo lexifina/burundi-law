@@ -1,0 +1,3 @@
+# Article 3
+
+Le Comité de Trésorerie a pour objet d’assister le Ministre en charge des Finances à assurer une gestion optimale de la Trésorerie de l’Etat. Pour ce faire, il est chargé : - d’examiner les plans de trésorerie élaborés par le Bureau de Gestion de la Trésorerie de l’Etat ; - de prendre les décisions d’arbitrage et les notifier aux services d’exécution budgétaire plafonds d’engagement, accélération ou intensification des recouvrements ; - de définir les objectifs financiers dans le cadre de l’exécution budgétaire ; - de donner toute orientation nécessaire à la bonne gestion de la trésorerie de l’Etat. III. DE LA PERIODICITE DES REUNIONS
