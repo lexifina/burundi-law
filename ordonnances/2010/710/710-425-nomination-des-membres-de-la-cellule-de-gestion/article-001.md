@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la cellule de Gestion des Marchés Publics au sein de l’Institut des Sciences Agronomiques du Burundi, « ISABU », les personnes ci-après : 1. Monsieur MAJAMBERE Claudoir, Directeur Administratif et Financier 2. Monsieur KARIKURUBU Chrysante, Chef du Service Gestion des Approvisionnements 3. Monsieur BARAYAVUGA Philbert, Chef du Service Gestion et Maintenance du Patrimoine 4. Monsieur TWAGIRAYEZU Jean Pierre, Responsable de la Composante Irrigation/Drainage 5. Monsieur BANYIYEREKA Cyprien, Responsable de la Composante Production des Semences 6. Monsieur MASAMBIRO Dismas, Technicien Informatique 7. Madame HAKIZIMANA Bernadette, Chercheur au Labo de Phytopathologie

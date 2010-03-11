@@ -1,0 +1,3 @@
+# Article 4
+
+L’article 4 de l’Ordonnance Ministérielle n° 215/115/CAB du 19/01/2007 portant mesures d’application du Décret-loi n° 01/007 du 20/03/1989 portant Réglementation de l’Accès, du Séjour, de l’Etablissement des Etrangers sur le Territoire du Burundi et de leur Eloignement est modifié comme suit : - Carte d’Identité pour un étranger établi pour une durée de deux ans : cent mille francs burundais ; - Carte d’Identité pour un étranger établi pour une durée indéterminée : deux cent mille francs burundais. - Carte d’Identité pour un étranger ayant un visa de résident permanent : deux cent mille francs burundais.
