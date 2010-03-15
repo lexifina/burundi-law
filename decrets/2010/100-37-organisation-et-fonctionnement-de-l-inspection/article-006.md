@@ -1,0 +1,3 @@
+# Article 6
+
+L’inspecteur générale de la fonction publique est subdivisée en deux inspections : - l’inspection chargée du suivi des dossiers relatifs à la gestion quotidienne de la carrière et des rémunérations des fonctionnaires de l’Etat ainsi que du contrôle des effectifs ; - l’inspection chargée du contrôle de la mise en application des dispositions légales entre autre la loi n° 1/28 du 23 août 2006 portant statut général des fonctionnaires, les textes d’applications y relatives ainsi que d’autres textes ayant force de loi. Elle sera également appelée à l’application judicieuse de la réglementation de l’exercice du droit syndical dans l’administration publique.

@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommés membres de la Commission d’organisation du Test National de fin de Collège, Edition 2010, les personnes suivantes : 1. Monsieur Boniface NYAMPETA : Coordonnateur 2. Monsieur Ildefonse KARITUNZE : Président 3. Madame Jeannine CIMPAYE : Vice-Président 4. Monsieur Philbert KANA : Secrétaire 5. Monsieur Rémégie HABONIMANA : Membre 6. Monsieur Juvénal NDIRAHISHA : Membre 7. Monsieur Martin SINDAYIKENGERA : Membre 8. Madame Rébecca BIGIRIMANA : Membre 9. Monsieur Astère BIGIRIMANA : Membre 10. Monsieur Philippe BARYANA : Membre 11. Madame Laurence RUSUKU : Membre 12. Madame Rose SHIHORI : Membre 13. Madame Ariane NIKUZE : Membre 14. Madame Spès SINDAYIGAYA : Membre 15. Mademoiselle Francine KAMARIZA : Membre
