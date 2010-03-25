@@ -1,0 +1,3 @@
+# Article 101
+
+Le Président de la Commission de la concurrence, investi d'un pouvoir de réquisition, peut faire appel aux agents commissionnés du Mini~tèrc ayant le commerce dans ses attributions pour assister la Commission d:lIls une enquête détcnninée. Article 102 ; Les enquêtes donnent lieu à j'établissement de procès.verbaux ct, le CilS échéant, de rapports. Un double cn est laissé aux parties intéressées. Ils font foi jusqu'à preuve du contraire. L'original est cnvoyé directement à la Conunission de la concurrence pour les cas relevant de sa compétence ou aux services compétents du Ministère ayant le commerce dans ses anributions dans les autres cas.

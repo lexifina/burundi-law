@@ -1,0 +1,3 @@
+# Article 87
+
+Sans préjudice des dispositions du Code pénal, [es infmctions à la libre concurrence sont constatées et poursuivies conformément aux dispositions de la présente loL Elles sont punies après une mise en demeure non suivie d'effet dans les quinze jours. Arllde 88 : Quiconque est coupable d'avoir commis les infractions telles qu'clles sont définies aux articles 23 à 30 cst puni d'une servitude pénale principale de 2 à 5 ans et d'une amende de 100.000 i 5.000.000 FBU ou de l'une de ces peines seulement. Arlicle 89: Celui qui cst declare coupable d'avoir commis les infractions prévues aux articles 3 1 à 35 est puni confonnément aux dispositions du Code pénal relative au bon fonctionnement de l'Economie nationale.

@@ -1,0 +1,3 @@
+# Article 57
+
+Constitue un monopole tOUie situation dans laquelle: un pourcentage de l'ensemble des biens d·une catégorie donnée commercialisée sur le territoire natiolllll est fQumi par une seule et même personne, physique ou morale ou un m&lIIe groupe; un pourcentage des services d'une catégorie donnée est fourni par une seule et même personne; un JXlurcentage de l'ensemble des biens d'une chtégorie donné exporté hors du territoire national y est produit ou exporté par une seule cl même personne physique ou morale ou un même b'TOUpe. jV4.. " Les pouJ"CCntages en questions sont fixés par ordonnance du Ministre ayant le commerce dans ses 3uributions, après consultation de la Commission de la concum::nce ct des organismes représentants les operateurs économiques pnvés.

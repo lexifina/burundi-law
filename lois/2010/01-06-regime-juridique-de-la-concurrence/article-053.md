@@ -1,0 +1,3 @@
+# Article 53
+
+La Conunission de la concurrence tient compte notAmment des éléments suivants poUT contrôler le caractère éventuellement anticoncurrentiel d'une opération de com:entratinn : l'évolution de l'offre el de la ~mande des produits ou services considérés ; la structwe du marché; le degré de concurrence entre les eenlres autonomes de décisions existant sur le marché; la position des entreprises concernées sur le marché ; l'acces de celles-ci aux sources d'approvisionnement el aux débouchés ; les obstacles à l'implantation d'entreprises concurrentes sur le marché, not"mm,,"! I,,~ h"mère~ !~rifAil'("-" 01 non I Arif~ires ~ l'entrée des importations; la compétitivité de l'industrie nationale,

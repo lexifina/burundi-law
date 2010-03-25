@@ -1,0 +1,3 @@
+# Article 42
+
+Tout engagement, convention ou clause se rapportant aux pratiques prévues à r artÎde 37 est nul de plein droit, Cette nullité peut être invoqu~e par les parties ou par les tiers, mais n'cst pas opposable aux tiers par les parties. ElIc est constat= par les u'ibunllux compéten15 qui peuvent solliciter l'avis de la Commission de la concurrence, Paragraphe 2 : Des abus de position dominante. Article 43 ; Est prohibée dans les mêmes conditions, l'cxploitlltion abusive d'une position dominante sur lc marché natioJUlI ou une partie substantielle de cclui-ci, par unc cntn:prisc ou un groupe d'entrcprises ct ayant pour effet d'empècher, de fausser ou de resucindre le jeu de la concurrence,

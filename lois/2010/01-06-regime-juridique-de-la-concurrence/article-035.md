@@ -1,0 +1,3 @@
+# Article 35
+
+Est prohibée; l'cxploitaliOl1 abusive par une entreprlsc d'un état de dépendance économique dans lequel sc trouve, , son égard, une entrc'prise cliente ou fournisseur qui ne dispose pas de solution équivalente, On entend par état de dêpendancc, la situation d'une entreprise qui réalise auprès d'une autre une part importllnte de ses achats, ventes ou prestations et qui ne peut y renoncer sans mettre en péril son activité, ni remplaccr $On partcIUlin: commcrcu.1 en position de force par d'auttes: clients, dans des conditions voisines. Scction 2 : Des pratl(tllCs anticoncurrrntlellcs ~ oll« tl ve§.

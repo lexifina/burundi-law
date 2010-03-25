@@ -1,0 +1,11 @@
+# Article 118
+
+Sauf en matière de pratiques anticoncurrenticlles à caractère collectif et lorsque la Commission de la concurrence est saisie de l'affaire, le contrevenant peut bénéficier d'une tmnsaction si les renseignements recueillis sur son compte sont favorables. Leurs auteurs ont la fnculté de solliciter une transaction et dans cc cas, le Ministre ayant le commerce dans ses attributions est obligatoirement saisi par le Procureur de ta République en cas de constatation par des officiers de police judiciaire. Dans ce cas, il lui est délivré ou adressé sous pli rccommandé avec accuse de réception, un avis de lflUlsaclion accompagné d'un projet d'acte transactionncl en double exemplaire indiquant les dommages et interéts à payer. Ces actes doivent être signés par le contrevenant el transmis à la Direction gén&alc des Recelles de l'Elal cha'lt« dc la liquidation des dommagC5 et intérêts.
+
+Le recouvrement et le paiement des dommages et intérêlS s'effcctuent au Tresor Public.
+
+Le paiement de la transaction vaut acquiescement el emporte extinction dc l'action publique s'il intervient dans un délai de six mois li compter de la notification de l'avis de tnll15llclion. Article J 19: En cas d'urgence et avant toute offre de trnnsaetion ou en cas de non paiement des dommages ct intérêts, l'Administration peut, s'il 't a lieu, prendre des mesures conservatoires telles quc les saisieSoarri!ts, les saisies de produits et la fermeture temporaire de l'établissement.
+
+Les décisions de transaction doivent statuer sur le son des objets saisis. A défaut, l'actc constatant la transaction emporte mainlevée d'office. Si la transaction échoue, le service habilité du Ministère ayant le commerce dans ses attributions saisitlc tribunal compétent.
+
+Les créanciers des contrevenants ne peuvent exercer leurs droits sur les biens saisis qu'aprês mainlevée de la saisie par cetlc juridiction. " Section 4 : Oc la poursuite des pratigu~ a nt len n cu rre n llf ll~ roltectivH. Arlitle 120: Les procè-s-verbaux constalanl les pratiques antiooocUITentielles collectives sont examinés par la Conunission de la concurrence, aux 6ns de conclure à J'existence de l'infraction et de déterminer les sanctions applicables.
