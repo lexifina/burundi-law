@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés Adjoints Principaux des chefs de Services : − Service chargé de l’Instruction, de l’Entraînement et des Opérations à l’Etat Major Général de la Force de Défense Nationale : Colonel Jean Marie BARUMPISHE SS 0125 de la matricule ; − Direction de l’Administration du Personnel : Colonel Sébastien BANDIRUBUSA SS 0131 de la matricule ; − Direction des Etudes Stratégiques : Colonel Adribert BARAKAMFITIYE SS 0214 de la matricule ; − Direction des Domaines et Infrastructures − Militaires : Colonel Ildephonse BIGIRIMANA SS 0193 de la matricule ; − Direction de l’Information et de la Communication : Lieutenant Colonel Justace CIZA SS 0442 de la matricule ; − Bureau Informatique : Major Emile NDIKUMANA SS 0534 de la matricule.

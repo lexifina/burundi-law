@@ -1,0 +1,3 @@
+# Article 5
+
+Sont nommés Chefs de Service dans les Régions Militaires : − Service Chargé du Personnel à la Deuxième Région Militaire : Lieutenant Colonel Venant SAMBAGANYA SS 0300 de la matricule ; − Service Chargé de la Logistique à la Deuxième Région Militaire : Lieutenant Colonel Alexis NDUWIMANA SS 0389 de la matricule ; − Service Chargé du Personnel à la Quatrième Région Militaire : Lieutenant Colonel Jean Baptiste NKWEZI SS 0259 de la matricule ; − Service Chargé de l’Instruction, de l’Entraînement et des Opérations à la Cinquième Région Militaire : Colonel Canésius BARUKINAMWO SS 0190 de la matricule ; − Service Chargé du Moral des Unités et des Relations Publiques à la Cinquième Région Militaire : Colonel Fabien NSABINDAVYI SS 0232 de la matricule.
