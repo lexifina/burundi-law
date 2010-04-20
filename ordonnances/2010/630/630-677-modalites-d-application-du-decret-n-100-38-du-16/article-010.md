@@ -1,0 +1,3 @@
+# Article 10
+
+En fonction de la disponibilité des services dans les structures de santé, le suivi médical de la grossesse, les soins, examens et services subventionnés, dans les centres de santé et hôpitaux publics ou assimilés, sont les suivants : - Test de grossesse lorsqu’il revient positif - Consultations prénatales et post-natales - Groupage sanguin ABO-Rhésus - Numération formule sanguine (NFS) - Sérologie : toxoplasmose, syphilis (VDRL, TPH), VIH, rubéole - Glycémie - ECBU-Albuminurie - Glycosurie - Trois examens d’échographie au maximum. Ces examens sont subventionnés pour autant qu’ils ne sont pas pris en charge par une autre forme de subvention comme la Protection de la Transmission Mère-enfant (PTME) dans le cadre du VIH/SIDA.

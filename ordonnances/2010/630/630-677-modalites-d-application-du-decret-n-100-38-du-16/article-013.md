@@ -1,0 +1,3 @@
+# Article 13
+
+Pour les accouchements y compris les césariennes qui ont lieu dans les hôpitaux de 1 ère référence, les services subventionnés sont : - Les actes techniques et les soins liés à l’accouchement et ses complications, - Les césariennes et les complications y relatives, - Les médicaments essentiels repris dans la liste nationale prescrits et effectués à l’hôpital, - Les examens complémentaires prescrits et effectués à l’hôpital, - Les hospitalisations. Articlel4 Les patients subventionnés au niveau de l’hôpital de 1 ère référence sont ceux qui sont référés par les Centres de Santé ou qui résident dans la proximité immédiate de l’Hôpital.
