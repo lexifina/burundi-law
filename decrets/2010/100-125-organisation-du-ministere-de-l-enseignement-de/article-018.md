@@ -1,0 +1,3 @@
+# Article 18
+
+La Cellule de la Communication est chargée de : - mettre en place et suivre la mise en œuvre de la politique de communication institutionnelle du Ministère de l’enseignement de base et secondaire, de l`enseignement des métiers, de la formation professionnelle et de l`alphabétisation ; - favoriser la communication inter et intra services ; - s’assurer de la mise en place et de l’utilisation de moyens modernes de communication ; - élaborer un plan de communication annuel pour le Ministère tenant compte des besoins de la mise en œuvre du plan sectoriel de développement de l’éducation et de la formation ; - rédiger, produire et diffuser une revue mensuelle d’informations sur l’éducation et être la porte parole des activités du Ministère.

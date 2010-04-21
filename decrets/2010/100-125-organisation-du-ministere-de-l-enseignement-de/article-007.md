@@ -1,0 +1,3 @@
+# Article 7
+
+L’Inspection Générale de l’Enseignement comprend : - l’Inspection Principale de l’Enseignement de Base public et Privé ; - l’Inspection Principale de l’Enseignement Secondaire Général, Pédagogique et Technique, de l’Enseignement des Métiers et de la Formation Professionnelle Publique et Privée ; - les Inspections Régionales de l’Enseignement Secondaire Général, Public et Privé ; - les Inspections Régionales de l’Enseignement Technique, des Métiers et de la Formation Professionnelle Publics et Privés; - les Inspections Provinciales de l’Enseignement de Base Public et Privé ; - les Inspections Communales de l’Enseignement Public et Privé.

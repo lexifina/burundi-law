@@ -1,0 +1,3 @@
+# Article 42
+
+La Direction de l’Enseignement Primaire Fondamental est chargée de: - assurer la responsabilité de planification, du suivi, du pilotage et de l’évaluation des activités de son Département ; - concevoir les politiques, les stratégies et les actions visant à améliorer l’accès, le maintien et l’achèvement à l’Ecole Primaire Fondamental ; - coordonner les initiatives en faveur de l’accès et du maintien à l’école ; - mettre au point et coordonner les actions pour le renforcement de la bonne gouvernance dans les écoles ; - gérer les titres scolaires ; - mener des analyses et les travaux nécessaires au développement de l’administration scolaire ; - proposer les promotions au cas échéant les sanctions du personnel de son ressort.

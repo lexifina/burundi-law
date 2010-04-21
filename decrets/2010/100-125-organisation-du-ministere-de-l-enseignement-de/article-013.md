@@ -1,0 +1,3 @@
+# Article 13
+
+Conformément aux dispositions du Décret n° 100/037 du 28 juillet 1998 portant Organisation d’un Cabinet Ministériel, le Chef de Cabinet est chargé de : - participer à la préparation des décisions du Ministre ; - contrôler et présenter à la signature tous les actes qui doivent être signés par le Ministre ; - suivre directement et conformément aux instructions du Ministre l’exécution des décisions prises par le Gouvernement dans le domaine des missions du ministère ; - assurer la liaison avec les services de la Présidence de la République et des autres départements ministériels ; - coordonner les activités de la Cellule de la Communication.
