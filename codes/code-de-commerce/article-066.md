@@ -1,0 +1,3 @@
+# Article 66
+
+Le greffier du tribunal de commerce dans le ressort duquel l’immatriculation a été effectuée procède d’office à l’inscription des jugements et arrêts prévus par l’article 64 ci-dessus rendus par les juridictions burundaises. A cette fin, les greffiers des juridictions dont émanent ces jugements et arrêts en communiquent un extrait, certifié conforme, au greffier chargé de faire l’inscription complémentaire. L’inscription à laquelle donnent lieu les décisions judiciaires énoncées à l’article 64 ci-dessus rendues par les juridictions étrangères, est effectuée par le greffier qui a procédé à l’immatriculation, à la demande du commerçant ou de toute personne exerçant tout ou partie de ses droits.
