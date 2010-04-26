@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés : Directeur Général de l’Office National des Pensions et des Risques Professionnels des Fonctionnaires, des Magistrats et des Agents de l’Ordre Judiciaire, « ONPR » : Monsieur Onesphore BARORERAHO ; Directeur Administratif et Financier de l’Office National des Pensions et des Risques Professionnels des Fonctionnaires, des Magistrats et des Agents de l’Ordre Judiciaire, « ONPR » : Madame Marie Thérèse NDEREYIMANA ; Directeur des Prestations de l’Office National des Pensions et des Risques Professionnels des Fonctionnaires, des Magistrats et des Agents de l’Ordre Judiciaire, « ONPR » : Madame Francine NDUWIMANA.
