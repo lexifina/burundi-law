@@ -1,0 +1,3 @@
+# Article 220
+
+A bord des bateaux armés en navigation internationale, l'effectif présent doit permettre l'organisation du service en trois quarts, à la passerelle comme à la machine. Chaque quart sera composé de deux hommes, dont l'un disposant d'une qualification appropriée aux fonctions de chef de quart. Compte tenu de la durée du voyage et du type de bateau, l'Inspecteur de la navigation peut, en sa qualité d'assistant de l'Inspecteur du travail en vertu de l'article 355 autoriser dans certains cas une organisation du travail en deux bordées au lieu de trois quarts, et autoriser que chaque quart à la machine ne comporte qu'une seule personne.

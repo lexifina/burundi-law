@@ -1,0 +1,3 @@
+# Article 222
+
+En aucun cas, la durée totale du travail ne pourra excéder 12 heures par période de 24 heures ; sauf circonstance de force majeure affectant la sécurité du bateau ; et aucun homme ne doit assurer pendant plus de quatre heures consécutives, ou six heures en cas de deux bordées, les fonctions de conduite ou de veille à la passerelle ou à la machine. Pour ce qui concerne la navigation à la pêche, des modalités particulières d'organisation et de durée du travail peuvent être adoptées par Ordonnance conjointe des Ministres ayant respectivement le Travail et les Transports dans leurs attributions.

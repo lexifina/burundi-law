@@ -1,0 +1,3 @@
+# Article 133
+
+Le système de signalisation lacustre en vigueur dans les eaux du BURUNDI comprend des bouées et des aides fixes ou balises. Ces aides à la navigation, bouées ou balises, peuvent être lumineuses ou non. Elles appartiennent soit au système de balisage latéral, soit au système cardinal tel que définis par l'Association Internationale de Signalisation Maritime (A.I.S.M.). Pour l'interprétation des aides latérales, est définie comme "sens de la remontée" la direction suivie par un bateau entrant dans un port ou effectuant une navigation lacustre du sud vers le nord. Tout bâtiment suivant le sens de la remontée doit laisser sur tribord les bouées de tribord et sur bâbord les bouées de bâbord.

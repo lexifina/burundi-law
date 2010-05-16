@@ -1,0 +1,3 @@
+# Article 155
+
+Tout bateau ou autre engin naviguant dans les eaux territoriales du BURUNDI, d’une longueur supérieure à douze mètres, ou propulsé par un moteur de plus de 10 CV, doit être couvert par une assurance couvrant la responsabilité civile de son propriétaire ou exploitant. Tout bateau d’une jauge brute égale ou supérieure à 300 tonneaux doit être couvert par une assurance obligatoire ou toute autre garantie financière garantissant l’enlèvement de son épave. Tout bateau à passagers doit être muni d’une assurance couvrant les dommages corporels aux passagers transportés. Cette assurance est à la charge du transporteur.

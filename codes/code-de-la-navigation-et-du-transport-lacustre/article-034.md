@@ -1,0 +1,5 @@
+# Article 34
+
+Sont à fournir à l'administration en vue de l'immatriculation, les documents suivants :  Pour tout bâtiment :  Un certificat du constructeur mentionnant les principales caractéristiques techniques;  Une déclaration du propriétaire ou de l'exploitant indiquant le genre d'utilisation;  Les pièces justificatives de l'identité et de la résidence du propriétaire;  Le certificat de jaugeage;  Pour les bâtiments neufs :  Une copie certifiée conforme du contrat de construction.  Pour les bâtiments d'occasion :  Une copie certifiée conforme de l'acte d'achat;  La décision de radiation des registres de l'Etat d'origine s'il s'agit d'une acquisition à l'étranger. A l'issue des formalités, un certificat d'immatriculation est délivré au propriétaire moyennant paiement d'une redevance. La forme du certificat et le tarif de la redevance sont fixés par Ordonnance du Ministre ayant la navigation lacustre dans ses attributions.
+
+Le certificat d'immatriculation doit être renouvelé en cas de transformation importante ou de transfert de propriété.

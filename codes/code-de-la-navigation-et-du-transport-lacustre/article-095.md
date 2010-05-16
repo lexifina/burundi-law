@@ -1,0 +1,3 @@
+# Article 95
+
+La validité des certificats de navigabilité et de franc-bord est suspendue après tout accident lacustre affectant la structure du bateau, l'appareil à gouverner ou l'appareil propulsif. Ces certificats devront alors faire l'objet d'un renouvellement anticipé, après une visite spéciale passée par l'Inspecteur de la Navigation assisté, le cas échéant, d'un Expert de la Société de classification compétente. A l'issue de chaque visite, un procès-verbal est établi par l'Inspecteur mentionnant les observations et, le cas échéant, les prescriptions faites. Un exemplaire du procès-verbal de chaque visite, ainsi que l'original de chaque certificat, doit être conservé à bord.

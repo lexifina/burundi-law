@@ -1,0 +1,3 @@
+# Article 246
+
+Si une infraction pénale est commise à bord pendant que le bâtiment se trouve en navigation, le Capitaine effectue une enquête préliminaire et remet le coupable ou le suspect aux Autorités judiciaires du premier port du BURUNDI touché, ou au Consul du BURUNDI s'il vient à toucher un port étranger. Pour les besoins de l'enquête préliminaire, le Capitaine dispose des compétences et prérogatives d'officier de police judiciaire. Il peut prendre toute mesure utile pour s'assurer de la personne du présumé coupable. Il établit un rapport sur les faits délictueux constatés par lui. Copie de ce rapport est adressée, aussitôt que possible, à l'Autorité Lacustre.

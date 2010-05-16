@@ -1,0 +1,3 @@
+# Article 43
+
+Si l'acte de transfert concerne un bateau ou un engin de transport lacustre immatriculé, cet acte doit être soumis par le vendeur à l'homologation de l'Autorité Lacustre, faute de quoi il sera réputé non effectif. En cas d'achat ou de vente à l'étranger d'un bateau de plus de vingt-cinq mètres de longueur, le contrat doit, à peine de nullité, être soumis à l'accord préalable du Ministre ayant les Transports dans ses attributions. A défaut de réponse dans un délai de deux mois, l'accord sera réputé tacitement donné. L'importation de bateaux de commerce ou de pêche de plus de 20 ans d'âge est interdite.

@@ -1,0 +1,5 @@
+# Article 55
+
+Les limites de responsabilité du propriétaire sont fixées comme suit:  Pour les créances résultant d'engagements ou de dommages matériels: ¾ Pour un bateau destiné au transport de marchandises  Non muni de moyens mécaniques de propulsion, à une somme de 33,33 unités de compte par tonne de portée maximale en lourd du bateau;  Muni de moyens mécaniques de propulsion, à une somme de 33,33 unités de compte par tonne de portée maximale en lourd du bateau, majorée d'une somme de 66,67 unités de compte par cheval vapeur de puissance des moyens de propulsion. ¾ Pour un bateau non destiné au transport de marchandises, à une somme de 200 unités de compte par m3 du déplacement au plus grand enfoncement autorisé. ¾ Pour un remorqueur ou un pousseur, à une somme de 66,67 unités de compte par cheval vapeur de puissance des moyens de propulsion. ¾ Pour les engins ou outillages flottants assimilés aux bateaux à une somme équivalent à un tiers de leur valeur de renouvellement au moment de l'événement.  Pour les créances résultant des dommages corporels :
+
+Le triple des valeurs indiquées au premier astérix ci-dessus.

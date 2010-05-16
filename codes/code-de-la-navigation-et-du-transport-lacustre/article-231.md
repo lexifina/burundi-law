@@ -1,0 +1,3 @@
+# Article 231
+
+En cas d'accident corporel, quelle qu'en soit la cause, survenu à bord à un ou plusieurs membres de l'équipage, le capitaine établit un rapport détaillé sur les circonstances de l'accident et en porte mention au journal de bord. L'original du rapport est adressé à l'Autorité Lacustre ; copie en est transmise par l'armateur à l'inspecteur du Travail et à l'Institut National de Sécurité Sociale à l'appui de la déclaration d'accident du travail. Le délai prescrit par le Code du Travail pour la production de cette dernière court à partir du jour de retour du bateau à son port d'attache.
