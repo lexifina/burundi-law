@@ -1,0 +1,3 @@
+# Article 209
+
+L’homme d’équipage a l’obligation : - D’exécuter son travail ou service aux temps, lieux et dans les conditions convenues, - D’agir conformément aux ordres qui lui sont donnés pour le service du bateau, par le capitaine ou ses préposés, - De s’abstenir de tout ce qui pourrait nuire à la sécurité à bord, - De respecter les règles de discipline à bord, - De restituer à l’employeur, en bon état, les objets et équipements mis à sa disposition, sauf détériorations dues à un usage normal, ou perte par cas fortuit non imputable à sa négligence, - De ne charger sur le bateau aucune marchandise pour son propre compte, sauf autorisation expresse du capitaine.
