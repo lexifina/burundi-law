@@ -1,0 +1,3 @@
+# Article 5 2
+
+La Cellule est composée d’un représentant : - du Ministère ayant les finances dans ses attributions; - du Ministère ayant la justice dans ses attributions; - du Ministère ayant le commerce et l’industrie dans ses attributions; - du Ministère ayant la sécurité publique dans ses attributions; - de la Banque de la République du Burundi, - du Service National des Renseignements, - du Commissariat Général de la Brigade Anti-corruption, - de l’Association des banques et établissements financiers, - de l’Ordre des Professionnels Comptables, et - de la Chambre Fédérale du Commerce et de l’Industrie du Burundi.

@@ -1,0 +1,3 @@
+# Article 3
+
+Le Comité de pilotage a pour mission : - de définir les orientations du Plan directeur, compte tenu du cadre général du développement de l’enseignement supérieur et de la recherche, et de la stratégie nationale des Technologies de l’Information et de la Communication ; - d’assurer le suivi du processus de préparation et de validation du Plan directeur et des plans d’actions ; - d’établir à leur sujet un dialogue avec le Ministère chargé de l’Enseignement Supérieur et de la Recherche Scientifique, et les partenaires techniques et financiers. Il examine les propositions qui lui sont faites par l’Equipe projet, et se prononce sur toute question en rapport avec la préparation des plans.
