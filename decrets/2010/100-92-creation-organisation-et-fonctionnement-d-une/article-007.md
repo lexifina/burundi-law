@@ -1,0 +1,3 @@
+# Article 7
+
+Le Conseil d’Administration de l’ABEJ est composé de 7 membres: - Un représentant du Ministère en charge de la Jeunesse: Président ; - Un représentant du Ministère ayant le Travail dans ses attributions: Vice-Président ; - Un Administrateur Directeur Général de l’ABEJ: Secrétaire ; - Un représentant du Ministère ayant les Finances dans ses attributions: Membre; - Un représentant du Ministre ayant le Commerce, l’Industrie et le Tourisme dans ses attributions: Membre; - Un représentant du Ministre ayant la Formation Professionnelle dans ses attributions: Membre ; - Un représentant du Comité National de la Jeunesse Burundaise: Membre.

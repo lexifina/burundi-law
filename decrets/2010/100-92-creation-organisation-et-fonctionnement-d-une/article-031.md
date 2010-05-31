@@ -1,0 +1,5 @@
+# Article 31
+
+Sous la supervision de l’Administrateur Directeur Général de l’ABEJ, le Directeur du département Formation et Stages de premier emploi est chargé de : - Identifier les jeunes qui ont besoin des formations prévues dans le cursus de l’ABEJ; - Identifier et recruter les formateurs ; - Organiser des formations à l’endroit des jeunes bénéficiaires identifiés ; - Identifier les entreprises privées, publiques, parapubliques ainsi que les autres organisations et institutions susceptibles d’accueillir les jeunes comme stagiaires ; - Organiser les ateliers de sensibilisation des jeunes, des opérateurs économiques, des autres organisations sur l’utilité des stages de premier emploi ; - Elaborer un draft de contrat de stage à soumettre pour analyse dans une réunion de Direction ; - Affecter les jeunes dans les organisations ayant accepté de les accueillir comme stagiaires ; - Constituer une base de données relatives aux jeunes demandeurs de stages et de formation ainsi que les bénéficiaires; - Suivre et évaluer les jeunes prestant comme stagiaires.
+
+Section 4 Du personnel

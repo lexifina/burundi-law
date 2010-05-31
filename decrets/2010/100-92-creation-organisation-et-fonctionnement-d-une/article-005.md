@@ -1,0 +1,5 @@
+# Article 5
+
+L’ABEJ a comme missions de: - Participer à la mise à jour des données relatives au marché du travail ; - Participer à l’élaboration et à la mise en œuvre de la politique de l’emploi visant la promotion du premier emploi des jeunes ; - Intervenir sur le marché du travail en vue de favoriser la promotion de l’emploi des jeunes en les assistant à la recherche de l’emploi par une formation et un counselling professionnel ; - Aider les jeunes diplômés à acquérir des expériences professionnelles pratiques en plaidant pour eux auprès des entreprises privées, publiques et parapubliques ainsi qu’auprès des organisations internationales surtout en ce qui concerne les stages de premier emploi ; - Travailler en collaboration avec les autres Ministères pour octroyer des formations complémentaires aux jeunes lauréats des Universités et écoles techniques en informatique, en entreprenariat, en anglais, en administration, etc. ; - Organiser des foras et ateliers pour sensibiliser les parties prenantes sur la problématique du chômage des jeunes et autres problèmes corollaires.
+
+CHAPITRE II DE L’ORGANISATION ADMINISTRATIVE
