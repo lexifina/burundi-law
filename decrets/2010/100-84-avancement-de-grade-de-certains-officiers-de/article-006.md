@@ -1,0 +1,3 @@
+# Article 6
+
+Sont nommés au grade d’Officier de Renseignement de 2ème classe (OR2) : - Madame Evelyne NDAYIZEYE, matricule O/00067 ; - Monsieur Emmanuel NKURIZA, matricule O/00068 ; - Madame Virginie NDAYISENGA, matricule O/00069 ; - Monsieur Eric Victor Emmanuel NKUYEHASI, matricule O/00071 ; - Monsieur Louis SEMUNYA, matricule O/00078 ; - Monsieur Thérence NDUWAYO, matricule O/00079 ; - Madame Espérance KWIZERA, matricule O/00080 ; - Monsieur Innocent NDIKUMANA, matricule O/00083 - Monsieur Laurent NSABIMANA, matricule O/00084 ; - Madame Gloriose KANYANGE, matricule O/00085 ; - Madame Imelde NTAGAHORAHO, matricule O/00092.
