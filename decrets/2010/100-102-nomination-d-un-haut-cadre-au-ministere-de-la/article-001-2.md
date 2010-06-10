@@ -1,0 +1,3 @@
+# Article 1 2
+
+Les Magistrats dont les noms suivent sont affectés comme suit : Monsieur MBARUBUKEYE Prime, Matricule 226.735 : Juge au Tribunal de Grande Instance de BUBANZA. Monsieur RIRIKUMUTIMA Méthode, Matricule 222.564 : Juge au Tribunal de Grande Instance de MURANVYA. Madame NTAMATUNGIRO Alice-Emilie, Matricule 225.459 : Juge au Tribunal de Grande Instance de BUBANZA. Monsieur KARIWABO Léonce, Matricule 225.583 : Juge au Tribunal de Grande Instance de GITEGA. Monsieur BIZIMANA Basile, Matricule 224.616 : Juge au Tribunal de Grande Instance de BUBANZA. Monsieur MPAWENIMANA Melchiade, Matricule 223.512 : Juge au Tribunal de Grande Instance de CIBITOKE.
