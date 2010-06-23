@@ -1,0 +1,3 @@
+# Article 4
+
+Pour accomplir ses missions la cellule nationale de la protection judiciaire de l’enfant s’appuie sur les services suivants : - le service de l’administration et des finances. Il est chargé de faire la liaison entre la direction, les administrations et les partenaires techniques et financiers. Ce service de l’action s’occupe également de la gestion, du suivi et de l’exécution du budget. - Le service de l’action éducative et de la protection de l’enfance. Ce service conçoit les politiques de protection et d’action éducative. Il s’occupe de l’orientation psychopédagogique, de la prévention et de la rééducation.
