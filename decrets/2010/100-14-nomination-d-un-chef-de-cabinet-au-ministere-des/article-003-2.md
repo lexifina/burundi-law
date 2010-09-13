@@ -1,0 +1,3 @@
+# Article 3 2
+
+Sont nommés Membres permanents de la Cellule de Gestion des Marchés Publics les personnes dont les noms suivent : - Béatrice LECOMTE : Déléguée de la Cogestion du Projet ; - Aloys SINDAYIGAYA : Chargé des infrastructures au Projet ; - Rédempteur BARANKIRIZA : Responsable Administratif et Financier au Projet ; - Dieudonné GAHUNGU : Chargé d’Aménagement des Marais du Projet ; - Joachim NDIMURWANKO : Directeur de la DPAE Ruyigi ou son Représentant ; - Salvator KANEGENE : Conseiller au Développement Communal de Nyabitsinda ; - Eugène HATEGEKIMANA : Logisticien au Projet Pour chacun des marchés lancés par le projet APV-Ruyigi, les Points Focaux des structures bénéficiaires sont nommés membres temporaires de la Cellule de Gestion des Marchés Publics.
