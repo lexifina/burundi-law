@@ -1,0 +1,3 @@
+# Article 11
+
+Les Ministres exercent l’autorité hiérarchique sur les responsables des services de l’Administration Centrale et des Projets relevant des secteurs dont ils sont titulaires. Ils exercent en outre leur autorité de tutelle sur les services publics autonomes et sur les organismes personnalisés : sociétés publiques, administrations personnalisées et établissements publics oeuvrant dans les secteurs de leur intervention.

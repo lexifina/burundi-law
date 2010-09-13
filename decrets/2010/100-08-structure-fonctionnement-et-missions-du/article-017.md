@@ -1,0 +1,39 @@
+# Article 17
+
+Le Ministère à la Présidence chargé des Affaires de la Communauté Est Africaine a pour missions principales de :
+
+- Assurer la coordination de l’application et du respect du traité instituant la Communauté Est-Africaine (EAC), du traité d’adhésion du Burundi à la Communauté Est-Africaine, des protocoles, des lois et règlements de la Communauté Est-Africaine ;
+
+- S’assurer de la représentation et de la participation effective du Burundi dans les institutions et organes de la Communauté Est-Africaine conformément au traité, aux protocoles, lois et règlements en vigueur ;
+
+- Promouvoir les intérêts du Burundi dans le cadre de l’élaboration, de la conduite de l’exécution des programmes de la Communauté Est-Africaine;
+
+- Impulser la participation du Burundi dans l’élaboration, la conduite et l’exécution des plans et stratégies de développement, des projets et des programmes de la Communauté Est-Africaine ;
+
+- Aider les ministères sectoriels dans la préparation et le suivi des dossiers initiés par la République du Burundi et dans leur transmission au Secrétariat Général de la Communauté Est-Africaine ;
+
+- Contribuer à la conception et à la mise en oeuvre d’une politique sectorielle qui puisse conduire le Burundi à devenir un partenaire fiable au sein de la Communauté Est-Africaine ;
+
+- Suivre les activités de coopération de la Communauté Est-Africaine avec les Etats et Organisations tiers ;
+
+- Assurer la mise en œuvre des plans, des stratégies, des projets et des programmes de développement de la Communauté Est-Africaine ;
+
+- S’assurer d’une intégration réelle du Burundi dans la Communauté Est-Africaine aussi bien sur le plan économique que sur le plan politique ;
+
+- Contribuer à la mobilisation des ressources financières et techniques nécessaires à la mise en oeuvre des programmes et projets proposés dans le cadre de la Communauté Est-africaine ;
+
+- Participer à l’élaboration des stratégies en vue d’une finalisation rapide du processus d’intégration politique des Etats membres de la Communauté Est-Africaine ;
+
+- Etre le porte-parole de la Communauté Est-Africaine auprès du Gouvernement, des institutions du Burundi, de la population, des opérateurs des secteurs publics et privés et de la société civile ;
+
+- Coordonner les négociations pour assurer la mise en application progressive et effective de toutes les étapes de l’Intégration dans la Communauté Est-Africaine qui sont : l’Union Douanière, le Marché Commun, l’Union Monétaire et la Fédération Politique ;
+
+- Assurer le suivi régulier des activités impliquant le Burundi ou l’un des Etats membres de la Communauté Est-Africaine dans d’autres Organisations Régionales ou Multilatérales ;
+
+- S’assurer, avec le ministère ayant la coopération internationale dans ses attributions, que le Burundi honore ses engagements financiers auprès de la Communauté Est-Africaine ;
+
+- Rendre compte au Gouvernement et au Parlement sur toutes les questions et activités liées à l’intégration du Burundi dans la Communauté Est-Africaine ;
+
+- Elaborer et assurer le suivi des projets d’investissement du ministère.
+
+Section 6 Du Ministère de la Justice.
