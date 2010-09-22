@@ -1,0 +1,3 @@
+# Article 1 15
+
+La commission mise en place en date du 05 avril 2010 est reconduite pour une période de deux semaines. Elle est compos de : − Monsieur Elysée NDAYE, Président − Monsieur Déo SUZUGUYE, Vice- Président − Monsieur Salvator DOYIDOYI, Secrétaire − Monsieur André NYABENDA, Membre − Monsieur Joseph NTAKARUTIMANA, Membre − Monsieur Fulgence RUBERINTWARI, Membre − Monsieur Ferdinand NTAKARUTIMANA, Membre − Monsieur Septime KIMAMBA, Membre − Monsieur Désiré MINANI, Membre − Monsieur Willy UWIMANA, Membre − Monsieur Balbatus NTAKARUSHO, Membre − Monsieur Carème BIZOZA, Membre − Monsieur Paul MIREREKANO, Membre
