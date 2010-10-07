@@ -1,0 +1,3 @@
+# Article 14
+
+Le contenu de l’étude d’impact doit être en relation avec l’importance et les caractéristiques techniques de l’ouvrage projeté conformément aux lignes directrices qui sont édictées par le Ministère de l’environnement ainsi qu’avec ses incidences prévisibles et potentielles sur l’environnement. Sans préjudice des prescriptions complémentai-res ou des termes de référence que le Ministère de l’Environnement édicte en tenant compte des spécificités de chaque projet, notamment en ce qui concerne la méthodologie ou la procédure à suivre, l’étude d’impact intègre les aspects énoncés à l’article 23 du Code de l’Environnement.

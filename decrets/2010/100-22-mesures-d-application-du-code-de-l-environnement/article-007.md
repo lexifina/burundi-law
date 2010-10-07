@@ -1,0 +1,3 @@
+# Article 7
+
+Dans un délai maximum d’un mois suivant le dépôt de la fiche de criblage descriptif visé à l’article 6, le Ministère de l’Environnement avise le pétitionnaire ou le maître d’ouvrage s’il y a lieu de réaliser une étude d’impact environnemental conforme aux prescriptions du présent décret. Au cours de ce même délai, le Ministère de l’Environnement agissant seul ou après consulta-tion des autres Ministères concernés par le projet peut requérir du pétitionnaire tout renseignement complémentaire sur le projet d’ouvrage, susceptible d’éclairer sa décision. Dans ce cas un nouveau délai d’un mois court à partir de la réception de la réponse du pétitionnaire.

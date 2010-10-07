@@ -1,0 +1,5 @@
+# Article 3
+
+Aux termes du présent décret, on entend par : 1. Ouvrage : toute opération d’aménagement ou toute installation industrielle, commerciale ou agricole susceptible de porter atteinte à l’environnement tel que défini à travers les articles 12 et 13 de la Loi du 30 juin 2000 portant Code de l’Environnement de la République du Burundi ; 2. Ouvrage nouveau : tout ouvrage, qui n’a pas fait l’objet d’une autorisation à la date d’entrée en vigueur de ce décret, ou tout ouvrage existant qui fait l’objet d’extension, de transformation ou de changement de ses procédés de fabrication, entraînant ou risquant d’entraîner des atteintes à l’environnement dans les conditions fixées par le Code de l’Environnement. 3. Pétitionnaire ou maître de l’ouvrage : toute personne physique ou morale de droit privé ou toute autorité publique qui initie un projet d’ouvrage et qui introduit auprès de l’autorité ou des autorités compétentes, une demande d’autorisation pour réaliser l’ouvrage.
+
+CHAPITRE II DU CHAMP D’APPLICATION

@@ -1,0 +1,5 @@
+# Article 6
+
+Afin de faciliter l’appréciation dont il est question à l’article 5 sur la nécessité de réaliser une étude d’impact pour les projets d’ouvrages énumérés à l’annexe II du présent décret, le pétitionnaire ou maître de l’ouvrage adresse une fiche de criblage selon un format établi par le Ministère ayant en charge l’Environnement.
+
+La fiche décrit le projet et ses effets potentiels sur l’environnement ainsi que les modalités et conditions de sa réalisation y compris les mesures nécessaires qui sont appliquées pour prévenir, atténuer, corriger ou compenser les effets potentiels sur l’environnement Elle précise les conditions dans lesquelles l’ouvrage projeté est réalisé, les effets directs ou indirects qu’il risque d’avoir sur l’environnement, les mesures envisagées pour prévenir, modifier ou atténuer ces risques, ainsi que les alternatives qui pourraient remédier à ces risques. Une copie de cette fiche est transmise au Ministère dans le secteur duquel le projet, doit se réaliser. Si les incidences de ce projet concernent plusieurs Ministères à la fois, chacun des Ministères concernés reçoit une copie de la fiche précitée

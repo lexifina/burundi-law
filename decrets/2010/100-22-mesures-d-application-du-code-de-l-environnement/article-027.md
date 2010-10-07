@@ -1,0 +1,3 @@
+# Article 27
+
+La décision de rejet par le Ministère de l’Environnement fait obstacle à la poursuite, par le pétitionnaire ou le maître de l’ouvrage, de la procédure en vue de l’obtention auprès du Ministère compétent, de l’autorisation de réaliser l’ouvrage projeté, conformément aux prescriptions de l’article 2 du présent décret. En cas de divergence de vues entre le Ministère de l’Environnement et le Ministère compétent pour autoriser la réalisation de l’ouvrage, la décision du Ministère de l’Environnement est soumise pour confirmation au Conseil des Ministres, à l’initiative de ce même Ministère.
