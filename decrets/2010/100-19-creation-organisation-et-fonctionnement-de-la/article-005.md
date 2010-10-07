@@ -1,0 +1,5 @@
+# Article 5
+
+Les dix membres non permanents proviennent des Ministères et Institutions impliqués dans la lutte contre la prolifération des armes légères et de petits calibres ci-après : 1. Le Ministère ayant l’intérieur et l’administration du Territoire dans ses attributions ; 2. Le Ministère ayant la sécurité publique dans ses attributions ; 3. Le Ministère ayant les relations extérieures et la coopération dans ses attributions; 4. Le Ministère ayant la défense nationale dans ses attributions ; 5. Le Ministère ayant les finances dans ses attributions ; 6. Le Ministère ayant la justice dans ses attributions ; 7. Le Ministère ayant les affaires de la Communauté Est Africaine dans ses attributions ; 8. Le Ministère ayant les droits de la personne humaine et du genre dans ses attributions; 9. Le Ministère ayant la communication dans ses attributions; 10.
+
+Les confessions religieuses. Ils sont nommés par ordonnance du Ministre ayant la sécurité publique dans ses attributions sur proposition des Ministères et Institutions qui les ont mandatés.
