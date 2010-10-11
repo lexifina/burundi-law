@@ -1,0 +1,15 @@
+# Ordonnance ministérielle n°610/1412 du 11 octobre 2010
+
+FIXANT EQUIVALENCE DE CERTAINS DIPLOMES, TITRES SCOLAIRES ET UNIVERSITAIRES ETRANGERS
+
+LE MINISTRE DE L’ENSEIGNEMENT SUPERIEUR ET DE LA RECHERCHE SCIENTIFIQUE,
+
+Vu la constitution de la République du Burundi ;
+
+Vu la Loi n°1/14 du 17 juillet 1999 portant Réorganisation du Système de Collation des Grades Académiques au Burundi ;
+
+Vu le Décret-loi n°1/25 du 13 juillet 1989 portant Réorganisation de l’enseignement au Burundi, tel que modifié à ce jour ; Revu le Décret n° 100/121 du 30 novembre 2005 portant Réorganisation du Ministère de l’Education Nationale et de la Culture ;
+
+Vu le Décret n°100/02 du 29 août 2010 portant Nomination des Membres du Gouvernement de la République du Burundi ; Sur avis de la Commission Nationale d’Equivalence de Diplômes, Titres Scolaires et Universitaires ;
+
+ORDONNE
