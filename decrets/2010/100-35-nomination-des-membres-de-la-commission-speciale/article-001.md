@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Membres de la Commission : 1. Ministre de la Sécurité Publique : Président 2. Ministre de la Défense Nationale et des Anciens Combattants : Vice-Président; 3. Ministre des Finances : Membre; 4. Administrateur Général du Service National de Renseignement: Membre; 5. Conseiller Principal au Bureau chargé des Questions Politiques, Diplomatiques et de Coopération à la Présidence de la République: Membre; 6. Directeur National de Contrôle des Marchés Publics: Membre; 7. Directeur Général des Approvisionnements et de la Gestion au Ministère de la Défense Nationale et des Anciens Combattants: Membre; 8. Directeur Général de l’Administration et de la Gestion au Ministère de la Sécurité Publique : Membre.
