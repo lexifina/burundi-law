@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés: 1. Conseillers au Bureau chargé des Questions Politiques, Diplomatiques et de Coopération:  Monsieur Pierre BAMBASI;  Monsieur Jean-Marie NDABASHINZE;  Monsieur Thérence NTAHIRAJA. 2. Conseiller au Bureau chargé des Questions Juridiques et Administratives:  Monsieur Juvénal MUVUNYI. 3. Conseillers au Bureau chargé des Questions Economiques:  Ir. Jean NSENGIMANA;  Ir. Hilaire HAKIZIMANA. 4. Conseiller au Bureau chargé des Questions Sociales et Culturelles:  Madame Béatrice HAVUGINOTI. 5. Conseiller au Service chargé de l’Administration et de la Gestion:  Monsieur Désiré MAZIMPAKA.
