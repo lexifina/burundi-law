@@ -1,0 +1,3 @@
+# Article 3
+
+Le personnel bénéficie d’une augmentation de son salaire de base en considération de son diplôme de recrutement et de sa date d’entrée dans les services des titres fonciers de la manière suivante :  Entre 01 et 06 ans de service avec la note « Très Bon » : une augmentation de 7% du salaire de base;  Entre 07 et 12 ans de service avec la note « Très Bon » : une augmentation de 14% du salaire de base;  Entre 13 et 18 ans de service avec la note « Très Bon » : une augmentation de 21% du salaire de base;  Entre 19 -et 24 ans de service avec id note « Très Bon » : une augmentation de 28% du salaire de base;  De 25 ans de service et plus avec la note « Très Bon » : une augmentation de 35% du salaire de base.
