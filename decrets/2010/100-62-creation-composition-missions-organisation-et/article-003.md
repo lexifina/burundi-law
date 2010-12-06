@@ -1,0 +1,3 @@
+# Article 3
+
+Placée sous la Coordination de la Présidence de la République, cette Commission a pour mission de faire la lumière sur toutes les questions en rapport avec la démarcation et la matérialisation des frontières communes avec la République du Rwanda, la République Démocratique du Congo et la République Unie de Tanzanie. Elle participe aux sessions organisées conjointement avec la République du Rwanda, la République Démocratique du Congo et la République Unie de Tanzanie dans le cadre des Sous-Commissions Techniques Mixtes chargées des frontières et fait rapport à la Plus Haute Autorité de la République.
