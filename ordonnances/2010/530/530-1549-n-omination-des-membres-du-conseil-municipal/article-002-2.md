@@ -1,0 +1,3 @@
+# Article 2 2
+
+La Commission est chargée de :  s’enquérir du nombre de places disponibles dans les facultés, instituts et départements des Etablissements d’Enseignement Supérieur et Universitaire Public (Université du Burundi et Ecole Normale Supérieure);  recenser le nombre de lauréats de l’Examen d’Etat de l’édition 2010;  définir les critères d’orientation dans chaque filière;  placer les candidats dans les différentes filières de l’Enseignement Supérieur Public;  inventorier et analyser les demandes individuelles d’orientation à l’Enseignement Supérieur des lauréats des promotions antérieures à 2010 ou en provenance de l’étranger.

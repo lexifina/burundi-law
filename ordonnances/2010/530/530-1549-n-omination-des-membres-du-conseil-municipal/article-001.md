@@ -1,0 +1,3 @@
+# Article 1
+
+Le Conseil Municipal Provisoire de la Mairie de Bujumbura est composé comme suit : 1. Maître GISWASWA Evrard : Président 2. RURIMIRIJE Jean Marie : Vice-Président 3. NYABENDA Christophe : Secréta r ire 4. RURATOTOYE Pauline : Memb 5. NGERAGEZE Espérance : Membre 6. KABANO Idi Radjabu : Membre 7. MBONIMPA Freddy : Membre embre 8. GIRUKWISHAKA Jean Bosco : M 9. BARAMPAMA Rémy : Membre 10. MPAWENIMANA Espérance : Membre re 11. BARAMPAMA Nadine : Memb 12. MPAWENIMANA Jean Paul : Memb 13. NTIRANDEKURA Nicodème : Memb 14. NKURUNZI mbre ZA Eric : Me VA Evaris 6. INAKANYANA Christine : Membre
