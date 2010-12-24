@@ -1,0 +1,3 @@
+# Article 2 4
+
+La Commission a pour mission de : 1. Proposer et mettre en application des solutions durables pour la protection intégrée de ces rivières et de leur environnement dans le respect de l’équilibre environnemental; 2. Proposer des normes à respecter dans le curage de la rivière; 3. Analyser l’état de l’exploitation anarchique des matériaux de construction dans les rivières traversant la ville de Bujumbura; 4. Etablir la responsabilité des activités qui s’opèrent dans ces rivières; 5. Donner des avis nécessaires à la mise en application des lois et procédures en vigueur; 6. Programmer et surveiller des travaux de curage des rivières.
