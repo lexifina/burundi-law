@@ -1,0 +1,3 @@
+# Article 38
+
+La promotion au grade immédiatement supérieur, pour les Officiers en activité, s’opère suivant l’ordre des grades ci-après: Sous-Lieutenant au Lieutenant : 1 an Lieutenant au Capitaine : 4 ans Capitaine au Major : 5 ans Major au Lieutenant-Colonel : 5 ans Lieutenant-Colonel à Colonel : 5 ans La nomination dans la catégorie des Officiers Généraux ainsi que la détermination des avantages y afférents sont du pouvoir du Commandant Suprême des Corps de Défense et de Sécurité. Aucun Officier ne peut être promu s’il s’est vu infliger une punition marquante au sens du règlement sur la discipline militaire au cours des six derniers mois qui précèdent la nomination ou s’il a un dossier disciplinaire ou judiciaire en cours.

@@ -1,0 +1,3 @@
+# Article 4 4
+
+Sont nommés au grade de Brigadier de Police Principal de lère classe (BPP1) à la date du 31 décembre 2010, les Brigadiers de Police Principal de 2ème classe (BPP2) dont les noms, prénoms et matricules suivent : SERIE NOM ET PRENOM MATRICULE 1. BATUNGWANAYO Adrien BPN0722 2. CIZA J. Baptiste BPN 1242 3. HARAMAJA MBERE Laurent BPN1605 4. KAMWENUBUSA Asmani BPN0056 5. MUCO Zéphyrin BPN2426 6. MUDAHUNGA Anatole BPN2583 7. NDAYISHIMIYE Claudine BPN2002 8. NDUWIMANA Juvénal BPN1731 9. NIBAYISABE Rémy BPN2006 10. NICOYANDITSE J. Berchmans BPN2198 11. NITUNGA Lévis BPN2061 12. NIYONKURU Janvier BPN0667 13. NSABIMANA Déo BPN 1514 14. NSHIMIRIMANA Emmanuel BPN2216 15. NTAKARUTIMANA Lupin BPNO238 16. NTIGACIKA Balthazar BPN2550 17. RUBERINTWARI Célestin BPN0148
