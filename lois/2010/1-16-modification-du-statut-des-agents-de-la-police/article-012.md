@@ -1,0 +1,3 @@
+# Article 12
+
+L’Agent en activité bénéficie des facilités de l’Etat pour l’accès au crédit logement conformément à la politique générale du Gouvernement en matière d’habitat. En cas de décès d’un Agent en activité, ses ayants droits gardent ce logement et l’apurement de la dette est à charge de l’Etat à concurrence de l’indemnité de logement en vigueur ; exception faite à l’Agent décédé dans les circonstances ci-après : - en cas de suicide ; - en cas de décès quand l’Agent est dans un état de violation de la loi. Les arriérés de non payement dus au manquement de l’Agent restent à charge de ses ayants droits.

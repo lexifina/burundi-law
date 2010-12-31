@@ -1,0 +1,3 @@
+# Article 55
+
+Tout Agent de la Police Nationale frappé d’une sanction disciplinaire peut introduire par écrit un recours endéans huit jours ouvrables à compter de la date de la notification de la sanction auprès de l’autorité qui a prononcé la sanction. Cette autorité dispose de huit jours pour réagir. S’il n’obtient pas satisfaction, il peut introduire par écrit, endéans douze jours, un recours auprès de l’autorité hiérarchiquement supérieure à celle qui a prononcé la sanction. Cette autorité dispose de trente jours pour réagir. Toutefois, le recours hiérarchique ne peut se faire au- delà de l’autorité investie du pouvoir de nomination.
