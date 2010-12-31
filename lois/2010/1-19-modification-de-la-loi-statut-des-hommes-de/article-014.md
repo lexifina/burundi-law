@@ -1,0 +1,3 @@
+# Article 14
+
+L’Homme de Troupe bénéficie des facilités de l’Etat pour l’accès au crédit du premier logement dans le cadre de la politique générale du Gouvernement du Burundi en matière d’habitat. En cas de décès d’un Homme de Troupe en activité, ses ayants droit gardent ce logement et l’apurement de la dette est à charge de l’Etat à concurrence de l’indemnité de logement en vigueur ; exception faite à l’Homme de Troupe décédé dans les circonstances ci-après : - en cas de suicide ; - en cas de décès quand l’Homme de Troupe est dans un état de violation de la loi. Les arriérés de non payement dus au manquement de l’Homme de Troupe restent à charge de ses ayants droit.
