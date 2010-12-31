@@ -1,0 +1,3 @@
+# Article 11
+
+Le Sous-Officier en activité bénéficie de facilités de l’Etat pour l’accès au crédit de premier logement conformément à la politique générale du gouvernement du Burundi en matière d’habitat. En cas de décès d’un Sous-Officier en activité, l’Etat supporte le reste de la dette à concurrence de l’indemnité de logement en vigueur ; exception faite au Sous-Officier décédé dans les circonstances ci-après : - en cas de suicide ; - en cas de décès quand le Sous-Officier est dans un état de violation de la loi. Les arriérés de non payement dus au manquement du Sous-Officier restent à charge de ses ayants droit.
