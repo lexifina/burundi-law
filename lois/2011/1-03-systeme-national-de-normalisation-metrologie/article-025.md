@@ -1,0 +1,3 @@
+# Article 25
+
+Par voie d’annonce au Journal mensuel officiel, le Ministre ayant le commerce dans ses attributions peut déclarer tout étalon listé dans une ordonnance, étalon national de mesure. Un étalon national peut être un étalon de mesure permettant de réaliser d’une manière indépendante, les unités de mesure couvertes par les articles 20, 21, 22 et 23 ou un étalon traçable à l’étalon national d’un autre pays qui permet de réaliser cette unité de mesure. Par rapport à l’unité de mesure, la valeur de l’étalon national de mesure doit être telle que le Bureau la fait déclarer à intervalles indéterminés, conforme aux incertitudes stipulées et considérée comme la valeur la plus précise.

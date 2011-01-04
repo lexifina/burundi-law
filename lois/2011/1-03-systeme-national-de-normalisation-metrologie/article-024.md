@@ -1,0 +1,3 @@
+# Article 24
+
+L’utilisation d’unités autres que les unités légales est interdite, en particulier dans le cadre d’échanges commerciaux, dans la documentation et la publicité pour des produits et services, dans des publications ou lors de mesures de formation, à l’exception de : 1. La documentation et la référence à des produits fabriqués et à des services rendus avant l’entrée en vigueur de la présente loi ; 2. La citation d’unités autres que les unités légales dans une perspective historique dans des publications et lors de formations ; 3. Les documents et les publications destinés à être utilisés dans des pays où d’autres systèmes d’unités sont en vigueur.

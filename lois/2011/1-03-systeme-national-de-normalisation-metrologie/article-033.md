@@ -1,0 +1,3 @@
+# Article 33
+
+Le Ministre ayant le commerce dans ses attributions, après consultation du Bureau, publie par ordonnance une liste d’instruments de mesure devant être contrôlés et révise, si besoin est, cette liste en y ajoutant ou en retirant des instruments ou encore en modifiant les spécifications des instruments figurant dans l’ordonnance. Les instruments de mesure ou groupes d’instruments de mesure listés dans l’ordonnance doivent fournir des résultats de mesure exprimés dans les unités de mesure légales spécifiées aux articles 20, 21, 22 et 23 et doivent être étalonnés de manière traçable aux étalons nationaux comme stipulé à l’article 25.
