@@ -1,0 +1,3 @@
+# Article 11
+
+Lors de ses descentes sur terrain, la délégation provinciale s’adjoint de : - 1 représentant de l’Administration communale ; - 2 membres du Conseil Communal ; - 2 membres du Conseil de Colline. Ces derniers participent entièrement à toute délibération concernant les affaires de leurs communes ou de leurs collines. Ils sont nommés par le Gouverneur de province en concertation avec le Conseil Communal.
