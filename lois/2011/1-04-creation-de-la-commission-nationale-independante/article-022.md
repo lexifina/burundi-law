@@ -1,0 +1,3 @@
+# Article 22
+
+Avant d’entrer en fonction, les membres de la Commission prêtent le serment suivant : «Devant le Président de la République, devant le Parlement, moi (Nom et Prénom), membre de la Commission Nationale Indépendante des Droits de l’Homme, je jure de remplir fidèlement et en toute indépendance et impartialité mon mandat, de ne me laisser jamais guider par aucun intérêt partisan et de me consacrer entièrement à la protection et à la promotion des droits de l’homme dans le strict respect de la Constitution de la République du Burundi, de la Charte de l’Unité Nationale et d’autres lois en vigueur ».
