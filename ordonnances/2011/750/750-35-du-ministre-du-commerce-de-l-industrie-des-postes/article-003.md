@@ -1,0 +1,3 @@
+# Article 3
+
+Le Comité Directif a un mandat de 4 ans renouvelable et il est chargé notamment de :  voter le budget du Centre;  recevoir et analyser les rapports narratifs et financiers de l’unité de coordination,  assurer la participation effective des artisans à la valorisation du Centre;  veiller au respect de l’éthique professionnelle et des règles de bonne conduite du secteur artisanal;  suggérer les stratégies de développement du Centre et des artisans;  décider de l’affectation des fonds sur proposition de l’unité de coordination;  sélectionner les artisans suivant les critères et règles définis dans les textes régissant le Centre
