@@ -1,0 +1,5 @@
+# Article 6
+
+La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature
+
+Fait à Bujumbura, le 19/01/2011 LE MINISTRE DE L’ENSEIGNEMENT DE BASE ET SECONDAIRE, DE L’ENSEIGNEMENT DES METIERS, DE LA FORMATION PROFESSIONNELLE ET DE L’ALPHABETISATION MR SEVERIN BUZINGO (Sé)

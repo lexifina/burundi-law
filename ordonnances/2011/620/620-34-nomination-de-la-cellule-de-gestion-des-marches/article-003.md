@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés Membres de la Commission de Réception des Marchés 1 Monsieur Eric NSHIMIRIMANA, Directeur des Affaires Financières, Président 2 Monsieur Pascal NSHIMIRIMANA, Directeur Général de l’Enseignement des Métiers et de la Formation Professionnelle 3 Madame Thérèse NSHIMIRIMANA, Responsable des magasins, Direction des Approvisionnements Scolaires 4 Madame Christelle KAZE, Conseillère Direction Générale de l’Enseignement des Métiers et de la Formation Professionnelle 5 Monsieur Protais NDIKURIYO, Directeur Général de l’Alphabétisation et de l’enseignement préscolaire 6 Monsieur Salvator BIMPENDA, Directeur des Approvisionnements Scolaires 7 Monsieur Protais NAYUBURUNDI, Conseiller au Cabinet
