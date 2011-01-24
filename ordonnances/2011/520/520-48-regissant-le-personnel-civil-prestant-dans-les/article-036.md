@@ -1,0 +1,3 @@
+# Article 36
+
+Le personnel civil de la Force de Défense Nationale est responsable de la bonne exécution des tâches qui lui sont confiées. Il doit l’accomplir consciencieusement, avec diligence et intégrité. Il doit respecter les règles générales de travail, de discipline et de tenue qui découlent des textes en vigueur ou qui résultent de la tradition de travail du lieu d’affectation. Il ne doit jamais se départir des marques extérieures de respect à l’égard de leurs supérieurs hiérarchiques. Il doit se garder de tous actes susceptibles de troubler le bon ordre dans les lieux de service. Il doit également, dans sa vie publique et privée, se garder de tout acte susceptible d’ébranler la confiance du public à l’égard des services de défense Nationale.

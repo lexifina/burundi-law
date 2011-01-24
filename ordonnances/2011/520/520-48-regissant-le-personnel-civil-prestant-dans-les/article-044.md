@@ -1,0 +1,3 @@
+# Article 44
+
+Les fautes disciplinaires suivantes sans être limitatives sont considérées comme pouvant entraîner la résiliation du contrat :  Ivresse au service,  Vol ou détournement,  Refus d’exécution d’ordre donné par un supérieur,  Tout manquement volontaire aux consignes d’hygiène et de sécurité,  Toute fausse déclaration concernant la possession de diplômes et/ou certificat,  Toute falsification de documents officiels,  Toute dégradation ou abus d’usage des biens mis à la disposition du personnel,  Tout manquement au secret professionnel,  Voies de fait ou injures,  Manifestation ou comportement de nature à ternir l’image du Corps de Défense et de Sécurité ou à compromettre la sécurité du pays.
