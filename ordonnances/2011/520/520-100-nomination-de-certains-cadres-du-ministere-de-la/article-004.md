@@ -1,0 +1,3 @@
+# Article 4
+
+Sont nommés Adjoints Principaux des Chefs de Service :  Service Chargé des Renseignements : Colonel Paul NDITIJE SSO163 de la matricule;  Service Chargé du Moral des Unités et des Relations Publiques : Colonel Thomas MACUMI SS0207 de la Matricule;  Bureau d’Etudes Colonel Egide NZIBAVUGA SS0156 de la matricule;  Bureau Informatique Major Aloys Jobert NDAKOZE SS0488 de la matricule;  Direction Centrale des Traitements : Colonel Ferdinand NKUNZIMANA SS0268 de la matricule;  Bureau Renseignement Militaire Lieutenant Colonel Alexandre NURWABAHUNGU SS0318 de la matricule;  Bureau de Formation Supérieure et Spécialisée à l’Etat-Major Formation : Lieutenant Colonel Jean Berchimans NDIKUMANA SS0374 de la matricule;

@@ -1,0 +1,3 @@
+# Article 14
+
+Sont nommés Commandants d’Unités :  Camp NGAGARA : Lieutenant Colonel Edouard SIMBIZI SS0324 de la matricule;  Bataillon Génie de Combat : Lieutenant Colonel Ildephonse MBISAMATORE SS0317 de la matricule;  Cent Vingt Deuxième Bataillon : Lieutenant Colonel Donatien NDUWIMANA SS0404 de la matricule;  Deux Cent Quatorzième Bataillon : Major Mathias SIBOMANA SS1786 de la matricule;  Trois Cent Vingt Unième Bataillon : Major Jean-Bosco KABUHUNGU SS0592 de la matricule;  Cinq Cent Onzième Bataillon : Major Sanctus NSHIMIRIMANA SS0507 de la matricule  Bataillon de la Police Militaire Major Michel NDENZAKO SSO483 de la matricule.
