@@ -1,0 +1,3 @@
+# Article 1 2
+
+Est nommé Directeur : - du Lycée BUSERUKO, NZOBONIMPA Edmond, Matricule : 578.547. - du Collège Communal de RUGAJO, Monsieur MBONIMPA Emmanuel, Matricule : 576.374. - du Collège Communal de KAGURUTSI, Monsieur HABUMUREMYI Audace, Matricule : 560.391. - du Collège Communal de BITARE, Monsieur RUGURANE Pierre, Matricule : 563.123. - du Collège Communal de NGOMA, Monsieur NTAHOMVUKIYE Jean Bosco, Matricule : 569.880. - du Collège Communal de MUYEBE, Monsieur MASABARAKIZA Dieudonné, Matricule : 563.237. - du Collège Communal de RUGEREGERE, Monsieur HATANGIMANA Jules, Matricule : 572.547.
