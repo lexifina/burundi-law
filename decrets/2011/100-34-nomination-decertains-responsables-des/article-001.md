@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés : - Président du Tribunal de Grande Instance de BUJUMBURA : Madame Cécile MINANI ; - Président du Tribunal de Grande Instance de BUJUMBURA-MAIRIE : Madame Adelaïde NIYAKIRE ; - Président du Tribunal de Grande Instance de CIBITOKE : Monsieur Jean Claude HATUNGIMANA ; - Président du Tribunal de Grande Instance de MAKAMBA : Madame Pascaline HABONIMANA ; - Président du Tribunal de Grande Instance de RUTANA : Monsieur Canésius NDIHOKUBWAYO ; - Président du Tribunal de Grande Instance de RUYIGI : Madame Sandrine GATORE ; - Procureur de la République en Mairie de BUJUMBURA : Monsieur Augustin SINZOYIBAGIRA ; - Procureur de la République à BURURI : Monsieur Isaac MUKESHIMANA ; - Procureur de la République à RUYIGI : Monsieur Isaac SABUWANKA.
