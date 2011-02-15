@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Membres du Comité de Pilotage pour la révision du Code de l’Aéronautique Civile du Burundi : 1. Monsieur Vital NARAKWIYE, Directeur Général au MTTPE, Président 2. Ambassadeur Joseph BANGURAMBONA, Directeur de la RSA, Vice-Président, 3. Monsieur Deus NIYONKURU, Chef du Service de Transport Aérien, Secrétaire, 4. Monsieur Consolateur NITUNGA, Chef du Personnel du MTTPE, 5. Un membre représentant la compagnie Kenya Airways 6. Monsieur l’Administrateur Directeur Général d’Air Burundi 7. Monsieur le Directeur Général de la SOBUGEA 8. Monsieur le Commandant de la Police Aéroportuaire
