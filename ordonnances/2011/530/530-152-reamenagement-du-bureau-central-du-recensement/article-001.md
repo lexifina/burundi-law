@@ -1,0 +1,3 @@
+# Article 1
+
+Le Bureau Central de Recensement est réaménagé comme suit : 1. Monsieur MBONABUCA Térence, Directeur National; 2. Monsieur NDAYISHIMIYE Orner, Directeur National-Adjoint; 3. Monsieur NDUWABIKE Noé, Chef de la Division Analyse et Traitement des Données; 4. Monsieur SIMBANANIYE Innocent, Membre de la Division Analyse et Traitement des Données; 5. Monsieur KAYIRO Pierre-Claver, Membre de la Division Analyse et Traitement des Données; 6. Monsieur MUNEZERO Désiré, Membre de la Division Analyse et Traitement des Données; 7. Monsieur NTITANGIRAGEZA Venant, Membre; 8. Monsieur KUMBUGA Pascal, Membre; 9. Monsieur NTIYANKUNDIYE Pie, Membre.
