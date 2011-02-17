@@ -1,0 +1,3 @@
+# Article 2
+
+Seuils de compétence de la Direction Nationale de Contrôle des Marchés Publics La Direction Nationale de Contrôle des Marchés Publics est chargée de contrôler à priori la procédure de passation des marchés d’un montant supérieur ou égal à : Cent cinquante millions de francs burundais (150.000.000fbu) pour les marchés de travaux, de fournitures ou de services En dessous des seuils visés ci-dessus, la Direction Nationale de Contrôle des Marchés Publics peut procéder à des contrôles à postériori, à tout moment, sur la régularité de l’application de la réglementation relative aux Marchés Publics par l’ensemble des commissions de passation de marchés, y compris pour les dépenses inférieures aux seuils de passation définis à l’article 1 de la présente ordonnance.
