@@ -1,0 +1,5 @@
+# Article 4
+
+La présente ordonnance entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, 18/2/2011 MINISTRE DE L’ENSEIGNEMENT DE BASE ET SECONDAIRE, DE L’ENSEIGNEMENT DES METIERS, DE LA FORMATION PROFESSIONNELLE ET DE L’ALPHABETISATION Séverin BUZINGO (sé)
