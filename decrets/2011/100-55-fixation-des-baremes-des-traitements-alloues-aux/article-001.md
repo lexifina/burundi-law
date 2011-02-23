@@ -1,0 +1,3 @@
+# Article 1
+
+Les traitements mensuels de base des Officiers, Sous-Officiers, Homme de Troupe, en service à la Force de Défense Nationale sont fixés conformément au tableau ci-dessous : GRADE BAREME MENSUEL Recrue 3.785 2ème Classe 16.113 1ère Classe 22.191 Caporal 30.429 Caporal-chef 41.241 Caporal-Candidat-Sergent 17.477 Sergent 31.639 1er Sergent 40.681 1er Sergent Major 52.452 Adjudant 67.470 Adjudant-Chef 87.358 Adjudant-Major 112.044 Adjudant-Candidat Officier 36.900 Sous-Lieutenant CO 38.413 Sous-Lieutenant Stagiaire 45.778 Sous-Lieutenant nommé 53.102 GRADE BAREME MENSUEL Lieutenant 68.245 Capitaine 89.281 Major 150.557 Lieutenant-Colonel 194.315 Colonel 246.432 Général de Brigade 313.504 Général-Major 398.388 Lieutenant-Général 504.486
