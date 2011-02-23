@@ -1,0 +1,3 @@
+# Article 2
+
+La prime mensuelle de spécialité pour les Brigadiers est fixée, selon le cas de la manière suivante :  Brigadier mécanicien : 4.000 FBU  Brigadier Menuisier : 4.000 FBU  Brigadier chargé de la Maintenance et Réparation des équipements radio et informatiques : 4.000 FBU  Brigadier musicien : 4.000 FBU  Brigadier électronicien : 3.000 FBU  Brigadier Plongeur : 3.000 FBU  Brigadier Conducteur des Travaux : 3.000 FBU  Brigadier secouriste : 3.000 FBU  Brigadier Instructeur : 3.000 FBU  Officier de Police Judiciaire : 3.000 FBU  Brigadier Sapeur Pompier : 3.000 FBU  Brigadier Démineur : 3.000 FBU  Brigadier Archiviste : 3.000 FBU  Maître Chien : 3.000 FBU  Brigadier Spécialiste de la Police Scientifique : 3.000 FBU
