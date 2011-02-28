@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres du Comité de Sport Scolaire du Secondaire Général Pédagogique Public, Privé et Technique pour l’année 2010-2011  Monsieur GASHAKA Joél : Président  Monsieur WEGE Fiacre :Secrétaire  Madame NAHIMANA Victoire : Membre  Monsieur NIYONKURU Anatole : Membre  Monsieur BENDANTOKIRA Tharcisse : Membre  Monsieur GAHUNGU Herman : Membre  Monsieur JONYA Jean Claude : Membre  Monsieur NDAYISABA Astère : Membre  Monsieur NDAYIRUKIYE Salomon : Membre  Monsieur MANIRAMBONA Albert : Membre  Monsieur BARANSHARITSE Hilaire : Membre  Madame NAHIMANA Circoncilie : Membre  Madame RURATANDITSE Godelieve : Membre  Madame NGENDAKUMANA Floride : Membre  Madame NDAYISENGA Madeleine : Membre  Madame NDIHOKUBWAYO Daphrose : Membre
