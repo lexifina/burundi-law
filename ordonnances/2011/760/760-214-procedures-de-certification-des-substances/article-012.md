@@ -1,0 +1,3 @@
+# Article 12
+
+De la saisie Lorsque la Direction des Mines et Carrières constate qu’il n’existe pas d’éléments de preuves concluants selon lesquels les substances minérales à commercialiser et ou à exporter ne satisfont pas aux conditions de délivrance du certificat d’origine ou que les substances minérales pro-viennent des sources illicites ou bien que le bénéficiaire ne respecte pas la loi de commerciali-sation en vigueur, elle saisit immédiatement le lot de minerais. Dans ce cas, les substances minérales saisies sont soumises à la procédure de vente publique conformément aux dispositions légales en vigueur.
