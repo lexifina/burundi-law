@@ -1,0 +1,3 @@
+# Article 36
+
+Le médeein vétérinaire inserit au tableau de l'Ordre ne peut exereer une autre profession ou une autre aetivité incompatible avec les obligations morales résultant de la déontologie vétérinaire, notamment lorsqu' elle est de nature à mettre en conflit les intérets du membre avec ses devoirs déontologiques en lui foumissant les moyens de coneurrence déloyale vis-à-vis de ses confrères. Toute activité à caractère commerciaI dans les locaux professionnels est interdite. Toutefois, n'est pas considérée comme activité à caractère commerciaI dans les locaux professionnels la délivrance des médicaments vétérinaires ou des autres intrants d' élevage.

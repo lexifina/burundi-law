@@ -1,0 +1,5 @@
+# Article 57
+
+Seules les décisions rendues par le Conseil de l'Ordre national relativement à la demande d'inscription au tableau de l'Ordre national et à la sanction de suspension ou de radiation sont susceptibles d'appel à l'initiative du médecin vétérinaire mis en cause. L'appel est porté devant les juridictions compétentes dans un délai maximum d'un mois à compter de la notification à personne de la décision rendue par le Conseil de l'Ordre national. Si celle-ci a été rendue par défaut, le délai d'appel ne court qu'à compter du jour où la décision n'est plus susceptible d'opposition. L'appel formé contre une décision rendue par le Conseil de l'Ordre national est introduit conformément aux règles de la procédure civile. Lorsqu'elles sont devenues irrévocables, toutes les décisions relatives à là sanction de suspension ou de radiation d'un membre de l'Ordre national par le Conseil, font également l'objet d'une publication, par extrait du dispositif au Bulletin Officiel du Burundi.
+
+TITRE III : DES DISPOSITIONS FINALES
