@@ -1,0 +1,3 @@
+# Article 21
+
+La Direction de la Planification Urbaine est chargée de : étudier le phénomène urbain dans sa globalité ; mettre en place des outils de planification urbaine et d’en assurer le suivi ; élaborer et mettre en œuvre des stratégies de développement des centres urbains ou à vocation urbaine ; planifier la disponibilité des terrains à aménager ; suivre les travaux de viabilisation des terrains urbains ; vérifier la conformité de possession de parcelles urbaines avant tout acte de mesurage et de bornage par le Cadastre National et l’enregistrement aux services des titres fonciers ; coordonner les interventions des différents services œuvrant dans le domaine de l’aménagement des terres urbaines.

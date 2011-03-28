@@ -1,0 +1,3 @@
+# Article 15
+
+La Direction Générale de l’Environnement et des Forêts a pour missions principales de : participer à l’élaboration de la politique du gouvernement en matière de l’environnement et des forêts et assurer le suivi de son exécution en collaboration avec les autres partenaires ; définir et élaborer les stratégies de mise en application de la politique sectorielle du Ministère en matière de l’environnement et des forêts ; assurer le développement des ressources forestières ; coordonner, contrôler et évaluer les activités des directions et services qui sont sous sa dépendance ou qui en sont rattachés.
