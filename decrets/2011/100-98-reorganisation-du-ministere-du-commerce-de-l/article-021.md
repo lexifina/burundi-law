@@ -1,0 +1,3 @@
+# Article 21
+
+Le Département de la Recherche et de la Vulgarisation des technologies est appelé à : promouvoir la recherche et la vulgarisation des technologies artisanales ; collecter les technologies artisanales utilisées au Burundi, évaluer leurs performance et entreprendre leur amélioration ; identifier les technologies mises au point ailleurs et en informer les artisans en vue d’une éventuelle adaptation au Burundi ; vulgariser les technologies appropriées en collaboration avec les collectivités locales et les autres partenaires ; collaborer avec les autres services et institutions tant publics que privés menant des actions de recherches technologiques.

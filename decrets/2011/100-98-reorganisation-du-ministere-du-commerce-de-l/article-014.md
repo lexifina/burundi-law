@@ -1,0 +1,3 @@
+# Article 14
+
+La Direction Générale du Commerce a pour missions notamment de : participer à l’élaboration de la politique sectorielle en matière de commerce et veiller à sa mise en application ; créer et entretenir l’éthique des affaires ; promouvoir les échanges interrégionaux au niveau national et international ; mettre en place une politique d’approvisionnement du pays en produits stratégiques et de première nécessité ; participer au processus d’intégration économique du pays dans le cadre des organisations régionales ; préparer et participer aux négociations commerciales, régionales et multilatérales ; initier les réformes législatives pour améliorer et adapter l’environnement légal et réglementaire des affaires.
