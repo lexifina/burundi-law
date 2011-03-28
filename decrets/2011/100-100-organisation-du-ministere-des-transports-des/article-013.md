@@ -1,0 +1,3 @@
+# Article 13
+
+La Direction Générale de la Coordination des Equipements a pour missions principales de : assurer la coordination de toutes les activités d’équipement ; élaborer la politique d’entretien des infrastructures et en assurer l’exécution ; institutionnaliser et faire respecter des normes techniques et architecturales ; assurer la protection des ouvrages publics ; contribuer à la Supervision de la construction et l’entretien des infrastructures urbaines et semi urbaines, en collaboration avec les Ministères concernés ; orienter et contrôler les activités des concessionnaires de réseaux (ONATEL, REGIDESO, SETEMU, etc) ; assurer le suivi des projets d’investissement du Ministère dans le domaine de l’équipement.

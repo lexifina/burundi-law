@@ -1,0 +1,3 @@
+# Article 15
+
+La Direction des Normes et Travaux Urbains a pour missions principales de : assurer le suivi des constructions d’immeubles publics et privés ; assurer la protection des berges des rivières, des ravins et autres ouvrages d’art dans les centres urbains ; vérifier les études géotechniques avant les constructions ; superviser le contrôle des constructions urbaines et péri-urbaines ; superviser le contrôle des activités des concessionnaires des réseaux ; assurer la production et le contrôle des normes architecturales et techniques des matériaux de construction ; assurer le suivi des activités d’entretien des infrastructures urbaines et de salubrité. Paragraphe 3 : De la Direction Générale du Bâtiment
