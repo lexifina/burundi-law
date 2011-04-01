@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la commission d’organisation du Test National de fin de collège, édition 2011, les personnes suivantes :  Monsieur Patrice MANENGERI : Coordinateur,  Monsieur KARITUNZE Ildéphonse : Président,  Madame CIMPAYE Jeannine : Vice-Président,  Monsieur BWATEMBA Sylvestre : Secrétaire,  Monsieur KANA Philibert : Membre,  Monsieur HABONIMANA Rémégie : Membre,  Madame NIKUZE Ariane : Membre,  Madame NIZIGAMA Christine : Membre,  Mademoiselle KAMARIZA Francine : Membre,  KAMENGE Thérèse : Membre,  BARYANA Philippe : Membre,  BIGIRIMANA Rebecca : Membre,  RIRAGENDANWA Anatole : Membre,  NZOBI Runyanya : Membre,  NIBITANGA Hérène : Membre,  BIGIRIMANA Aster : Membre.
