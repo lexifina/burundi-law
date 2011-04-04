@@ -1,0 +1,3 @@
+# Article 1
+
+Le service d’accréditation et d’inspection des structures de soins et établissements de formation est chargé de :  Analyse des dossiers de demandes d’ouverture de ces structures après vérification des conditions de base ;  contrôle des nonnes de fonctionnement des structures de soins (hôpitaux, centre de santé, centre de traitement des yeux, cliniques, cabinets médicaux, postes de soins), et des établissements de formation paramédicale. Il est chargé en outre du contrôle de l’hygiène des lieux et places publics pouvant compromettre la santé de la population ;  Formulation des recommandations pour améliorations des conditions observées ;  Accomplissement de toute tache confiée par l’autorité hiérarchique.
