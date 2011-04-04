@@ -1,0 +1,3 @@
+# Article 3
+
+Le montant des dépenses inscrit au budget de fonctionnement se répartit comme suit : Compte 61 : Matières et fournitures consommées : 781.500.000 Fbu Compte 62 : Transports consommés : 50.000 Fbu Compte 63 : Autres services consommés : 983.830.000 Fbu Compte 64 : Charges et pertes diverses : 262.100.000 Fbu Compte 65 : Frais du personnel : 1.474.797.445 Fbu Compte 66 : Impôts et taxes : 0 Fbu Compte 67 : Intérêts : 148.669.393 Fbu Compte 68 : Dotations aux amortissements et provisions : 0 Fbu Compte 80 : Charges des exercices antérieurs : 315.202.332 Fbu Total des dépenses de fonctionnement : 3.966.149.170 Fbu
