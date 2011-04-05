@@ -1,0 +1,3 @@
+# Article 5
+
+Sont nommés Chefs de Bureaux dans les Brigades :  Bureau Chargé des Opérations à la Brigade Spéciale de Protection des Institutions : Lieutenant-Colonel Pascal NSABIYABANDI SS0351 de la matricule;  Bureau chargé de la Logistique à la 110ème Brigade : Major Joseph NDUWIMANA SS0615 de la matricule;  Bureau chargé des Opérations à la 210ème Brigade : Major William RUSODOKA SS0595 de la matricule;  Bureau Chargé des Opérations à la 320ème Brigade : Major Corneille NZIGAMASABO SS0598 de la matricule;  Bureau Chargé du Personnel à la 420ème Brigade : Major BARYUWE SS1784 de la matricule;
