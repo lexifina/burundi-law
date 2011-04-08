@@ -1,0 +1,3 @@
+# Article 13
+
+L’Unité « Accueil et Réception » est chargée de : - Recevoir et orienter tous les visiteurs qui sollicitent les services du Ministère ; - Recevoir et orienter tous les documents (courrier, revues et autres) envoyés au Cabinet ; - Recevoir et transmettre les messages téléphoniques ou électroniques et établir la liaison des services extérieurs avec le Cabinet ; - Recevoir les demandes d’audiences auprès du Cabinet du Ministre, établir et communiquer le programme des audiences; - Tenir le registre des présences du personnel du Cabinet ; - Assurer la gestion des fournitures de bureaux destinées au Secrétariat; - S’assurer de la propriété et de l’ordre dans les bureaux du Cabinet.
