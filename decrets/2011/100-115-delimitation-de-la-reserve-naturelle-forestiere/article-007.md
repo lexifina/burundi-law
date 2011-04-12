@@ -1,0 +1,3 @@
+# Article 7
+
+Toutes les dispositions antérieures contraires au présent Décret sont abrogées.
