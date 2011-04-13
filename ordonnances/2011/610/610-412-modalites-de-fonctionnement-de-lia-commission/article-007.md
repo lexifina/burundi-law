@@ -1,0 +1,5 @@
+# Article 7
+
+Des attributions et des formations La Commission réunit les membres du Bureau et du Collège. Elle se prononce sur le programme d’activités proposé par le Bureau et, de façon générale, prend toutes décisions en vue de la réalisation de ses missions, telles que définies à l’article 5 du Décret n° 100/12 du 10 janvier 2008 susvisé. A travers le suivi du Secrétaire Exécutif, la Commission est chargée d’orienter et de coordonner les activités des Commissions ad-hoc suivantes : - La Commission des évaluations chargée notamment d’analyser les demandes d’agrément des établissements d’enseignement supérieur privés, de l’accréditation, des équivalences de diplômes et des titres scolaires et universitaires; - La Commission pédagogique chargée des programmes et des contenus de cours ; - La Commission pour le développement de la science et la technologie.
+
+Les Commissions ad-hoc citées à l’alinéa précédent sont consultées pour expertise afin d’appuyer les structures du Ministère. Elles peuvent se constituer en des sous-commissions aux fins de rendre leur travail efficace.
