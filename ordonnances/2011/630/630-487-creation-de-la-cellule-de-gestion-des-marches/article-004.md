@@ -1,0 +1,3 @@
+# Article 4
+
+La Cellule de Gestion des Marchés Publics (CGMP) au sein de l’Hôpital de RWIBAGA composée par : 1. Dr NAHIMANA Patrice : Médecin Directeur; 2. Mr NDAYISHIMIYE Richard’: Gestionnaire; 3. Mlle MUHIMBARE Espérance Luc: Service de recouvrement ; 4. Mme NZOMA Anita : Chef Nursing; 5. Mme HARERIMANA Claudette : représentant du personnel soignant au comité de gestion 6. Mr HAVYARIMANA Henock : représentant du personnel soignant au comité de gestion 7. Mr NDAYIRUKIYE Pamphile : représentant du personnel non soignant au comité de gestion 8. Expert en passation des Marchés Publics, le cas échéant ; 9. Toute autre personne jugée compétente selon la nature du marché ;
