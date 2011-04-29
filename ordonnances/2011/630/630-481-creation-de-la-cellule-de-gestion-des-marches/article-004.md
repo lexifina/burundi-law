@@ -1,0 +1,3 @@
+# Article 4
+
+La Cellule de Gestion des Marchés Publics (CGMP) au sein de l’Hôpital de NGOZI est composée par : 1. Dr Eugène NDIRAHISHA : Directeur de l’Hôpital de NGOZI; 2. Mr JORIS MBONIMPA : Directeur -Adjoint chargé de l’Administration et des Finances; 3. Dr MUNEZÉRO Nadine : Directeur -Adjoint chargé des soins; 4. Mme Gonzague MBONIMPA : Chef du Nursing; 5. Mme Anatole NSAVYIMANA : Chef des Services Généraux 6. Mme Cynthia KABATONI : Chef de Service Pharmacie; 7. Mme Joselyne BAYUBAHE : Chef de Poste à la Pharmacie; 8. Mr Elie NDUWIMANA : Représentant du Personnel; 9. Mr Orner NTAKARUTIMANA : Comptable 10. Expert en passation des Marchés Publics, le cas échéant; 11. Toute autre personne jugée compétente selon la nature du marché;
