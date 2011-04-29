@@ -1,0 +1,3 @@
+# Article 4
+
+La Cellule de Gestion des Marchés Publics (CGMP) au sein de l’Hôpital de CANKUZO est composée par : 1. Dr Dismas NDAYISABA : Médecin Directeur; 2. Dr Girbert NGENDAKURIYO : Médecin Consultant ; 3. Mr SUKURI Augustin : DAF ; 4. Mme BIGIRIMANA Prime : Chef du Nursing; 5. Mme NDINDAMAGAMBO Pascal: Chef comptable ; 6. Mme Luckie NKUNDWANABAKE: Responsable de la Pharmacie ; 7. Mr Révocat KAMWENUBUSA : représentant syndicat SYNAPA ; 8. Mr Emmanuel BIZIMANA : Chef de poste Laboratoire ; 9. Mr Tharcisse SEMUGARA : Personnel d’Appui 10. Expert en passation des Marchés Publics, le cas échéant ; 11. Toute autre personne jugée compétente selon la nature du marché ;
