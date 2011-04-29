@@ -1,0 +1,3 @@
+# Article 4
+
+La Cellule de Gestion des Marchés Publics (CGMP) au sein de l’Hôpital de MURAMVYA est composée par : 1. Dr BAMPOYE Freddy : Médecin Directeur de l’Hôpital; 2. Mr NIYONEMERA Ladislas : DAF de l’Hôpital 3. Mme MANIRAMBONA Angèle : Chef du Nursing; 4. MR NGENDAKURIYO Eric : Chef Service Pharmacie 5. Mr CIZA Bonaventure : Chef Contrôle de Gestion Interne; 6. Mr MINANI Pierre : Chef de Poste Maintenance 7. Mr NTIRANYIBAGIRA Célestin : Représentant Syndical et membre du Conseil d’Administration représentant du Personnel; 8. Expert en passation des Marchés Publics, le cas échéant; 9. Toute autre personne jugée compétente selon la nature du marché;
