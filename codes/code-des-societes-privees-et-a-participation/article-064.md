@@ -1,0 +1,3 @@
+# Article 64
+
+Toute délibération des Associés est constatée par un procès-verbal qui indique la date et le lieu de la réunion, les noms et prénoms des Associés présents, l’ordre du jour, les documents et rapports soumis à discussion, un résumé des débats, le texte des résolutions mises aux voix et le résultat des votes. Le procès-verbal doit être signé dans les conditions prévues par le présent Code pour chaque forme de Société. En cas de consultation écrite, il en est fait mention dans le procès-verbal, auquel est annexée la réponse de chaque Associé et qui est signé dans les conditions prévues par le présent Code pour chaque forme de Société.

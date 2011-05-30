@@ -1,0 +1,3 @@
+# Article 69
+
+Le Tableau des Soldes caractéristiques de gestion, le Tableau de Passage aux Soldes des Comptes Patrimoniaux, le Bilan et l’Annexe Fiscale sont établis pour chaque Exercice selon les mêmes formes et les mêmes méthodes d’évaluation que pour les années précédentes. Toutefois, en cas de proposition de modification, l’Assemblée des Associés se prononce sur les modifications proposées, au vu des comptes établis selon les formes et méthodes tant anciennes que nouvelles, et sur rapport du Conseil d’Administration, du Directoire ou du Gérant, selon le cas, et du Commissaire aux Comptes, s’il en existe un.

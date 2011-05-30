@@ -1,0 +1,3 @@
+# Article 25
+
+Sont seuls considérés comme libérés les Apports en Numéraire dont les sommes correspondantes sont intégralement et définitivement encaissées par la Société qui en est devenue propriétaire. Toutefois, sauf disposition contraire des Statuts, à l’occasion d’une augmentation de capital, les Apports en Numéraire peuvent être réalisés par compensation avec une créance certaine, liquide et exigible sur la Société. En cas de retard dans le versement, les sommes restant dues à la Société portent de plein droit intérêt au taux moyen du découvert bancaire à compter du jour où le versement devait être effectué, sans préjudice de dommages-intérêts s’il y a lieu.

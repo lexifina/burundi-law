@@ -1,0 +1,3 @@
+# Article 44
+
+Les actes et engagements pris par les fondateurs pour le compte de la Société en formation avant sa constitution doivent être portés à la connaissance des Associés avant la signature des Statuts lorsque la Société ne fait pas appel public à l’épargne, ou lors de l’Assemblée Générale Constitutive, dans le cas contraire. Ils doivent être décrits dans un état intitulé « état des actes et engagements accomplis pour le compte de la Société en formation » avec l’indication, pour chacun d’eux, de la nature et de la portée des obligations qu’ils comportent pour la Société si elle les reprend.

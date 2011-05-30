@@ -1,0 +1,3 @@
+# Article 47
+
+Les actes et engagements accomplis pour le compte de la Société en formation peuvent également être repris par la Société, postérieurement à sa constitution, à la condition qu’ils soient approuvés par l’Assemblée Générale Ordinaire, dans les conditions prévues par le présent code pour chaque forme de Société, sauf clause contraire des Statuts. L’Assemblée Générale doit être complètement informée sur la nature et la portée de chacun des actes et engagements dont la reprise lui est proposée. Les personnes ayant accompli lesdits actes et engagements ne prennent pas part au vote et il n’est pas tenu compte de leurs voix pour le calcul du quorum et de la majorité.
