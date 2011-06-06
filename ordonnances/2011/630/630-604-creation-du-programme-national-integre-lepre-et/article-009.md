@@ -1,0 +1,3 @@
+# Article 9
+
+Le Programme National Intégré Lèpre et Tuberculose comprend cinq services au niveau central et est intégré au niveau intermédiaire dans le Bureau Provincial de Santé et dans le Bureau du District Sanitaire. Le PNILT comprend les services suivants :  Service chargé de la Communication/sensibilisation pour la lutte contre la Lèpre et la Tuberculose  Service des statistiques  Service de Gestion des Approvisionnements et des Stocks  Service chargé de la Gestion Administrative Comptable et Financière  Service de prise en charge des cas de Tuberculose Multi Résistante aux Médicaments (TB-MDR pour Multi-Drug Resistance)

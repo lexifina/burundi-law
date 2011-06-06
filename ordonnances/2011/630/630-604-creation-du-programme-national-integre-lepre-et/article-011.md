@@ -1,0 +1,3 @@
+# Article 11
+
+En collaboration avec le Service d’Epidémiologie et des Statistiques du Ministère de la Santé Publique et de la Lutte contre le Sida, le Service des Statistiques est chargé de la conception des outils de collecte, la collecte, la saisie, l’analyse, le traitement des données et la diffusion des données relatives à la lutte contre la lèpre et la tuberculose. Il assure le suivi de l’exécution des activités conformément à la planification établie, l’application des directives de dépistage et de traitement des cas de lèpre et de tuberculose ainsi que l’organisation des ateliers de validation et de diffusion des données au niveau national. Il s’occupe enfin de la supervision, le suivi-évaluation ainsi que de l’élaboration des différents rapports du Programme

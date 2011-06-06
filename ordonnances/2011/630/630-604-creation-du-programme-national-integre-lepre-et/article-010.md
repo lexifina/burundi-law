@@ -1,0 +1,3 @@
+# Article 10
+
+En collaboration avec le Service « Information, Education et Communication » du Ministère de la Santé Publique et de la Lutte contre le Sida, le service chargé de la Communication/sensibilisation des cas de lèpre et de tuberculose s’occupe de la conception, la diffusion et la mise en œuvre du plan de communication, l’élaboration des outils de sensibilisation sur les deux maladies ainsi que les interventions de mobilisation sociale, l’IEC et le plaidoyer. Ce Service assure également la mise en place et le suivi des clubs stop Tuberculose dans les écoles à régime d’internat, la sensibilisation contre la lèpre et la tuberculose dans les prisons et camps des déplacés/réfugiés ainsi que la préparation des journées mondiales de lutte contre ces deux maladies.

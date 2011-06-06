@@ -1,0 +1,3 @@
+# Article 8
+
+Le Directeur du PNILT a notamment les attributions suivantes : - La conception et le suivi de la mise en oeuvre des stratégies adoptées pour traduire dans les faits la politique nationale de lutte contre la lèpre et la tuberculose, - L’exécution des instructions des supérieurs hiérarchiques, - La représentation du Programme dans ses relations avec les autres administrations et dans ses rapports avec les tiers, - Le renforcement des capacités des acteurs au niveau intermédiaire et périphérique, - La préparation et l’exécution du budget, - La production des rapports d’activités et de gestion, - L’engagement des dépenses nécessaires à l’exécution des plans d’action.
