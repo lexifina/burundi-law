@@ -1,0 +1,3 @@
+# Article 16
+
+Les fautes méritant le retrait de 10 points en conduite sont reprises ci-dessous : - Tricherie à l’interrogation + la note zéro. - Absence non autorisée et non justifiée à l’étude. - Extravagance dans la coiffure et dans l’habillement, - Maquillage - Fréquentation du dortoir des élèves de sexe opposé. - Absence, sans autorisation, aux activités organisées (sports, études, réunions) - Consommation du tabac. - Apport sans permission de nourriture et/ou de boisson au dortoir. - Apport de nourriture et/ou de boisson à l’école sans autorisation, - Commerce à l’école - Visite non autorisée à l’école. - Mensonge.

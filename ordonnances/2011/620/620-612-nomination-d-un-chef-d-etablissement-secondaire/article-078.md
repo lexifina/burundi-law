@@ -1,0 +1,3 @@
+# Article 78
+
+Obtient son diplôme, l’élève remplissant les conditions suivantes : 54% au total général 50% en conduite Quatre échecs dont deux dans les cours de section sont délibérés à 10% de profondeur chacun et les deux autres qui ne sont pas de section à 20% de profondeur chacun. Trois échecs dans les cours de section sont délibérés à hauteur de 10% de profondeur; un échec qui n’est pas dans un cours de section est délibéré à 20% de profondeur, Un échec dans un cours de section est délibéré à 10% de profondeur et les trois autres échecs qui ne sont pas de section sont délibérés à 20% de profondeur chacun.

@@ -1,0 +1,3 @@
+# Article 4 2
+
+Par passage de classe, il faut entendre l’avancement de l’élève dans la classe supérieure. Par redoublement il faut comprendre le fait de recommencer une année. Le diplôme est un titre délivré par une école pour sanctionner la réussite d’un cycle complet de l’enseignement secondaire général, pédagogique et technique. Le certificat est un écrit officiel, dûment signé par une autorité pédagogique compétente et attestant le degré de scolarité du récipiendaire. Dès lors qu’il est homologué, le certificat des humanités complètes donne accès à l’enseignement supérieur, Le refus est le fait de n’accepter l’élève ni au passage de classe ni au redoublement, CHAPITRE II DE L’EVALUATION Section 1 Objectifs et qualités de l’évaluation

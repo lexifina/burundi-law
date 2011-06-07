@@ -1,0 +1,3 @@
+# Article 83
+
+Obtient son diplôme l’élève qui remplit les conditions suivantes : - 52% au total général - 50% en conduite - 55% comme moyenne des notes des cours techniques et pratiques 50% comme moyenne des notes des cours généraux :  Si deux échecs sont dans les cours techniques, ils sont délibérés à hauteur de 10% au plus chacun. L’échec qui n’est pas dans les cours techniques est délibéré à hauteur de 20% au plus.  Si un échec est dans un cours technique, il est délibéré à hauteur de 10%. Les deux autres des cours qui ne sont pas techniques sont délibérés à 20% au plus chacun. Elèves ayant quatre échecs

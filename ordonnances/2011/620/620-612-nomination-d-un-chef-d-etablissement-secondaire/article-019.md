@@ -1,0 +1,3 @@
+# Article 19
+
+Les cas qui ne figurent pas dans le présent barème de retrait des points en conduite des élèves seront soumis à l’appréciation du conseil de discipline qui transmettra le procès-verbal y relatif à la hiérarchie administrative avec copies pour information à l’Inspection Générale de l’Enseignement, à l’Inspection Principale de l’Enseignement Secondaire Général et Technique, de l’Enseignement des Métiers et de la Formation Professionnelle Publique et Privé, de l’Inspection Régionale de l’Enseignement Secondaire Général, Public et Privé et à l’Inspection Régionale de l’Enseignement Technique, des Métiers et de la Formation Professionnelle Publics et Privés.
