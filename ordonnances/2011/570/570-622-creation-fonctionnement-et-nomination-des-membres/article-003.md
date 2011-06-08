@@ -1,0 +1,3 @@
+# Article 3
+
+La Comm suivants :  Madame Maria Rosette NIZIGIYIMANA, Directeur Gén la Fonction Publique, Président,  Monsieur Potame HAKIZIMANA, Directeur du Bureau ASAP, Secréta  Monsieur Eddy NIHORIMBERE, Responsable de la Cellule Informatique du Ministère de la Fonction Publique du Travail membre,  Monsieur Kassim BANDEKE, Informaticien du Ministère de la Fonction Publique, du Trav Sécurité Sociale, membre,  Madame Alice MUHIMPUNDU, Informaticien du Ministère de la Fonction Publique, du Trav Sécurité Sociale, membre,  Monsieur David NZEYE, Informaticien du Ministère de la Fonction Publique, du Travail et de la Sécurité Sociale, m  Monsieur BIMAZUBUTE Egide, Directeur de la Coordination des Antennes Régionales et Prov lique, mem
