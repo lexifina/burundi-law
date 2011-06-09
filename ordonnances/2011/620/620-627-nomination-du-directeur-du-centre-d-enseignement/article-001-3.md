@@ -1,0 +1,3 @@
+# Article 1 3
+
+Sont nommés Directeurs des Centres d’enseignement des Métiers dans la Coordination Provinciale de l’Enseignement des Métiers de Bururi. :  Directeur du CEM Bururi, Monsieur NCAMURWANKO Théodore, Matricule : 555869  Directeur du CEM Vyuya, Monsieur RUHENDO Gaspard, Matricule : 556 038  Directeur du CFP Muramba, Monsieur SINDAYIGAYA Rémy, Matricule : 557 541  Directeur du CEM Mugara, Monsieur BUMAKO Dieudonné, Matricule : 570003  Directeur du CEM Bamba, Monsieur NSHIMIRIMANA Thadée, Matricule : 557848  Directeur du CEM Gatete, Monsieur CIZA Luc, Matricule : 552 166  Directeur du CEM Rumonge, Monsieur NIBARUTA Antoine, Matricule : 555 526

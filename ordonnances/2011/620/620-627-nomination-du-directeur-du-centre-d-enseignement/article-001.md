@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Directeurs des Centres d’Enseignement des Métiers dans la Coordination Provinci Gitega.  Directeur du CEM Gitega, Madame NICAYENZI Fébronie, Matricule : 55  Directeur du CEM Bwoga, Monsieur NIYONDIKO Serges, Matricule : 555  Directeur du CEM Giheta, Monsieur KARIKURUBU Pascal, Matricule : 577  Directeur du CEM Mungwa, Monsieur KAMEYA Jean Pierre, Matricule : 577  Directeur du CEM Mutobo, NDIKUMANA Philé Matricule : 577 736  Directeur du CEM Kibere, Monsieur NDIKUMANA Déo, Matricule : 55780  Directeur du CEM Gitongo, Monsieur NINTUNZE Godefroid, Matricule : 554  Directeur du CEM Buhunja, Monsie NIYOMWUNGERE 797 ur Jean Claude, BIGIRIMANA Matricule : 578 303 Toutes dispositions antérieures et contraires à la pré
