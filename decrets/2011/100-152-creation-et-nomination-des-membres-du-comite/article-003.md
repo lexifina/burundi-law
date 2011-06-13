@@ -1,0 +1,3 @@
+# Article 3
+
+Le Comité est en outre chargé de : - Réfléchir et proposer des orientations méthodologiques de la Commission Vérité et Réconciliation, - Visiter les expériences des autres pays en vue de dégager des options utiles au BURUNDI, - Adapter les textes législatifs et réglementaires aux conclusions issues du rapport sur les Consultation populaires, notamment la Loi N°1/18 du 27 décembre 2003 portant mission, composition et fonctionnement de la Commission Vérité et Réconciliation, - Déterminer le budget de fonctionnement de la Commission, - Proposer des critères pour la désignation des membres de la Commission.
