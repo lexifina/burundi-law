@@ -1,0 +1,3 @@
+# Article 1
+
+Les personnes dont les noms suivent sont affectées Comme suit : - Monsieur NDAYIZEYE Ernest, attaché au service de contrôle des caisses à la Direction de l’Organisation Judiciaire; - Monsieur NDAYIZEYE André, attaché au service de contrôles des caisses à la Direction de l’Organisation Judiciaire; - Madame INABATONI Aline-Gretta, est affectée à la Cour d’Appel de NGOZI en qualité de Commis-greffier; - Monsieur BARUMPISHE Léonidas, est affecté au Parquet de NGOZI en qualité de Secrétaire; - Madame INAGAKIMA Marie-Goreth, est affectée au Parquet Général près la Cour d’Appel de GITEGA en qualité de Secrétaire; - Monsieur NSEKAMBABAYE Albert, est affecté au Parquet de RUYIGI en qualité de Commis.
