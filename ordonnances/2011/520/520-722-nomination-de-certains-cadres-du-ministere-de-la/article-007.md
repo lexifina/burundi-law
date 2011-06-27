@@ -1,0 +1,3 @@
+# Article 7
+
+Sont nommés Adjoints Principaux aux Chefs de Services au Ministère de la Défense Nationale et des Anciens Combattants : - Direction de l’Administration et du Personnel : Lieutenant-Colonel Thierry KABURA SSO412 de la matricule; - Direction de la Promotion Sociale : Lieutenant-Colonel Onesphore NIZIGIYIMANA SSO428 de la matricule; - Direction de l’information et de la Communication : Colonel Floribert BIYEREKE SS0271 de la matricule; - Direction des Etudes Stratégiques : Lieutenant- Colonel Justace CIZA SSO442 de la matricule; - Bureau Informatique : Major Elias NIBIZI SS0636 de la matricule;
