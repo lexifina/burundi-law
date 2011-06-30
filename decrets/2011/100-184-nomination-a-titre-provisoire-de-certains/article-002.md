@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés au grade d’Officier de Renseignement de 3ème classe (OR3) à titre provisoire, à partir du 03 août 2010, les personnes dont les noms suivent :  Monsieur BARAKAMFITIYE Emmanuel, matricule 0/00115;  Monsieur ABOUBAKAR Ramadhan, matricule 0/00116;  Monsieur NSANZAMAHORO Grégoire, matricule 0/00117;  Mademoiselle KANYANGE Alphonsine, matricule 0/00118;  Monsieur NZISABIRA Louis, matricule 0/00119;  Monsieur HATUNGIMANA Bosco, matricule 0/00120;  Monsieur BARICAKO Dieudonné, matricule 0/00121;  Monsieur HARUSHIMANA Antoine, matricule 0/00122;  Madame SINDARUBAZA Antoinette, matricule 0/00123.
