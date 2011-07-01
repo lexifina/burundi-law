@@ -1,0 +1,3 @@
+# Article 11
+
+Sont nommés au grade de Lieutenant-Colonel à la date du 1er juillet2011; Major NIHORIMBERE Evariste SSO400 Major SIBOMANA DESIRE SSO429 Major NTAWIRATSA REDEMPTEUR SSO449 Major NYOMA APOLLINAIRE SSO451 Major MBAZUMUTIMA CYPRIEN SSO460
