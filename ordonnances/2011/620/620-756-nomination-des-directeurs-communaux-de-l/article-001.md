@@ -1,0 +1,3 @@
+# Article 1
+
+Est nommé Directeur Communal de l’Enseignement de :  GASHIKANWA, Madame NZEMERIMANA Janvière, Matricule : 550 337.  TANGARA, Monsieur NSABIMANA Philippe, Matricule : 571.367.  MARANGARA, Monsieur SIBOMANA Venant, Matricule : 556.959.  MWUMBA, Monsieur NZOPFUBUSA Innocent, Matricule : 549.191.  NGOZI, Monsieur NTACOBAKIMVUNA Déo, Matricule : 547.943.  NYAMURENZA, Monsieur NDAYISHIMIYE Jérôme, Matricule : 531.5287.  BUSIGA, Monsieur NKUNZIMANA Parfait, Matricule : 527.635.  RUHORORO, Monsieur KARENZO Venant, Matricule : 553.827.  KIREMBA, Monsieur NDAYISENGA Joseph, Matricule : 532.138.
