@@ -1,0 +1,3 @@
+# Article 1 2
+
+Est nommé Directeur Communal de l’Enseignement de :  BUGENDANA, Monsieur NKURUNZIZA Innocent, Matricule : 558.806.  BUKIRASAZI, Monsieur HAVYARIMANA Dionise, Matricule : 547.875  BURAZA, Monsieur HARERIMANA Servat, Matricule : 550.197.  GIHETA, Monsieur HAVYARIMANA Elie, Matricule : 574.745.  GISHUBI, Monsieur NTIRANYIBAGIRA Sylvestre, Matricule : 576.301.  GITEGA, Monsieur HABONIMANA Philbert, Matricule : 550.688.  ITABA, Monsieur MISIGARO Herménégilde, Matricule : 527.724.  MAKEBUKO, Monsieur NIYIBITEGEKA Cyprien, Matricule : 561.069.  MUTAHO, Monsieur NDIKUMANA Jérémie, Matricule : 573.118.  NYARUSANGE, Monsieur NIYONKURU Innocent, Matricule : 559.462.  RYANSORO, Monsieur NIYONGABO Albéric, Matricule : 550.139.
