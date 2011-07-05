@@ -1,0 +1,3 @@
+# Article 1
+
+Est nommé Directeur Communal de l’Enseignement de :  ISALE, Monsieur BAGAYUWITUNZE Ezéchiel, Matricule : 545 940.  MUTAMBU, Monsieur MISAGO Emmanuel, Matricule : 560 870.  MUHUTA, Monsieur NYANDWI Jérôme, Matricule : 550 721.  MUBIMBI, Monsieur MAFYIRITANO Albert, Matricule : 569.296.  MUTIMBUZI, Madame NDIKUMANA Rose, Matricule : 549 032.  KANYOSHA, NTAHONKURIYE Joselyne, Matricule : 545 598.  KABEZI, Monsieur MIGEZO Roger, Matricule : 538.584.  BUGARAMA, Monsieur NDUWIMANA Jean Marie, Matricule : 562.924.  NYABIRABA, Monsieur NKURUNZIZA Anatole, Matricule : 581 682.  MUKIKE, Monsieur HAVYARIMANA Canisius, Matricule : 559.943  MUGONGOMANGA, Monsieur KINYARWEZE Serges, Matricule : 570.168
