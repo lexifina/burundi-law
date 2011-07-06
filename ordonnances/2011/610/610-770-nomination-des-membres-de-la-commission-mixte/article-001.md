@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Commission mixte UNIVERSITE DU BURUNDI-CHUK-COPED pour réfléchir sur le contenu de deux conventions, l’un portant sur le Centre National de Kinésithérapie, l’autre sur l’Institut de Formation en Kinésithérapie, via le Centre Hospitalo-Universitaire de Kamenge : 1. Docteur Révérien NIYONGABO Président 2. Monsieur l’Abbé Emmanuel NDAYEGAMIYE Coprésident 3. Monsieur Guy Claude NKUNDABAGENZI 1ère Secrétaire 4. Monsieur l’Abbé Germain BASHIRAHISHIZE 2ème Secrétaire 5. Docteur Elysé BARANSAKA Membre 6. Docteur Sylvain NIYONKURU Membre 7. Maître Déo NZEYIMANA Membre 8. Monsieur Jean Joseph NYANDWI Membre
