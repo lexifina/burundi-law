@@ -1,0 +1,3 @@
+# Article 11
+
+L’enseignement secondaire paramédical est organisé en trois filières: Infirmiers Diplômés d’Etat, Techniciens d’assainissement et Techniciens de laboratoire. Toutes ces filières de l’enseignement secondaire paramédical dure chacune quatre ans de formation théorique et pratique. Il est ouvert aux candidats visés aux articles 6, 7 et 8 ci-dessus. Les lauréats de ces cycles secondaires paramédicaux peuvent accéder à l’enseignement supérieur. L’enseignement secondaire paramédical est organisé dans des écoles des techniciens de santé remplissant les conditions visées aux articles 2 à 4 du présent Décret.
