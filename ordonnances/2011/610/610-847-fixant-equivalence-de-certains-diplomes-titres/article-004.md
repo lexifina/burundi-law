@@ -1,0 +1,3 @@
+# Article 4
+
+Le personnel diplomatique, administratif et technique en activité au Service Extérieur qui sera rapatrié pour des raisons de sécurité ou autres qui ne lui sont pas imputables, bénéficiera de l’entièreté du salaire du mois pendant lequel il a été évacué. Pour les mois suivants, il bénéficiera d’un quart de son salaire non indexé et en monnaie locale pour une durée ne dépassant pas trois mois à partir de la date d’arrivée au pays. Au terme de ces trois mois, le personnel rapatrié qui n’aura pas regagné son poste d’attache, sera mis à la disposition de son service d’origine ou affecté à la fonction publique.
