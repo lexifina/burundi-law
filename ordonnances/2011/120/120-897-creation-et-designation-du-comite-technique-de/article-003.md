@@ -1,0 +1,7 @@
+# Article 3
+
+Les membres du Comité Technique de Suivi de la Politique Nationale de Villagisation au Burundi sont désignés comme suit :
+
+a) Bureau : Président : Monsieur NTIHIRAGEZA Jean Marie : Directeur Général du Développement Communal au Ministère du Plan et du Développement Communal; Vice Président : Monsieur SINDIBUTUME Célestin : Directeur Général du Rapatriement, de la Réinstallation et de la Réinsertion des Déplacés et des Rapatriés au Ministère de la Solidarité Nationale, des Droits de la Personne Humaine et du Genre ; Secrétaire : Monsieur NAHIMANA Hermalas : Directeur de la Promotion des Villages et de l’Entreprenariat Local au Ministère du Plan et du Développement Communal.
+
+b) Membres : NIYONZIMA Alexis : Directeur de l’Aménagement du Territoire ; NIYONSABA Théophile : Directeur Général de la Décentralisation ; NZIGAMASABO Juvénal : Conseiller à la Direction de la Protection Sociale au Ministère de la Fonction Publique, du Travail et de la Sécurité Sociale; MANIRAKIZA Didace : Conseiller au cabinet du Ministère de l’Agriculture et de l’Elevage; MINANI Générose : Cadre du Programme des Nations Unies pour le Développement (PNUD); HATUNGIMANA Célestin : Membre du Comité Exécutif de l’Association Burundaise des Elus Locaux (ABELO) ; KANKINDI Rosette : Représentant le Collectif des Associations et des ONGs Féminines du Burundi (CAFOB) ; SABUSHIKE Jean Claude : Secrétaire Exécutif de la Chambre sectionnelle des Bâtiments et Travaux Publics à la C.F.C.I.B.
