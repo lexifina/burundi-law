@@ -1,0 +1,3 @@
+# Article 4
+
+Selon la spécificité de la filière poursuivie par l’intéressé, le stage probatoire sera effectué dans les différents services des structures sanitaires de référence nationale comme l’Hôpital Prince Régent Charles, la Clinique Prince Louis Rwagasore, l’Hôpital Autonome de Ngozi, l’Hôpital Autonome de Bururi, l’Hôpital Autonome de Gitega, les Centres de santé attachés aux hôpitaux ci-haut cités, les services l’hygiène urbaine, les différents services de l’Administration Centrale du Ministère de la Santé Publique et de la Lutte contre le SIDA et ses services connexes, les services publics spécialisés comme Abattoir, REGIDESO, SETEMU et CENAR.
