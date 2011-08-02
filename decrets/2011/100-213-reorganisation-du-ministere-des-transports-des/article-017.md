@@ -1,0 +1,3 @@
+# Article 17
+
+La Direction Générale du Bâtiment a pour missions principales de :  exécuter la politique gouvernementale en matière d’acquisition et de gestion des Bâtiments Publics et des Equipements y relatifs;  exécuter la politique gouvernementale en matière de logement en collaboration avec les services concernés;  promouvoir l’industrie du Bâtiment;  assurer le suivi des projets d’investissement du Ministère dans le domaine des bâtiments publics;  assurer conformément au Code des Marchés Publics, le rôle du Ministère des Transports, des Travaux Publics et de l’Equipement en tant que Maître d’oeuvre général pour le compte de l’Etat pour la totalité des projets d’infrastructures immobilières publiques.

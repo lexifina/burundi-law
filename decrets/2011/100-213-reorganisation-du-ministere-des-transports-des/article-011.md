@@ -1,0 +1,3 @@
+# Article 11
+
+Les Etablissements Publics et les Sociétés sous tutelle du Ministère des Transports, des Travaux Publics et de l’Equipement sont les suivants :  l’Office des Routes (OdR);  l’Agence de Location du Matériel (ALM);  le Fonds Routier National (FRN);  le Laboratoire National du Bâtiment et des Travaux Publics (LNBTP);  l’Agence Burundaise pour la réalisation des Travaux d’Intérêt Public (ABUTIP);  l’Office des Transports en Commun (OTRACO);  Air Burundi;  la Régie des Services Aéronautiques (RSA);  la Société Burundaise de Gestion Aéroportuaire (SOBUGEA). Chaque Etablissement, Régie ou Agence est régi par un texte spécifique.

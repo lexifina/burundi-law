@@ -1,0 +1,3 @@
+# Article 20
+
+La Direction Générale des Transports a pour missions principales de :  exécuter la politique gouvernementale en matière de transports en collaboration avec les Départements sous tutelle, Offices, Régies et Administrations Personnalisées du secteur,  proposer une réglementation appropriée dans le domaine des Transports,  participer à l’élaboration et à la négociation des Accords Régionaux et Internationaux en matière des transports terrestres, aériens, maritimes, lacustres, ferroviaires et en assurer le suivi;  assurer la mise en oeuvre d’un Plan Directeur du Développement du Secteur des Transports;  organiser et encadrer les opérateurs privés et publics du secteur des Transports.
