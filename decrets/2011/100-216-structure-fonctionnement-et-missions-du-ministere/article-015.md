@@ -1,0 +1,3 @@
+# Article 15
+
+Le Département de l’Action Humanitaire et de l’Assistance aux Victimes des Catastrophes est chargé notamment de :  mettre en place un système de diagnostic et d’évaluation des besoins en matière d’assistance humanitaire;  mettre en oeuvre un programme de collecte et de distribution de l’aide;  assurer la gestion et le contrôle de l’aide destinée aux nécessiteux;  organiser les systèmes d’assistance matérielle en cas de catastrophes naturelles;  mobiliser la solidarité communautaire et nationale en faveur des victimes de catastrophes et autres aléas;  établir et transmettre régulièrement les rapports d’activités à l’autorité hiérarchique.
