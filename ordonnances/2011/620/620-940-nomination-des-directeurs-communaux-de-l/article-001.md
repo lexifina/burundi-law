@@ -1,0 +1,3 @@
+# Article 1
+
+Est nommé Directeur Communal de l’Enseignement de :  KAYANZA, Monsieur NZORAMBA Augustin, Matricule : 581.977.  RANGO, Monsieur NDUWIMANA Venant, Matricule : 528.421.  MATONGO, Monsieur NDAYUMVIRE Eric, Matricule : 562.293,  KABARORE, Monsieur NSENGIYUMVA Jean Bosco, Matricule 548.217.  BUTAGANZWA, Monsieur NDUWIMANA Vénuste, Matricule : 552.408.  GAHOMBO, Monsieur NTUNZWENIMANA Isaac, Matricule : 575.404.  MUHANGA, Monsieur NDABARUSHIMANA Rénovat, Matricule : 571.218.  MURUTA, Monsieur NZEYIMANA Nicolas, Matricule : 548.791.  GATARA, Monsieur NDAYISABA Charles, Matricule : 560.381.
