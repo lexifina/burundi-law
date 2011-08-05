@@ -1,0 +1,3 @@
+# Article 8
+
+Sont nommés Chefs de Service dans les Régions Militaires :  Service chargé des Opérations à la Troisième Région Militaire : Lieutenant-Colonel Jean-Bosco NDAYIKENGURUKIYE, SS0357 de la matricule;  Service chargé du Moral des Unités à la Quatrième Région Militaire : Major Nicodème MIBURO, SS0511 de la matricule;  Service chargé du Renseignement à la Cinquième Région Militaire : Major Joseph Robert SHINGIRO SS0628 de la matricule;  Service chargé de la Logistique à la Cinquième Région Militaire : Colonel Floribert NYAMWERU SS0277 de la matricule;  Service chargé du Moral des Unités à la Cinquième Région Militaire : Major Célestin NIYONIZIGIYE SS0608 de la matricule.

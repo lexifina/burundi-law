@@ -1,0 +1,3 @@
+# Article 12
+
+Sont nommés Chefs de Bureaux dans les Brigades :  Bureau chargé des Renseignements à la Cent Vingtième Brigade : Major Egide MBAZUMUTIMA SS0526 de la matricule;  Bureau chargé des Renseignements à la Deux Cent Vingtième Brigade : Major Eric-Simon GAHUNGU SS0664 de la matricule;  Bureau chargé des Opérations à la Deux Cent Vingtième Brigade : Major Guy Emmanuel NTIRAMPEBA SS0557 de la matricule;  Bureau chargé du Personnel à la Trois Cent Dixième Brigade : Major Eliphaz NGENDAKURIYO SS0568 de la matricule;  Bureau chargé des Opérations à la Trois Cent Vingtième Brigade : Major Cyprien NIFASHA SS0540 de la matricule;  Bureau chargé du Personnel à la Brigade Logistique de la Force de Défense Nationale : Major Oscar MBONIMPA SS0516 de la matricule.
