@@ -1,0 +1,3 @@
+# Article 366
+
+L’inscription conserve l’hypothèque pendant le délai inscrit au contrat d’hypothèque. Elle cesse de produire ses effets si, avant l’expiration de ce délai, le Conservateur n’a pas, à la requête du créancier, mentionné sur le titre foncier que l’inscription est renouvelée. Cette mention vaut renouvellement. Toute inscription renouvelée après l’expiration du délai inscrit au contrat ne vaut que comme inscription première. Le renouvellement d’une inscription hypothécaire ne peut être effectué si, depuis la péremption de cette inscription, l’immeuble a été inscrit au nom d’un autre propriétaire.

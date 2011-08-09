@@ -1,0 +1,3 @@
+# Article 244
+
+L’Etat est tenu envers le cessionnaire ou le concessionnaire aux obligations résultant des conventions en général, aux obligations spéciales prescrites par le présent Code et aux conditions particulières découlant de la convention de cession ou de concession. L’Etat a notamment l’obligation de délivrance et l’obligation de garantie contre l’éviction. Toutefois, les terres cédées ou concédées le sont sans garantie quant à leur valeur agricole, commerciale ou résidentielle. Il n’y a non plus aucune garantie de l’Etat quant au maintien de l’occupation du sol, cette dernière pouvant toujours être modifiée dans l’intérêt général par application des dispositions relatives aux plans d’aménagement du territoire.

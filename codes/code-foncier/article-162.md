@@ -1,0 +1,5 @@
+# Article 162
+
+Les créanciers ayant hypothèque sur un immeuble le suivent en quelques mains qu’il passe, pour être colloqués et payés, suivant l’ordre de leurs créances ou inscriptions.
+
+Le tiers détenteur jouit des termes et délais accordés au débiteur.

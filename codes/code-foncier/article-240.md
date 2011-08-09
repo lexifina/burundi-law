@@ -1,0 +1,5 @@
+# Article 240
+
+La décision préalable de l’autorité compétente qui ne fait l’objet d’aucun recours pendant le délai légal devient définitive et exécutoire. Lorsque la décision préalable fait l’objet d’un recours judiciaire, l’autorité compétente ne peut conclure le contrat de cession ou de concession qu’au vu de la décision judiciaire irrévocable l’autorisant et conformément à cette dernière. Article 241;
+
+Le contrat de cession ou de concession mentionne d’une part les noms, prénoms et qualité de l’autorité compétente et d’autre part les noms, prénoms et domicile du cessionnaire ou du concessionnaire ou, le cas échéant, sa raison sociale et son siège. Il indique la date de la requête, de l’ouverture et de la clôture de l’enquête de vacance de terre ou la décision judiciaire irrévocable statuant sur le recours prévu à l’article 238. Il indique en outre, la situation sommaire du terrain et sa superficie. Il précise la nature du droit foncier cédé ou concédé, la durée éventuelle, le caractère onéreux ou gratuit ainsi que les conditions financières de la convention.

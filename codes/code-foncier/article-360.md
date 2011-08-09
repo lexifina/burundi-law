@@ -1,0 +1,3 @@
+# Article 360
+
+Pour l’inscription constitutive de l’hypothèque le créancier indique, d’une façon précise au bas de la copie certifiée conforme de la convention, les sommes pour lesquelles l’inscription est demandée. L’inscription constitutive de l’hypothèque est de plus subordonnée à la présentation du titre foncier délivré au propriétaire de l’immeuble grevé. Cette inscription est portée tant sur le titre foncier délivré au propriétaire que sur celui conservé au bureau des titres fonciers. Toute demande d’inscription d’hypothèque est faite par écrit ou actée par le Conservateur, sauf dans le cas prévu par l’article 154 où le Conservateur procède d’office à l’inscription.

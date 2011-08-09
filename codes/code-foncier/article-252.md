@@ -1,0 +1,3 @@
+# Article 252
+
+Il est interdit au cessionnaire ou au concessionnaire de modifier l’affectation de la terre cédée ou concédée telle que prévue au contrat, sauf autorisation de l’autorité compétente ou modification imposée conformément aux dispositions relatives aux plans d’aménagement du territoire. L’autorisation de changement d’affectation est accordée dans un avenant au contrat de cession ou de concession. Lorsque la terre cédée ou concédée est de la deuxième ou de la quatrième catégorie, l’autorisation est donnée par Décret pris sur proposition du Ministre compétent après délibération en Conseil des Ministres.

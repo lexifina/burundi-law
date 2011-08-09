@@ -1,0 +1,3 @@
+# Article 394
+
+La Commission de reconnaissance collinaire est composée de : – un représentant de l’administration communale désigné par celle-ci en tenant compte de la proximité de la colline concernée, président de la commission; – le chef de colline ou son représentant; – deux élus collinaires proches du lieu; – trois personnes reconnues pour leur intégrité, choisies par la population et disposant de bonnes connaissances foncières du lieu concerné. Un agent du Service foncier communal assure le secrétariat de la Commission durant la reconnaissance sur le terrain. Toutefois, il n’a pas de pouvoir de délibération.

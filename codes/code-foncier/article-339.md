@@ -1,0 +1,3 @@
+# Article 339
+
+Les décisions du Conservateur, peuvent être attaquées par un recours devant la juridiction compétente du lieu où est situé l’immeuble. Le recours est introduit par voie d’assignation du Conservateur dans les formes de procédure civile. Lorsque le recours émane d’une personne physique ou d’une personne morale de droit privé, le délai de recours est de trois mois à compter du jour de la notification de la décision attaquée. Lorsque l’opposition émane de l’Etat, d’une commune, d’un établissement public ou d’une société de droit public, le délai visé à l’alinéa précédent est porté à six mois.

@@ -1,0 +1,3 @@
+# Article 156
+
+L’hypothèque s’étend également aux immeubles contigus que le propriétaire joindrait à l’immeuble grevé pour constituer, avec celui-ci, un immeuble unique inscrit comme tel dans le livre foncier ou dans le registre foncier communal. Si les immeubles à joindre sont eux-mêmes grevés d’hypothèque, le propriétaire n’est admis à en constituer un immeuble unique que si tous les immeubles sont grevés au profit d’un seul créancier ou si les divers créanciers inscrits y consentent et ont réglé le rang de leurs hypothèques. Dans ce cas, elles s’étendent toutes à l’immeuble unique. L’accord des créanciers est constaté par un acte authentique.

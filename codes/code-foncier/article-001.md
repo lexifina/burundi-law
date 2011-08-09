@@ -1,0 +1,3 @@
+# Article 1
+
+Le présent Code fixe les règles qui déterminent les droits fonciers reconnus ou pouvant être reconnus sur l’ensemble des terres situées sur le territoire national ainsi que tout ce qui s’y unit et s’y incorpore, soit naturellement, soit artificiellement. L’ensemble des terres situées sur le territoire national constitue le patrimoine foncier national. Des lois particulières régissent certains aspects de l’activité immobilière tels que l’urbanisme, la promotion immobilière et les professions immobilières. Des lois particulières déterminent également les régimes respectifs des forêts, des espaces protégées, de l’eau ainsi que des substances minières et pétrolières. La conservation et la protection du sol sont régies par la réglementation sur l’environnement.

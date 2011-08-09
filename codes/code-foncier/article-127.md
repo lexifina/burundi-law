@@ -1,0 +1,3 @@
+# Article 127
+
+Le propriétaire du fonds débiteur de la servitude ne peut rien faire qui tende à en diminuer l’usage ou à le rendre plus incommode. Il ne peut notamment changer l’état des lieux, ni transporter l’exercice de la servitude dans un endroit différent de celui où elle a été primitivement assignée. Cependant, si l’affectation primitive est devenue plus onéreuse au propriétaire du fonds assujetti, ou si elle l’empêche d’y faire des réparations avantageuses, il peut offrir au propriétaire de l’autre fonds un endroit aussi commode pour l’exercice de ses droits et celui-ci ne peut le refuser.

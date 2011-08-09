@@ -1,0 +1,3 @@
+# Article 363
+
+L’inscription des hypothèques prévues par les articles 143 et 149 et les inscriptions prévues par les articles 167, 168, 173 et 174 comprennent : – la date de l’acte en vertu duquel l’inscription a lieu; – la nature de l’acte, la désignation de l’autorité judiciaire ou administrative dont il émane; – les noms, prénoms, et domiciles des parties; – s’il s’agit des hypothèques prévues par les articles 143 et 149, la nature de la convention et ses éléments principaux, ainsi que le cas échéant les clauses prévues par les articles 146 et 147, les modalités de l’obligation et la stipulation de l’intérêt.
