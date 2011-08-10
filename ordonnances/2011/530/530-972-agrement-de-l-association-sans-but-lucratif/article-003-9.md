@@ -1,0 +1,3 @@
+# Article 3 9
+
+L’Unité de Suivi-Evaluation est composée des personnes suivantes:  Le Chef de l’Unité : Monsieur NDUWIMANA Salvator, Conseiller à la Direction Générale de la Décentralisation  Chef-Adjoint de l’Unité : Monsieur SINDAYIRWANYA Jean-Paul, Conseiller au Département des Administrations Provinciales et Municipales,  Les membres de l’Unité sont: Monsieur NAHIMANA Hermalas, Directeur de Département de la Promotion des Villages et de l’Entrepreneuriat Local au Ministère du Plan et du Développement Communal. Monsieur NIYIMBONA Boniface, Conseiller au Département de la Coordination des ONGs.
