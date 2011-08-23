@@ -1,0 +1,3 @@
+# Article 1
+
+Sont désignés membres du Comité Chargé de négocier les questions fiscales au sein de l’EAC : 1. Monsieur Nicodème NIMENYA, Commissaire Chargé des Taxes des Internes et des Recettes non Fiscales à l’Office Burundais des Recettes Président; 2. Monsieur Pierre Claver KAYANZARI, Conseiller au Cabinet du Ministère des Finances, Vice-Président; 3. Madame Clémence KUBWIMBABAZI, Conseiller Juridique au Ministère, à la Présidence Chargé des Affaires de la Communauté Est Africaine, Secrétaire; 4. Madame Spès BARANSATA, Cadre à la BRB, Membre; 5. Monsieur Chrysologue MUTWA, Conseiller à la Direction Générale de l’Industrie, Membre; 6. Mademoiselle Marie Claire NDAYISHIMIYE, Conseillère à la Direction Générale du Ministère de la Justice, Membre.
