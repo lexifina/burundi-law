@@ -1,0 +1,3 @@
+# Article 1 6
+
+Est nommé Directeur :  du Collège Communal de NYANGUNZU : Monsieur NTIYANKUNDIYE Côme Matricule : 549.916;  du Collège Communal de NYAKABINGO : Monsieur NIYONZIMA Elie Matricule : 552.455;  du Collège Communal de BUTORA : Monsieur NIYUNGEKO Jean Claude Matricule : 556.860;  de l’Ecole de la Sagesse de MUSAMA : Monsieur MANIRATUNGA Léonard Matricule : 561.916;  du Collège Communal de GASAVE I : Monsieur NDAYISENGA Ernest Matricule : 562.154;  du Lycée Communal de NYAKARARO : Monsieur NDUWAMUNGU Edouard Matricule : 564.622;  du Collège Communal de KANKA : Monsieur NTIRANDEKURA Jean Bosco Matricule : 518.686;  du Collège Communal de KIBOGOYE : Monsieur MPAWENIMANA Jean Paul, matricule : 581.976.
