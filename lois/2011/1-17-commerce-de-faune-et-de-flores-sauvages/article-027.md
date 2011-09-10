@@ -1,0 +1,3 @@
+# Article 27
+
+L'organe de gestion peut accorder des dérogations aux obligations prévues à l'article 18 et autoriser sans perrnis ou certificats les mouvements des spécimens qui font partie d\m zoo, d'un' cirque, d'une exposition d'animaux ou de plantes itinérants à condition que: 1 0 l'exportateur ou l'importateur déclare les caractéristiques complètes de ces spécimens à l'organe de gestion; 13 . ' l'' ; 20 ces spécimens entrent dans une des catégories spécifiées à l'article 22 ; 30 l'organe de gestion ait la preuve que tout spécimen vivant est transporté et traité de façon à éviter les risques de bles,sure, de maladie ou de traitement rigoureux. '

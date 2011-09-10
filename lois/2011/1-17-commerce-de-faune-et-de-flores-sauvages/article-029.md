@@ -1,0 +1,3 @@
+# Article 29
+
+Est soumise e) à l'enregistrement: 1 0 toute personne physique ou morale qui souhaite faire du commerce des spécimens de toute espèce inscrite aux annexes de la présente loi. Elle doit être enregistrée auprès de l'organe de gestion; 2 0 la personne physique ou morale qui souhaite produire des animaux élevés en captivité ou des plantes reproduites artificiellement de toute espèce inscrite aux annexes de la présente loi. Elle est enregistrée auprès de l'organe de gestion ; 14 , . l, " 30 tout établissement pratiquant l'élevage en captivité ou la reproduction artificielle d'espèces inscrites à l'annexe l à des fins commerciales. Il doit être enregistré par le secrétariat de la Convention CITES.
