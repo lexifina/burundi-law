@@ -1,0 +1,3 @@
+# Article 2 25
+
+La Commission a pour mission de : - Elaborer les stratégies d’amélioration du transport en Mairie de Bujumbura; - Proposer les stratégies d’organisation du transport en commun pour une meilleure mobilité en ville de Bujumbura; - Proposer et participer à la mise en place des arrêts bus et parking en Mairie de Bujumbura; - Proposer une stratégie d’une meilleure gestion des parkings en Mairie de Bujumbura; - Initier le mécanisme de suivi et du respect des arrêts bus et des parkings; - Assurer une action coordonnée dans l’amélioration du transport urbain en général et particulièrement dans la Mairie de Bujumbura
