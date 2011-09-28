@@ -1,0 +1,3 @@
+# Article 2 18
+
+Le comité est chargé des questions relatives à l’organisation du département de l’expertise comptable et en particulier des actions ci- après :  Elaborer des stratégies d’évolution du département;  Les propositions en rapport avec les critères relatifs au recrutement des candidats;  Programmation des enseignements;  Les propositions en rapport avec le recrutement des enseignants et attributions des cours;  L’indentification des infrastructures d’accueil et de leur équipement;  La proposition du budget de fonctionnement du programme d’enseignement matinal de l’expertise comptable et celui du centre d’enseignement.
