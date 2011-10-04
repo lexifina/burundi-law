@@ -1,0 +1,3 @@
+# Article 43
+
+Toutes dispositions antérieures contraires au présent Décret sont abrogées.
