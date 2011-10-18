@@ -1,0 +1,3 @@
+# Article 93
+
+Sauf pour les investissements :  les engagements correspondants aux dépenses engagées mais non liquidées en fin d’exercice sont annulés et ces dépenses doivent être, si le service fait est constaté, réengagées en priorité dans l’année qui suit dans chaque budget ministériel concerné.  Les dépenses liquidées et ordonnancées doivent être obligatoirement prises en charge par le comptable public avant la fin de l’exercice.  Les dépenses ordonnancées, prises en charge par le comptable public, mais non payées en fin d’exercice, doivent être traitées comme des opérations de trésorerie.

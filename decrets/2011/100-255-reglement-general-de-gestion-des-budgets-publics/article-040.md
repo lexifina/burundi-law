@@ -1,0 +1,3 @@
+# Article 40
+
+Un Comptable Principal de l’Etat est nommé, pour cinq ans renouvelables, par décret sur proposition du Ministre chargé des finances parmi les cadres Expérimentés disposant d’une formation universitaire en économie, en comptabilité ou en gestion et ayant une compétence reconnue et une expérience de dix ans en comptabilité publique. Il est chargé du paiement des dépenses du budget général de l’Etat, de la centralisation des comptes, et de l’animation et de la coordination du travail de l’ensemble des comptables publics. Sans préjudice de l’article 42, il a autorité hiérarchique sur l’ensemble des comptables publics.

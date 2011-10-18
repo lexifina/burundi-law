@@ -1,0 +1,5 @@
+# Article 16
+
+S’agissant des dépenses d’investissement, les crédits budgétaires distinguent, pour chaque article, des crédits d’engagement et des crédits de paiement. Les crédits d’engagement fixent le montant maximum des dépenses pouvant être engagées au cours de l’année budgétaire. Les crédits de paiement fixent le montant maximum des dépenses pouvant être payées au cours de l’année budgétaire. Lorsqu’une opération d’investissement est achevée, le montant des crédits de paiement consommés doit être égal au montant des crédits d’engagement. A défaut, si l’opération s’est avérée moins coûteuse que prévue, les crédits d’engagement excédentaires sont annulés. Pour chaque article de dépense d’investissement, est annexé au projet de loi de finances un état de suivi des crédits de paiement, par ministère, faisant apparaître année par année les crédits d’engagement effectivement consommés, les crédits de paiement déjà ouverts et ceux qui restent à ouvrir.
+
+Section 2 La classification des recettes budgétaires

@@ -1,0 +1,7 @@
+# Article 75
+
+Le Caissier de l’Etat est la Banque de la République du Burundi. Dès réception de l’instruction de décaissement, la Banque de la République du Burundi l’exécute par remise d’espèces, de chèques ou par virement, dans un délai maximum de 2 jours.
+
+La Banque de la République du Burundi est tenue, préalablement au versement des fonds, de vérifier que :  le compte ou sous compte à débiter est suffisamment provisionné;  le signataire de cette instruction de décaisser est dûment habilité à effectuer des opérations sur le compte;  le paiement est effectivement fait dans les mains de la personne, physique ou morale, désignée dans l’instruction de décaisser. En cas de difficultés ou de doutes sur l’un des points ci-dessus, elle avertit immédiatement le comptable public signataire de l’instruction de décaissement. Elle l’informe régulièrement de la bonne exécution de chacune des instructions de décaissement qu’elle a reçues de lui. Sur cette base, le comptable public enregistre le décaissement en comptabilité générale. Lorsque le créancier de l’Etat refuse de recevoir le paiement ou en cas d’impossibilité matérielle ou juridique d’effectuer le décaissement, la Banque de la République du Burundi en informe immédiatement le comptable public et la somme correspondante est consignée dans un compte d’attente dans l’attente de la solution du litige.
+
+Les dispositions d’application du présent article sont précisées dans la convention qui régit les relations entre l’Etat et la Banque de la République du Burundi.

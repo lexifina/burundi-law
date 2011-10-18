@@ -1,0 +1,9 @@
+# Article 71
+
+Le paiement est l’acte par lequel l’Etat se libère de sa dette. Il est effectué, par un comptable public qui, dès réception de l’ordonnance de paiement doit vérifier :  la qualité de l’ordonnateur, l’assignation et l’exacte imputation de la dépense;  l’intervention préalable du visa du contrôleur des engagements de dépense, la régularité et l’exhaustivité des pièces justificatives communiquées à l’appui de l’ordonnancement;  le caractère libératoire du paiement et, notamment, l’identité du créancier.
+
+La liste des pièces justificatives qui doivent accompagner les dossiers transmis aux comptables ainsi que les délais impératifs que ces derniers doivent respecter pour l’exécution de leurs contrôles sont fixés par ordonnance du Ministre chargé des Finances. Une fois ses contrôles effectués, le comptable public doit appliquer, le cas échéant, les règles relatives aux oppositions et à la prescription définie à l’article 72 et 73 du présent Règlement Général.
+
+Le comptable public procède, le cas échéant, aux :  précomptes fiscaux au titre des retenues à la source exigibles en vertu de la législation fiscale selon des modalités définies avec l’Office Burundais des Recettes;  retenues résultant de l’exercice du privilège du Trésor selon les modalités définies à l’article 48 du présent Règlement Général. Ces précomptes et retenues sont reflétés en comptabilité générale dans les écritures des comptables assignataires de la dépense et de la recette correspondante.
+
+La somme définitive à payer est égale au montant fixé par l’ordonnancement diminué, le cas échéant des prélèvements et retenues mentionnés ci-dessus. Toute dépense régulièrement liquidée doit être payée dans un délai maximum de 60 jours. Passé ce délai, le paiement est majoré d’intérêts moratoires définis dans les conditions fixées par une ordonnance du Ministre chargé des Finances.

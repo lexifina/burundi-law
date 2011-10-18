@@ -1,0 +1,3 @@
+# Article 39
+
+Le comptable public est chargé du paiement et de la comptabilisation des dépenses de l’Etat ou recouvrement et de la comptabilisation des recettes de l’Etat. A ce titre, il assure :  le paiement des dépenses et le recouvrement des recettes;  la garde et de la conservation des fonds et valeurs qui leur sont confiés;  le maniement des fonds et des mouvements de comptes de disponibilités;  la conservation des pièces justificatives et des documents de comptabilité;  la tenue de la comptabilité du poste comptable qu’il dirige. On distingue :  les comptables publics principaux qui rendent directement leurs comptes à la Cour des Comptes;  les comptables publics secondaires dont les opérations sont centralisées par un comptable public principal.

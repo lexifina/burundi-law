@@ -1,0 +1,5 @@
+# Article 14
+
+Des garanties d’emprunt peuvent être octroyées par l’Etat aux lieux et place des prêts mentionnés ci-dessus au profit des mêmes bénéficiaires et pour le financement des mêmes opérations que celles mentionnées à l’article 10 du présent Règlement Général. Les garanties octroyées dans le cadre d’accords de prêts non concessionnels ont une durée maximale de sept ans, non renouvelable. Les garanties octroyées dans le cadre d’accords de prêts concessionnels ont une durée maximale de trente ans, non renouvelable. Ces garanties font l’objet d’une autorisation préalable en loi de finances. Un état récapitulatif reprenant l’ensemble des garanties en cours augmenté de celles dont l’autorisation est demandée et annexé à chaque projet de loi de finances. En cas de mise en œuvre de la garantie, le créancier est remboursé par prélèvement sur un crédit budgétaire inscrit à cet effet au budget du ministère des finances.
+
+Titre 2 Crédits et nomenclatures budgétaires Section 1 Les crédits budgétaires

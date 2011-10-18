@@ -1,0 +1,5 @@
+# Article 76
+
+Par exception aux dispositions de l’article 75 du présent Règlement général, certaines dépenses peuvent être décaissées directement par un comptable public dans des localités non desservies par un établissement de crédit ou par la Banque de la République du Burundi. Ces dépenses à décaisser directement par les comptables publics sont des dépenses de salaires et de fonctionnement courant, de montant unitaire inférieur à un montant fixé par le Ministre chargé des Finances. Ces dépenses sont décaissées par remise d’espèces. A cet effet, les comptables concernés reçoivent des allocations d’espèces, dont le montant annuel total ne peut dépasser un chiffre fixé par décision du Ministre chargé des Finances, par débit du compte unique de l’Etat à la Banque de la République du Burundi effectué sur instruction d’un comptable public principal. Ces comptables publics sont responsables de la conservation de ces espèces et rendent comptent régulièrement de leur utilisation à ce comptable public principal.
+
+Titre 6 Les opérations de Trésorerie

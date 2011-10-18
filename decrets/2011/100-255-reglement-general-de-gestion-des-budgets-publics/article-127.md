@@ -1,0 +1,3 @@
+# Article 127
+
+Toutefois, par exception au précédent article et à titre transitoire, certains financements accordés à des projets ou programmes d’investissement particuliers peuvent être gérés dans un budget d’affectation spéciale conformément à l’article 7 du présent Règlement Général. A cet effet, un budget d’affectation spéciale est créé par groupes de projet ou groupes de programmes d’investissement, regroupant les financements d’un ou, le cas échéant, de plusieurs bailleurs de fonds internationaux. Ces budgets d’affectation spéciale peuvent être abondés par un crédit budgétaire inscrit au budget de l’Etat au titre de la contrepartie nationale. Ces budgets d’affectation spéciale sont rattachés au ministre principalement responsable de la mise en œuvre du projet.

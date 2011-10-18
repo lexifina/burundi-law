@@ -1,0 +1,3 @@
+# Article 56
+
+Les recettes mentionnées à l’article 6 alinéa a de la loi n°1-11 du 14 juillet 2009 sont constatées, liquidées et recouvrées par l’Office Burundais des Recettes. Une disposition de loi de finances peut lui attribuer la constatation, la liquidation et le recouvrement de toute autre recette. L’Office Burundais des Recettes agit au nom et pour le compte de l’Etat. La procédure de collecte des recettes de l’Etat par l’Office Burundais des Recettes suit les prescriptions fixées aux articles 57 à 61 du présent Règlement Général. Ces prescriptions peuvent être complétées et précisées par des règles adoptées par l’Office Burundais des Recettes.
