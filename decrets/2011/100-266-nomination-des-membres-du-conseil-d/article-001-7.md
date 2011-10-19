@@ -1,0 +1,3 @@
+# Article 1 7
+
+Sont nommés membres du Jury de l’Octroi des Diplômes d’Etat, session 2011 les personnes ci-après : Monsieur NYAMPETA Boniface : Président Monsieur SINDAYE Séverin : Vice-président pour l’Enseignement Secondaire Général et Pédagogique Monsieur MISAGO Bernard : Vice-président pour l’Enseignement Secondaire Technique Madame WEGE Aline : Secrétaire Madame BUKEYENEZA : Membre Monsieur BWATEMBA Sylvestre: Membre Monsieur GAHUNGU Révérien : Membre Monsieur NDIKUMANA Charles: Membre Monsieur NITEREKA Dominique: Membre Madame NIKOBIRI Théopiste : Membre Monsieur RWANGA Charles : Membre Monsieur MANIRAMBONA Côme: Membre Madame NDAYISHEMEZE Gloriose : Membre Madame SINDAYIGAYA Spès : Membre
