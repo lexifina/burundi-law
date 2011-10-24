@@ -1,0 +1,3 @@
+# Article 5
+
+TAXES SPECIALES POUR LES ENVOIS DE LA POSTE AUX LETTRES DU REGIME INTERNATIONAL Recommandation Tarif en Fbu par objet 2.590 par sac spécial 12.830 Coupons-réponse 1.880 Avis de réception 2.460 Exprès : par objet 2.590 par sac spécial 12.830 petit paquet 1500 sac spécial 3000 Retrait ou modification d’adresse 2445 Assurance pour valeur déclarée : Par 69.460 FBU ou fraction de 69.460 FBU 830 Minimum de perception 3320 Remise en main propre 500 Envoi volumineux 1200 Poste restante 270 N.B. :  Limite de déclaration de valeur : 4000 DTS  3000 FBU pour les sacs adressés aux librairies, 1000 FBU pour les sacs adressés aux particuliers

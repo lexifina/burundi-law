@@ -1,0 +1,3 @@
+# Article 7
+
+TAXES DES ENVOIS EXPRESS MAIL SERVICE (EMS) 7.1 Envois sur demande en FBU Destination Pour les premiers 500 grammes Pour les 500 grammes supplémentaires Pays d’Afrique 34.830 10.440 Pays d’Europe; Proche et Moyen Orient 38.330 10.440 Canada, Amérique; Extrême-Orient et Australie 48.790 10.440 7.2. : Envois programmés en FBU (1) Destination Pour les premiers 500 grammes Pour les 500 grammes supplémentaires Pays d’Afrique 31.350 9.390 Pays d’Europe; Proche et Moyen Orient 34.900 9.390 Canada, Amérique; Extrême-Orient et Australie 43.910 9.390 (1) Une réduction de 10% sur les tarifs des envois sur demande est appliquée aux envois EMS programmés.
