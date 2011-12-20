@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Commission de l’Évaluation du Système Éducatif Burundais : 1. Monsieur MANENGERI Patrice : Président; 2. Madame NZOKABONAY0 Corinthe : Vice Prési-dent; 3. Monsieur MUKENE Pascal : Secrétaire; 4. Madame BIZIMANA Laetitia : Secrétaire-adjoint; 5. Madame RURATANDITSE Godelieve : Membre; 6. Monsieur NYAMPETA Boniface : Membre; 7. Monsieur KOBAKO Gaspard : Membre; 8. Monsieur NIRENGUTSE Jean Baptiste : Mem-bre; 9. Madame MPINYUREMPORE Marie : Membre; 10.Madame MPENGEKEZE Scholastique : Membre; 11.Madame NSIIIMIRIMANA Aline : Membre; 12.Monsieur NTIBINYAGIRO Jérôme : Membre.
