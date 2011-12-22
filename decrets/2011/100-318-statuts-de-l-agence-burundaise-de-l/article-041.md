@@ -1,0 +1,3 @@
+# Article 41
+
+Les comptes de l’Agence sont placés sous le contrôle permanent de deux Commissaires aux Comptes désignés par le Ministre des Finances pour un mandat de quatre (4) ans renouvelables une fois. Après chaque exercice, les Commissaires aux Comp-tes établissent un rapport de contrôle donnant leurs avis sur la régularité et la sincérité des inventaires et des bilans, ainsi que l’exactitude données sur les comptes de l’Agence dans le rapport de Direction et font toute suggestion utile pour une meilleure admi-nistration financière et comptable. Ce rapport est adressé au Ministre ayant l’énergie dans ses attributions, au Ministre des Finances et au Directeur Général de l’Agence.
