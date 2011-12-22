@@ -1,0 +1,3 @@
+# Article 26
+
+Le Conseil d’Administration établit et adopte un Statut du Personnel traitant des questions relatives au recrutement et à l’organisation du per-sonnel; aux stages, à la titularisation et à la radiation pour les nouveaux engagés; au signalement et à l’avancement de grades; au traitement et indemnités; à la sécurité sociale; aux impôts et primes; aux congés, absences pour maladie, congé de maternité; à la disponibilité; aux droits, interdictions, régime disciplinaire et aux œuvres sociales. Ce Statut est ensuite soumis au Ministre de tutelle et au Ministre des Finances pour approbation.
