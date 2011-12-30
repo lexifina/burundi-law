@@ -1,0 +1,3 @@
+# Article 40
+
+La commission d’agrément au niveau communal, provincial ou national, selon le cas, peut, après avertissement et selon la gravité des faits, sus-pendre les activités ou retirer son agrément à un groupement pré-coopératif, si elle établit que le fonc-tionnement et les activités de ce dernier ne sont plus conformes aux critères d’agrément ou qu’il est res-ponsable d’actes contraires à la présente loi. Cette suspension ou ce retrait d’agrément doit être motivé et il est susceptible de recours auprès de la commission hiérarchiquement supérieure. En der-nière instance, un recours par voie judiciaire peut être exercé auprès du tribunal de grande instance.

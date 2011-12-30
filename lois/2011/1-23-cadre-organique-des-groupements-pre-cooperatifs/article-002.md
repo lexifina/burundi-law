@@ -1,0 +1,3 @@
+# Article 2
+
+Les groupements pré-coopératifs sont des structures organisées seules ou en faîtières, gérées de façon démocratique, constituées de personnes physiques ou morales qui s’associent et décident librement de mettre en commun tout ou partie de leurs ressources ainsi que leurs efforts en vue d’exer-cer des activités pour répondre aux besoins de leur métier couvrant l’ensemble des secteurs de dévelop-pement du pays. On entend par activité de développement, toute acti-vité génératrice de revenu notamment l’élevage, l’agriculture, l’agroforesterie, la pêche, la piscicul-ture, l’aquaculture et l’apiculture, l’artisanat, la for-gerie, le transport, la poterie, la briqueterie, l’électricité, etc...

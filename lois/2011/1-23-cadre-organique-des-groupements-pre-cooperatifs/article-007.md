@@ -1,0 +1,3 @@
+# Article 7
+
+La personnalité juridique est accordée à l’organisation requérante par son agrément comme groupement pré-coopératif par une commission dénommée « Commission d’agrément », constituée au niveau de chaque commune, de chaque province et au niveau national, selon le cas et composée conformément à la présente loi. Si les activités du groupement pré-coopératif s’exer-cent sur une seule commune, le groupement est agréé au niveau communal. Lorsque les activités du groupement pré-coopératif s’exercent sur plusieurs communes d’une même pro-vince, il est agréé au niveau provincial. Si les activités du groupement pré-coopératif s’exer-cent sur des communes situées dans des provinces différentes, il est agréé par une commission natio-nale.
