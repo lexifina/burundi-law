@@ -1,0 +1,3 @@
+# Article 9
+
+Sont régularisés au grade de Brigadier de Police Principal de 3ème Classe (BPP3) à la date du 31 décembre 2008, les Brigadiers de Police de lère Classe (BP1) dont les noms, prénoms et matricules suivent : 1. BAYUBAHE Onesphore, matricule : BPN2205; 2. HAJAYANDI Liboire, matricule : BPN1278; 3. HAKIZIMANA Jacques, matricule : BPN2924; 4. KIRARANGANYA Lévis, matricule : BPN2561; 5. NDUWIMANA Baluwani, matricule : BPN1940; 6. NIBONA Dieudonné, matricule : BPN2540; 7. NIYONKURU Egide, matricule : BPN2564; 8. NKURUNZIZA Jean Claude, matricule : BPN2506; 9. NSHIMIRIMANA God-first, matricule : BPN2421; 10.NZOYISABA Jean Claude, matricule : BPN1875; 11.UWIMANA Jeanine, matricule : BPN2362.
