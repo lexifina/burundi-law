@@ -1,0 +1,3 @@
+# Article 104
+
+En cas de nécessité et en particulier si la continuité du fonctionnement de l’établissement est compromise avant l’achèvement des cycles de for-mation en cours, sans qu’il ait été effectivement offerte aux étudiants la possibilité de les achever dans un autre établissement, le Ministre ayant l’enseignement supérieur dans ses attributions prend toute mesure pour sauvegarder l’intérêt de ceux-ci sur les ressources propres de l’établisse-ment. Il peut désigner, pour diriger l’établissement, un responsable provisoire sur avis conforme de la Commission Nationale de l’Enseignement Supé-rieur.
