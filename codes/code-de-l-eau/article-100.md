@@ -1,0 +1,3 @@
+# Article 100
+
+En cas de revocation de l'autorisation ou de concession a titre de sanction, aucune indemnite n'est due al'usager du domaine public hydraulique, qui pourrait meme etre poursuivi pour payer des indemnites ou des amendes, en raison des consequences liees aux actes et faits de violation des dispositions legales ou des clauses imposees par l'acte d'autorisation ou de concession. Si par contre, la revocation de I'autorisation ou de la concession est dictee par I'interet general, l'usager est indemnise ahauteur du prejudice subi, conformement a la procedure d'expropriation pour cause d'utilite publique. De plus, s'il y a abus de pouvoir, I'indemnite est due par le responsable de l'acte incrimine,

@@ -1,0 +1,3 @@
+# Article 44
+
+Les perimetres de protection des ressources en eau sont determines par decret pris sur proposition du Ministre ayant la gestion de I'eau dans ses attributions. Le decret precise I'etendue des terrains a acquerir en pleine propriete ou a reserver s' ils sont deja domaniaux. Ces terrains doivent etre clotures pour marquer precisement le perimetre de protection. En cas de privation de leur droit, du fait de I'amenagement du perimetre de protection par I'Etat, les proprietaires ou occupants des terrains incorpores dans le domaine de l'Etat sont indemnises conformement a la procedure d'expropriation pour cause d'utilite publique en vigueur.

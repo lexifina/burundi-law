@@ -1,0 +1,3 @@
+# Article 93
+
+En cas de cession du fonds, Ie droit d'usage de l'eau est transfere au nouveau proprietaire qui doit declarer Ie transfert pour obtenir sa validation dans un delai de six mois, adater de la mutation de propriete, faute de quoi il en perd Ie benefice. En cas de morcellement du fonds beneficiaire du droit d'usage de l'eau, la repartition des eaux entre les parcelles en resultant doit faire l'objet de droits d'usage nouveaux qui se substituent au droit d'usage originaire. ~ 37 CHAPITRE III : DU REGIME DE L'AUTORISATION ET DE LA CONCESSION SUR LES AUX DU DOMAINE PUBLIC HYDRAULIQUE Section 1 : Dispositions communes it I'autorisation.

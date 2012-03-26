@@ -1,0 +1,3 @@
+# Article 57
+
+Les projets d'amenagement ainsi que les documents et plans d'urbanisme doivent prendre en compte Ie drainage et I'evacuation des eaux pluviales qui sont des elements du droit ala securite et aun environnement sain. fP-28 La conception, I'execution et I'exploitation des ouvrages et batiments a usage d'habitation ou autre, installes dans les zones d'ecoulement ou dans les zones inondables, doivent respecter Ie libre ecoulement des eaux. L'autorite publique en charge du drainage et de I'evacuation des eaux pluviales en assure I'execution selon les modalites et prescriptions qui sont determinees par le ministere ayant la gestion de I'eau dans ses attributions, en collaboration avec Ie ministere en charge de la sante publique.

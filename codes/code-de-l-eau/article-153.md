@@ -1,0 +1,3 @@
+# Article 153
+
+Le present Code ne porte pas atteinte aux droits acquis et exerces en vertu du decret-loi nOl/41 du 26 novembre 1992 portant institution et organisation du domaine public hydraulique, du decret n°100 /241 du 31 decembre 1992 portant reglementation de I'evacuation des eaux usees en milieu urbain et de la loi N° 1/014 du 11 aofrt 2000 portant liberalisation et reglementation du service public de I'eau potable et de I'energie electrique, pour autant que ces droits acquis aient ete exerces sans interruption consecutive ades actes ou faits imputables ala faute ou ala negligence du titulaire des droits precites.
