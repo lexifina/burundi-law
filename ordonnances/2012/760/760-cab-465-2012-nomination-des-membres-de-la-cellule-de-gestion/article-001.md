@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Gestion des Marchés Publics de l’AHR, les person-nes suivantes : 1. Monsieur BARUTWANAYO Zéphyrin, Président; 2. Monsieur NSHIMIRIMANA Déo, Secrétaire; 3. Monsieur NTUNZWENIMANA Jean-Bosco, membre; 4. Madame MAJAMBERE Triphonie, membre; 5. Madame BIGIRIMANA Aline, membre; 6. Madame KWIZERA Christine, membre; 7. Monsieur BARANYIBIKIYE Jean-Bosco, mem-bre; 8. Monsieur NDAGIJIMANA Gervais, membre; 9. Monsieur NDAYIKUNDA Déogratias, membre 10.Mademoiselle ABIKARE Honorine, membre; 11.Monsieur NKESHIMANA Donatien, membre; 12.Madame SURWAVUBA Mélanie, membre.
