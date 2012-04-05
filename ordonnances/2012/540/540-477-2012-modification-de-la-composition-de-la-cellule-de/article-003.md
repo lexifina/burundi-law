@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés membres de la Cellule de Gestion des Marchés Publics à l’OBR les Cadres suivants : 1. Le Directeur de l’Administration et des Approvi-sionnements; 2. Le Directeur des Finances; 3. Le Directeur de l’Élaboration des Programmes et Suivi au Commissariat des Taxes Internes et Recettes Non Fiscales; 4. Le Directeur des Douanes, Ports et Frontières; 5. Le Directeur de la Gestion du Risque et Rensei-gnement; 6. Le Directeur Juridique et Gestion du Conten-tieux; 7. Le Chef d’Unité de l’Appel des Impôts et Résolu-tion des Conflits; 8. Le Chef de Service Infrastructure informatique; 9. Madame Floride NUWACU, Comptable des Recettes Douanières; 10.Madame Espérance MBAZUMUTIMA, Cadre d’appui chargé des Approvisionnements.
