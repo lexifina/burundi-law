@@ -1,0 +1,3 @@
+# Article 14
+
+Toutes les dispositions antérieures contraires au présent décret sont abrogées.
