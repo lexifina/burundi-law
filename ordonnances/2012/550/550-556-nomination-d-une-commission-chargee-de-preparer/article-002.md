@@ -1,0 +1,3 @@
+# Article 2
+
+La Commission est composée comme suit : 1. Monsieur Charles NDUWIMANA : Président; 2. Monsieur Jean-Claude NDIHOKUBWAYO : Vice-Président; 3. Monsieur Félix NDAYISENGA : membre; 4. Monsieur Liévin MACUMI : membre; 5. Monsieur Vincent NGENDAMBIZI : membre; 6. Monsieur KABURUNDI Jean-Berchmans : membre; 7. Monsieur Éric NKUNZIMANA : membre; 8. Honorable Félicité NIYUHIRE : membre; 9. Monsieur Lambert NIMUBONA : membre; 10.Monsieur Marcien MANDI : Membre; 11.Monsieur André CIZA : Membre; 12.Monsieur Jérôme NDIHO : Membre; 13.Abbé Martin SINUMVAYAHA : Membre; 14.Monsieur Rénovat TABU : Membre; 15.Monsieur Adolphe MANIRAKIZA : Membre; 16.Madame Alice Eimilie NTAMATUNGIRO : Membre.
