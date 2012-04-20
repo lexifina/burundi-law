@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres du Comité Tech-nique de Suivi de la mise en œuvre de la Politique Nationale de l’Eau/ Stratégie Nationale de l’Eau et de proposer des actualisations de la Stratégie Nationale de l’eau et de son plan-cadre : 1. Monsieur GAHUNGU Christophe, Président du Comité; 2. Monsieur WAKANA Ferdinand, Vice-Président du Comité; 3. Madame MPAWENAYO Grace, Secrétaire du comité; 4. Monsieur CIZA Fabien, membre; 5. Madame NGENDAKURIYO Jovith, membre; 6. Madame SURWAVUBA Mélanie, membre; 7. Monsieur NTUNGUMBURANYE Gérard, membre; 8. Monsieur NTAWUHEBURIMANA Félicien, membre; 9. Madame NIYIZOBAZA Marie Rose, membre.
