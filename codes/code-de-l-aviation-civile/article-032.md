@@ -1,0 +1,7 @@
+# Article 32
+
+De la fourniture des services de navigation aérienne L’Autorité fournit les services de navigation aérienne dans l’espace aérien du Burundi et dans tout autre espace aérien hors du Burundi pour lequel le Burundi s’est engagé, conformément aux accords internationaux, à fournir des services de navigation aérienne. En plus des services d’information aéro-nautiques détaillés à l’article 33 ci-dessous, les servi-ces de navigation aérienne comprennent :
+
+– les services de communication sol-sol ou sol-air fournis aux fins d’assurer la sécurité des aéronefs;
+
+– les services de navigation, y compris les systèmes radio, radar, satellite et les aides visuelles à la nav-igation; et les services de la circulation aérienne fournis aux fins d’assurer la sécurité et la régular-ité des vols. L’Autorité dirige et coordonne les services de recher-che et de sauvetage dans cet espace; elle est à cet effet habilitée à collaborer avec d’autres services publics et à conclure des accords d’assistance mutuelle avec les autorités locales, ainsi qu’avec des organisations et personnes privées appropriées. Tous les services publics impliqués dans la recher-che et le sauvetage appliquent les règlements édictés par le Ministre et adoptent des mesures destinées à faciliter autant que possible l’accès immédiat et tem-poraire de personnels et de matériels d’autres Etats qui participent, en accord avec l’Autorité, aux opéra-tions de recherche et de sauvetage.

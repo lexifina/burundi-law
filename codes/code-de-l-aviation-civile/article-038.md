@@ -1,0 +1,3 @@
+# Article 38
+
+Du paiement des indemnités Toute personne subissant une perte ou un dommage en conséquence d’un ordre contenu dans une notifi-cation sortie selon l’article 37 reçoit une indemnisa-tion dont le montant est déterminé conformément au code foncier en vigueur. Sans préjudice des dispositions de l’alinéa 1 du pré-sent article, aucune indemnisation n’est payable pour tout(e) perte ou dommage subi(e) en consé-quence de tout ordre contenu dans une notification sortie en vertu de l’article 37 alinéa 1 si le bâtiment, la construction ou l’arbre démoli a été érigé ou planté en violation de la notification.

@@ -1,0 +1,3 @@
+# Article 48
+
+De la responsabilité des directeurs et employés de sociétés En cas d’infraction aux termes de la présente loi ou de tout règlement édicté en vertu de cette loi com-mise par une personne morale, toute personne ayant été un directeur, responsable, secrétaire ou autre employé équivalent de ladite personne à la date à laquelle l’infraction a été commise ou qui était cen-sée agir à ce titre, sera également réputée coupable de cette infraction. Elle n’en sera innocente que si elle prouve que l’infraction a été commise sans sa connaissance ni son consentement ni sa connivence et, dans le cas où elle en avait connaissance, qu’elle a mis en œuvre toute la diligence requise de par la nature de ses fonctions et par les circonstances afin d’empêcher ladite infraction.

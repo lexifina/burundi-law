@@ -1,0 +1,5 @@
+# Article 34
+
+De la certification des services de navigation aérienne L’Autorité a le pouvoir d’établir les normes minima-les de sécurité d’exploitation des services de naviga-tion aérienne en conformité avec les normes minimales établies en vertu de la Convention de Chicago et de délivrer le certificat des services de navigation aérienne. L’organe en charge de la fourniture des services de navigation aérienne met en œuvre les normes mini-males de sécurité visées à l’alinéa ci-dessus et intro-duit une demande de certificat y relatif Si, suite à un contrôle technique de mise en œuvre, l’organe de réglementation trouve que l’organe de fourniture des services de navigation aérienne est correctement et convenablement capable de mener une exploitation en sécurité selon les exigences de cette loi, des règlements et normes prescrites, l’Autorité lui délivre un certificat d’exploitation des services de navigation aérienne. Tout certificat d’exploitation des services de naviga-tion aérienne prescrit les termes, conditions et limi-tations qui sont nécessaires pour assurer la sécurité dans la navigation aérienne.
+
+Chapitre VI Des aérodromes

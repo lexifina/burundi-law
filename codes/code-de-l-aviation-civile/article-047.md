@@ -1,0 +1,3 @@
+# Article 47
+
+Des nuisances causées par les aéronefs et aérodromes Aucune action ne sera recevable concernant des nui-sances (troubles de voisinage) uniquement dues au bruit et aux vibrations causés par un aéronef sur un aérodrome auquel s’applique le présent alinéa conformément à des règlements édictés en vertu de la présente loi, dans la mesure où les dispositions de tels règlements sont respectées. L’alinéa 1 du présent article concerne tout aéro-drome auquel s’appliquent les dispositions et règle-ments édictés en vertu de la présente loi en matière de bruit et de vibrations occasionnés par les aéro-nefs
