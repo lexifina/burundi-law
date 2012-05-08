@@ -1,0 +1,3 @@
+# Article 42
+
+Est admis aux examens de repêchage l’élève ayant obtenu : 53% au total général; 50% en conduite. Deux échecs qui ne sont pas dans les cours princi-paux et qui sont les moins profonds en termes de pourcentage et dans les cours les moins pondérés sont délibérés. Si les cinq échecs sont dans les cours principaux, l’élève échoue. Si un échec parmi les cinq est dans un cours secon-daire, il est délibéré; s’il arrivait que les quatre échecs restants aient la même profondeur en termes de pourcentage annuel et dans les cours de même pon-dération, le jury apprécie lequel délibérer. Pour le Cycle Supérieur d’Enseignement Pédagogique Section normale Élèves ayant un à trois échecs
