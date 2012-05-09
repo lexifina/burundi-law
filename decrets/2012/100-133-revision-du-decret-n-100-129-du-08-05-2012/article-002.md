@@ -1,0 +1,3 @@
+# Article 2
+
+La session a pour ordre du jour : 1. Analyse de projet de loi portant Amendement de l’Article 28 alinéa 2 de la loi n°1/24 du 31 décem-bre 2011 portant fixation du Budget Général de la République du Burundi pour l’exercice 2012; 2. Analyse de projet de loi portant Amendement de certaines dispositions de la loi n°1/10 du 30 juin 2009 portant application du Tarif Extérieur Com-mun « TEC » de la Communauté Est Africaine; 3. Analyse de projet de loi portant Amendement de certaines dispositions de la loi n°1/22 du 26 mai 2006 portant Création de la Redevance Adminis-trative; 4. Analyse de projet de loi portant Amendement de certaines dispositions de la loi n°1/02 du 17 février 2009 portant Institution de la Taxe sur la Valeur Ajoutée « TVA ».
