@@ -1,0 +1,3 @@
+# Article 16
+
+La Cellule dispose d’une indépendance pour remplir sa mission de recueillir les déclarations d’opérations suspectes ainsi que les renseignements supplémentaires y relatifs communiquées par les personnes assujetties, de les analyser et de commu-niquer les renseignements qui en découlent au Pro-cureur de la République, tout en ayant à rendre compte de ses résultats au Ministre ayant les finan-ces dans ses attributions. Dans ce cadre, le secret professionnel n’est pas opposable aux membres de la Cellule, qui jouissent en plus de la protection légale, objet de l’article 27 de la loi n°1/02 du 04/02/2008 susmentionnée.
