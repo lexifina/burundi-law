@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés Membres de ce Comité les personnes ci-après : 1. Madame Ambassadeur Patricia RWIMO, Secrétaire Permanent audit Ministère : Supervi-seur du Comité; 2. Monsieur Célestin NTUNGUKA, Conseiller au Secrétariat Permanent et Membre de la Cellule chargée du Budget et des Programmes; 3. Monsieur Khamisi HASANGIRABAKIZE, Con-seiller au Cabinet du Ministre et Responsable de la Cellule de Gestion des Marchés Publics du Ministère; 4. Monsieur Emmanuel NIYUNGEKO, Conseiller au Cabinet du Ministre et Chargé du Service du Contrôle Interne; 5. Monsieur Albin SINZOTUMA, Conseiller au Cabi-net du Ministre et Membre de la Cellule chargée du Suivi des Entités sous tutelle et du Secteur Privé.
