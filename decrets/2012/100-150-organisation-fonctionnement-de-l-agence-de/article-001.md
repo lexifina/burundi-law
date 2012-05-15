@@ -1,0 +1,3 @@
+# Article 1
+
+L’Agence de Régulation et de Contrôle des Assurances (ARCA), dénommée ci-après «l’Agence», est placée sous la tutelle du Ministère en charge des assurances et exerce pour le compte de l’État et au profit des assurés, souscripteurs et béné-ficiaires de contrats d’assurance et de capitalisation, le contrôle et la supervision des activités et organis-mes d’assurances. Elle est, dans le sens de l’article 2 du décret-loi n°01/024 du 13 juillet 1989 portant cadre organique des administrations personnalisées de l’État, dotée de la personnalité juridique, d’un patrimoine propre et d’une autonomie de gestion.

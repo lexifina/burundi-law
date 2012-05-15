@@ -1,0 +1,3 @@
+# Article 23
+
+Le Secrétaire Général reçoit les dossiers de demande d’agrément présentés par les compa-gnies, les courtiers et sociétés de courtage d’assu-rances et les instruit. Il vérifie la conformité des dossiers à la réglementation et apprécie leur validité technique. Cette procédure est également suivie pour les dos-siers de demande d’habilitation des agents généraux introduits par les sociétés d’assurances mandantes. Après étude, le Secrétaire Général transmet avec avis lesdits dossiers à la Commission, qui doivent lui parvenir au moins quinze jours avant la session au cours de laquelle ces demandes d’agrément seront examinées.
