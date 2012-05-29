@@ -1,0 +1,3 @@
+# Article 3
+
+Le juge-commissaire est particulièrement chargé d’accélérer et de surveiller les opérations, la gestion et la liquidation de la faillite. Il donne au curateur toutes les instructions qu’il juge utiles au bon déroulement des opérations de faillite. Dans ses rapports, le juge-commissaire rend compte au tribunal et au procureur de la République, le cas échéant, des actes relevant de ses attributions. A cette occasion, il ne fait pas partie du siège appelé à les examiner. Par ordonnance motivée, le juge-commissaire donne les autorisations nécessaires à la bonne conduite des actes du curateur et vide toutes les questions de forme et de procédure qui lui sont soumises.

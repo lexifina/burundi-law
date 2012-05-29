@@ -1,0 +1,3 @@
+# Article 34
+
+Conformément à l’article 54 de la loi sur les faillites, le curateur doit verser les deniers prove-nant des ventes et recouvrements dans un établisse-ment de banque ou de crédit agréé par le Ministre des finances, dans les huit jours à compter de la per-ception de la recette. Afin de financer les opérations courantes, le cura-teur peut, sur autorisation du juge-commissaire qui en fixe le montant maximum, conserver une certaine somme sur un compte bancaire individualisé par faillite. Il en est de même pour certaines opérations ponctuelles notamment en vue d’un versement à l’étranger.

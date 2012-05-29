@@ -1,0 +1,3 @@
+# Article 7
+
+En vue de la désignation du curateur, le tribunal prend en considération des qualités norma-lement attendues d’un mandataire de justice en matière de gestion de faillite notamment : 1. Une bonne organisation d’un cabinet; 2. Des capacités pour assurer le suivi du courrier, en l’occurrence son traitement et des réponses rapides et précises; 3. Une aptitude à prendre des décisions afin d’éviter un transfert des responsabilités aux col-laborateurs; 4. Des compétences intellectuelles et profession-nelles en matière de gestion de procédures col-lectives et autres domaines complémentaires comme la comptabilité et l’analyse du bilan; 5. Des aptitudes à entretenir des rapports humains avec le failli et courtois avec les différents inter-venants à la faillite.

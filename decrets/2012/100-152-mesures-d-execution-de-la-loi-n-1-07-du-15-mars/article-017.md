@@ -1,0 +1,3 @@
+# Article 17
+
+Le curateur est tenu de signaler au prési-dent du tribunal toute forme de conflit d’intérêt ou de partialité avec le débiteur failli. Il indique notam-ment si lui-même, ses proches parents, ses collabo-rateurs directs ont accompli des prestations au bénéfice du failli, des actionnaires majoritaires, des dirigeants de la société faillie ou au bénéfice d’un créancier au cours des deux années précédant le jugement déclaratif de faillite. Pour prononcer l’empêchement du curateur et dési-gner le curateur ad hoc, il est procédé comme il est prévu à l’article 36 de la loi sur les faillites.
