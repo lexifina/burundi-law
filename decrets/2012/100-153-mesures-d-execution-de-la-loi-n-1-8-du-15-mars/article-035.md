@@ -1,0 +1,3 @@
+# Article 35
+
+Pour apprécier la situation économique et financière du commerçant en difficulté, la cham-bre d’enquête commerciale recueille auprès du pro-cureur de la République toutes informations utiles découlant des dossiers pénaux ouverts à charge des commerçants et des dirigeants de sociétés commer-ciales notamment en matière d’émission de chèques sans provision, de détournement d’objets saisis, d’escroquerie, d’abus de confiance, d’abus de biens sociaux, de faux et usage de faux, de non dépôt de comptes annuels aux fins de publication et de manière générale des crimes et délits en matière de société.

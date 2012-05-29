@@ -1,0 +1,3 @@
+# Article 41
+
+Le débiteur sera muni des documents utiles notamment une copie des deux derniers comptes annuels et de leurs rapports d’adoption, la liste du passif échu et impayé et l’ancienneté des det-tes échues, les détails du poste « clients » et l’ancien-neté des créances y afférente, la situation financière la plus récente et ses annexes, le compte d’exploita-tion prévisionnel et les prévisions de trésorerie pour le semestre ou l’année à venir, le plan de restructura-tion élaboré ou déjà en voie de réalisation et tous autres documents utiles relatifs à l’extinction des cli-gnotants relevés dans le dossier préconstitué.

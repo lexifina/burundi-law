@@ -1,0 +1,3 @@
+# Article 59
+
+Lorsque le commissaire au sursis sou-met une proposition de transfert intégral ou partiel de l’entreprise à l’approbation du tribunal, celui-ci entend à ce propos une délégation de la direction de l’entreprise et une délégation des travailleurs, avant de se prononcer. Si le commissaire au sursis propose le transfert de l’ensemble de l’entreprise, le tribunal ne peut approuver cette proposition que si plus de la moitié des créanciers ayant fait la déclaration de leur créance, ayant pris part au vote et représentant en valeur plus de la moitié des créances y consentent. A cette fin, la procédure prévue par les articles 53 et 54 de la loi du 15 mars 2006 relative au concordat judi-ciaire pour l’adoption du plan de redressement, est utilisée.

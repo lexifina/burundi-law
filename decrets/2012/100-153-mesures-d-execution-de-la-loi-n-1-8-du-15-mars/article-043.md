@@ -1,0 +1,5 @@
+# Article 43
+
+Lors de l’entretien avec le débiteur ou avec le dirigeant de société, le juge s’enquiert des causes et raisons des difficultés rencontrées, des mesures prises au niveau de la gestion technique, financière et commerciale, du climat social de l’entreprise et de la structure de l’actionnariat. Il est informé des solutions proposées pour remédier aux difficultés notamment les tentatives de concor-dat amiable, les abandons de créances, les subordi-nations de créances, les projets de fusion, d’absorption ou de scission de sociétés, les projets d’apport de branches d’activité, le sort à réserver aux comptes courants des actionnaires, associés, admi-nistrateurs ou gérants, les accords négociés avec les créanciers spécialement les pouvoirs publics et les organismes dispensateurs de crédit.
+
+Le juge peut entendre toute personne dont il estime l’audition nécessaire et ordonner la production de tous documents utiles. Il peut même requérir, avec l’accord du débiteur, une expertise sur la restructu-ration de l’entreprise au niveau technique et com-mercial. L’instruction du dossier a lieu à huis clos.

@@ -1,0 +1,3 @@
+# Article 34
+
+La chambre d’enquête commerciale exa-mine les clignotants figurant au dossier et les inter-prète en fonction de la situation concrète du débiteur notamment la taille de l’entreprise, la fré-quence et la gravité des clignotants, la trésorerie et la rentabilité de l’entreprise. Elle peut d’orès et déjà classer le dossier si les indices des difficultés ont dis-paru, le mettre en veilleuse pour vérifier l’évolution de la situation, recueillir des informations complé-mentaires auprès de l’administration ou de tiers ou encore transmettre le dossier pour disposition entre les mains du Tribunal de commerce en vue du des-saisissement provisoire, ou du Parquet en vue de la faillite.
