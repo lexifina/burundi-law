@@ -1,0 +1,3 @@
+# Article 5
+
+Les honoraires couvrent les prestations ordinaires du curateur dans le cadre d’une liquida-tion normale de la faillite telles que la procédure de fixation de la date de cessation de paiement, l’inven-taire, les inscriptions hypothécaires prises au nom de la masse, la vérification des créances, la réalisa-tion et la liquidation de l’actif, les contestation ou autres actions en justice, soit comme demandeur, soit comme recouvrement de créances, les négocia-tions du curateur avec les créanciers ou les tiers, l’examen de la comptabilité existante et des papiers du failli, les opérations de clôture, la correspon-dance, les plaidoiries.
