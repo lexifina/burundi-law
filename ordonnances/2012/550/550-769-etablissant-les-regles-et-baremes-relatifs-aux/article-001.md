@@ -1,0 +1,3 @@
+# Article 1
+
+Dans les huit jours de sa désignation, le commissaire au sursis dépose au dossier du sursis, une proposition d’honoraires relative à la période d’observation visée à l’article 22, alinéa 1er, de la loi du 15 mars 2006 relative au concordat judiciaire des entreprises en difficulté. Huit jours au moins avant la date fixée, conformé-ment à l’article 24 de la loi du 15 mars 2006 relative au concordat judiciaire, le commissaire au sursis dépose au dossier du sursis, une proposition d’hono-raires établie dans la perspective de l’octroi par le tri-bunal d’un sursis définitif ou d’un transfert de l’entreprise ou d’une partie de celle-ci.
