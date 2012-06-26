@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommés membres de la Commission chargée d’élaborer une Convention entre le Gouver-nement du Burundi et l’APEFE sur la création d’un Centre National de Kinésithérapie : 1. Docteur Liboire NGIRIGI : Président; 2. Docteur Jean-Claude HAKIZIMANA : Vice-Président; 3. Docteur Révérien NIYONGABO : Secrétaire; 4. Docteur Élysée BARANSAKA : Membre; 5. Docteur Alexis NSINZAKARAYE : Membre; 6. Monsieur Daniel BITAGOYE : Membre; 7. Docteur Godefroid KAMWENUBUSA : Membre; 8. Madame Yvette MUKESHIMANA : Membre; 9. Monsieur Jean Bosco HITIMANA : Membre; 10.Monsieur Olivier JADIN : Membre.
