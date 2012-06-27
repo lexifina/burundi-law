@@ -1,0 +1,11 @@
+# Ordonnance ministérielle n°530/918 du 27 juin 2012
+
+PORTANT AGREMENT DE L’ASSOCIATION SANS BUT LUCRATIF DÉNOMMÉE : « LES MINISTÈRES DE LA MONTAGNE DE FEU ET DES MIRACLES » « M.F.M » EN SIGLE.
+
+Le Ministre de l’Intérieur,
+
+Vu la Constitution de la République du Burundi;
+
+Vu le Décret-loi n°1/011 du 18 Avril 1992 portant Cadre Organique des Associations Sans But Lucratif;
+
+Vu la requête introduite en date du 7/07/2010 par le Représentant Légal tendant à obtenir la personnalité civile de l’association dénommée : « Les Ministères de la Montagne de Feu et des Miracles » « M.F.M » en sigle; Attendu qu’à la lumière des éléments du dossier, il sied de constater que la requête est conforme aux dispositions du Décret-loi susvisé; « Les Ministères de la Montagne de Feu et des Miracles » « M.F.M » en sigle; 7. NIYONZIMA Claudine Membre 8. NIYONZIMA Berchimans Membre 9. NSENGIYUMVA Gordien Membre 10. MUGUFI Priscille Membre 11. NDUWIMANA Emmanuel Membre 4. COMMUNE NDAVA : 1. NKUNZIMANA Martin Président 2. NDIKURIYO Dismas Membre 3. BIGIRIMANA Gordien Membre 4. BARUMBANZE Privat Membre 5. BATUNGWANAYO Louise Membre 6. NSENGIYUMVA Zephyrin Membre 7. NDIKUMANA Désiré Membre 8. Muhizi Godefroid Membre 9. BARANANDAGIYE Omer Membre 10. NKUNZIMANA Calixte Membre 11. MBAZUMUTIMA Éric Membre 12. NIVYIMANA Godeberthe Membre 13. NDORICIMPA Désidérata Membre 14. NIZIGIYIMANA Jeanne Membre 15. NZISABIRA Annociatte Membre 5. COMMUNE NYABIHANGA : 1. CIZA Issac Président 2. NDUWAYO Longin Membre 3. BUKOBERO Chantal Membre 4. GASUGURU Joseph Membre 5. SIMBANKA Ildephonse Membre 6. NIZIGIYIMANA Sophie Membre 7. KABERA Tharcisse Membre 8. MANIRAKIZA Philbert Membre 9. HABURIYAKIRA Désiré Membre 10. NTAKAMURENGA Évariste Membre 11. MANIRAKIZA Fabien Membre 12. BIGIRIMANA Pamphile Membre 13. HORICUBONYE Richard Membre 6. COMMUNE RUSAKA : 1. NZIBAVUGA Fréderic Président 2 .BANZIRUMUHITO Bernard Membre 3. NDIHOKUBWAYO Raphaël Membre 4. Hon. NDUWIMANA Bernadine Membre 5. NIYONKURU Alexis Membre 6. NZISABIRA Domitien Membre 7. BENDANZIKA André Membre 8. NDURA Évariste Membre 9. NTUNGUMBURANYE Adelin Membre 10. NUNGA Patrice Membre 11. NSHIMIRIMANA Patrice Membre 12. SINZOBATOHANA Zozyme Membre 13. NYAMISAMA Léonidas Membre 14. MUKASHA Membre 15. NAHIMANA Monique Membre Ordonne
