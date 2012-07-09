@@ -1,0 +1,3 @@
+# Article 2
+
+Les membres de la Commission ont pour mission d’identifier toutes les écoles concernées par les fraudes de ces Diplômes, de préciser le sort à réserver aux Diplômes de l’Enseignement Supérieur délivrés dans ces conditions et d’ajuster le Décret n°100/066 du 9 avril 2003 portant organisation de l’enseignement professionnel public non Formel au Burundi à la Loi n°1/22 du 30 décembre 2011 portant Réorganisation de l’Enseignement Supérieur au Burundi et certains textes de son application comme les Décrets portant respectivement conditions d’obtention du Diplôme d’Etat et conditions d’accès à l’enseignement supérieur public et privé.
