@@ -1,0 +1,3 @@
+# Article 2
+
+Le comité Sectoriel de suivi et d’Évalua-tion est composé de : 1. Monsieur Épimaque MURENGERANTWARI, Secrétaire Permanent au Ministère de l’Eau, de l’Environnement, de l’Aménagement du Terri-toire et de l’Urbanisme, Président; 2. Madame Marie-Rose KABURA, Responsable de la cellule de Gestion des Marchés Publics au Min-istère, membre; 3. Monsieur Évariste RUFUGUTA, Responsable de la cellule de planification au Ministère, membre; 4. Monsieur Jérémie NKINAHATEMBA, Responsa-ble de la Cellule de Suivi Évaluation au Ministère, membre; 5. Monsieur Édouard NZIGUHEBA, Responsable en charge du budget, membre.
