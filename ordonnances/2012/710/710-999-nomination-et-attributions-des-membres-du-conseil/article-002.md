@@ -1,0 +1,3 @@
+# Article 2
+
+Seul le Ministre de l’Agriculture et de l’Élevage a la compétence de modifier la composi-tion des membres du Conseil Consultatif Ministériel.
