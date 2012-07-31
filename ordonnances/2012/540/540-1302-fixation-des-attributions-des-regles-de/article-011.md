@@ -1,0 +1,5 @@
+# Article 11
+
+Les demandes d’engagements budgétai-res sont établies par les gestionnaires et envoyées au contrôleur des engagements de dépenses. Elles com-prennent une description de la dépense envisagée, l’article budgétaire d’imputation de la future dépense, une estimation prudente de son montant, et un calendrier prévisionnel de signature de l’enga-gement juridique et de liquidation de la dépense. Pour les engagements budgétaires globaux, la demande est accompagnée d’une répartition prévi-sionnelle des montants à liquider mois par mois, ou selon toute autre périodicité pertinente.
+
+Le contrôleur des engagements de dépenses vérifie la qualité du gestionnaire, la disponibilité des cré-dits, l’imputation de la dépense à l’article budgétaire pertinent, le réalisme des coûts et la conformité de la dépense et de son calendrier prévisionnel avec la programmation budgétaire prévue à l’article 8, avant d’approuver la demande d’engagement budgétaire. En cas d’approbation, il procède à la réservation des crédits correspondants et en informe le gestionnaire.
