@@ -1,0 +1,15 @@
+# Ordonnance ministérielle n°720/1584/2012 du 17 septembre 2012
+
+PORTANT NOMINATION DES CHEFS DES SERVICES À LA DIRECTION DES ÉTUDES ET DU CONTRÔLE DES TRAVAUX IMMOBILIERS.
+
+Le Ministre des Transports, des Travaux Publics et de l’Équipement,
+
+Vu la constitution de la République du Burundi;
+
+Vu le décret n°100/323 du 27 Décembre 2011 portant structure, fonctionnement et missions du Gouverne-ment de la République du Burundi;
+
+Vu la loi n°1/08 du 28 Avril 2011 portant organisation générale de l’Administration Publique
+
+Vu le décret n°100/213 du 02 Août 2011 portant Réor-ganisation du Ministère des Transports, des Travaux Publics et de l’Équipement;
+
+Ordonne
