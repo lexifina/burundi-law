@@ -1,0 +1,3 @@
+# Article 503
+
+Les passagers de tout bus de trans-port rémunéré de personnes quelle que soit la catégorie d’affectation du bus, doivent s’aligner l’un derrière l’autre lors de leur embarquement et de leur débarquement. Toutefois, les person-nes physiquement handicapées ou accompa-gnées d’enfants de moins de 4 ans ou les femmes en grossesse avancée sont autorisées à monter avant les autres voyageurs. Il est interdit à tout passager de dépasser, de chercher à dépasser ou de bousculer celui qui l’a précédé à l’alignement pour l’entrée et la sortie du bus. Il est formellement interdit à tout passager d’accéder au bus par une voie autre que l’entrée reconnue pour passagers.

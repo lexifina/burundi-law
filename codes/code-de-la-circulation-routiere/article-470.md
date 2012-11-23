@@ -1,0 +1,3 @@
+# Article 470
+
+Il est strictement interdit au pro-priétaire ou au conducteur de motocyclette de fabriquer, d’importer, d’exporter, d’exposer, d’offrir, de mettre en vente, de proposer à la location ou d’inciter à acheter ou à utiliser un dispositif ayant pour objet de dépasser les limi-tes réglementaires fixées en matière de vitesse, de cylindrée ou de puissance maximale du moteur d’un cyclomoteur, d’une motocyclette ou d’un quadricycle à moteur. Il est également interdit à un professionnel de réaliser sur un cyclomoteur, une motocyclette ou un quadricycle à moteur, des transforma-tions ayant pour effet de dépasser les limites réglementaires fixées en matière de vitesse, de cylindrée ou de puissance maximale du moteur.

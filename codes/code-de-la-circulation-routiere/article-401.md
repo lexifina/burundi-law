@@ -1,0 +1,3 @@
+# Article 401
+
+Si la largeur hors tout du charge-ment dépasse de plus de 0,40 mètre le point de la plage éclairante le plus éloigné du plan longi-tudinal médian du véhicule, le chargement doit être signalé dès la tombée du jour et pendant la nuit, ou de jour lorsque les conditions atmos-phériques l’exigent, par un feu ou un dispositif réfléchissant rouge vers l’arrière, disposé de telle façon que le point de la plage éclairante ou réfléchissante de ces feux ou dispositifs le plus éloigné du plan longitudinal médian du véhicule soit à moins de 0,40 mètres de l’extrémité de la largeur hors tout du chargement.

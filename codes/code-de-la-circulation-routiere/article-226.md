@@ -1,0 +1,3 @@
+# Article 226
+
+Par dérogation aux dispositions de l’article 230, les interdictions prescrites par les signaux d’interdiction de stationner et d’inter-diction d’arrêter et de stationner s’étendent à une zone de 20 mètres en deçà du signal. La zone d’interdiction s’étend à 20 mètres de part et d’autre de ses signaux si ceux-ci sont à double face. Lorsque l’interdiction prescrite par le signal d’interdiction d’arrêt ou par le signal d’interdic-tion d’arrêt et de stationnement s’étend au-delà des limites fixées ci-dessus, elle est indiquée par des signaux se faisant face et placés en nombre suffisant de manière à être parfaitement visible de l’un à l’autre. En aucun cas, la distance entre deux signaux ne peut dépasser 100 mètres.

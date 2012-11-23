@@ -1,0 +1,3 @@
+# Article 259
+
+Si la circulation n’est autorisée que dans un sens sur la partie de la chaussée restée libre, la barrière placée à l’extrémité du chan-tier, à partir de laquelle la circulation est inter-dite, est complétée en son milieu par le signal du sens interdit pour tout conducteur. Si la circulation est interdite dans les deux sens de la chaussée occupée par le chantier, la bar-rière placée à chacune des extrémités de celui-ci est munie en son milieu soit du signal d’accès interdit dans un sens à tout conducteur, soit du signal d’ accès interdit dans les deux sens à tout conducteur, sauf circulation locale.

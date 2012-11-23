@@ -1,0 +1,3 @@
+# Article 372
+
+Tout véhicule automobile ou remorqué doit être muni à l’arrière de deux dis-positifs réfléchissant vers l’arrière une lumière rouge, visible la nuit, par temps clair, à une dis-tance de 100 mètres lorsqu’ils sont éclairés par les feux de route. Toute remorque ou semi remorque doit être munie à l’avant de deux dispositifs réfléchis-sants de couleur blanche. Tout véhicule automobile, autre qu’une voiture particulière, dont la longueur dépasse 6 mètres ainsi que toute remorque ou semi-remorque, doit comporter des dispositifs réfléchissants latéraux de couleur orangée. Ces dispositifs sont autorisés sur les autres véhi-cules.

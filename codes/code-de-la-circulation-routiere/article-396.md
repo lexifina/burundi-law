@@ -1,0 +1,3 @@
+# Article 396
+
+Un véhicule peut porter à l’arrière soit un feu de marche arrière d’une puissance inférieure ou égale à 25 watts, soit deux feux placés symétriquement d’une puissance unitaire inférieure ou égale à 21 watts. Ces feux doivent émettre une lumière blanche sous la forme d’un faisceau lumineux étalé et rabattu vers le sol, de façon à ne provoquer aucun éblouissement pour un conducteur venant de l’arrière. L’allumage des feux ne doit être réalisé que lors-que la boîte de vitesses est sur la combinaison correspondant à la marche arrière, sauf si la puissance unitaire de ces feux ne dépasse pas 7 watts et si leur allumage est commandé par un interrupteur spécial.

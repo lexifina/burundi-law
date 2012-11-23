@@ -1,0 +1,3 @@
+# Article 347
+
+Tout conducteur d’un véhicule à l’arrêt ou en stationnement est tenu de le dépla-cer dès qu’il en est requis par un agent qualifié. En cas de refus du conducteur, l’agent peut pourvoir d’office au déplacement du véhicule, aux risques et frais du conducteur et des person-nes civilement responsables. Si le conducteur est absent, l’agent peut pour-voir d’office au déplacement du véhicule; en ce cas les frais et risques de l’opération incombent à l’administration, sauf si le véhicule est arrêté en contravention aux dispositions relatives à la réglementation de roulage et de la circulation. Cette dernière faculté ne peut, dans les mêmes conditions, être exercée par un usager sans l’intervention d’un agent qualifié.

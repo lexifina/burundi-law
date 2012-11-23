@@ -1,0 +1,3 @@
+# Article 277
+
+L’interdiction de l’article 276 n’est pas applicable aux agents des services publics utilisant, dans l’exercice de leurs fonctions, des appareils émetteurs de vapeurs, fumées ou pou-dres. Il en est de même pour les personnes privées uti-lisant de tels appareils, soit pour le compte des-dits services, soit sous le couvert d’une autorisation accordée par les services compé-tents du ministère en charge des transports. Il appartient néanmoins aux usagers tant publics que privés de prendre, pendant la durée des opé-rations, les précautions nécessaires pour éviter tout accident ou toute obstruction à la circula-tion.
