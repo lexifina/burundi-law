@@ -1,0 +1,3 @@
+# Article 1
+
+Les Agents de l’Ordre Judiciaire dont les noms suivent sont affectés au Tribunal de Grande Ins-tance de Makamba du 17 décembre 2012 au 17 février 2013 : A la fin de cette période, ils regagnent immédiatement le service d’origine sans autre formalité. Il s’agit de : 1. Madame NKENGURUTSE Joella; 2. Madame NINTUNZE Jacqueline; 3. Monsieur NZEYIMANA Claude; 4. Monsieur NDAGIJIMANA Antoine; 5. Madame INAMAHORO Nadine; 6. Madame SINDAYIGAYA Antoinette; 7. Madame NIBIZI Béatrice; 8. Madame NIYOKINDI Joselyne; 9. Madame NYABENDA Joselyne; 10.Madame NDIHOKUBWAYO Dina; 11.Madame NDIHOKUBWAYO Judith; 12.Madame NIBITANGA Anatolie; 13.Madame NIMPAYE Délphine; 14.Madame SABIMPA Marie Goreth; 15.Madame NTEZIMANA Matilde; 16.Madame NTAWUYANKIRA Jeanne d’Arc.
