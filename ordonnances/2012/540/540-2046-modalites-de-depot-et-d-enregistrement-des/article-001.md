@@ -1,0 +1,3 @@
+# Article 1
+
+Est considéré comme marque de produits ou de services tout signe visible utilisé ou que l’on se propose d’utiliser et qui est propre à distinguer les pro-duits ou les services d’une entreprise quelconque notamment les noms patronymiques pris en eux-mêmes ou sous une forme distinctive, les dénomina-tions particulières, arbitraires ou de fantaisie, la forme caractéristique du produit ou de son conditionnement, les étiquettes, les enveloppes, les emblèmes, les empreintes, les timbres, les cachets, les vignettes, les liserés, les combinaisons ou les dispositions de cou-leurs, les dessins, les reliefs, les lettres, les chiffres, les devises, et les pseudonymes.
