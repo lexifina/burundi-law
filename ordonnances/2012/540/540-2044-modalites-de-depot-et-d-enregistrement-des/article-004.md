@@ -1,0 +1,3 @@
+# Article 4
+
+En sus de tous autres droits, recours ou actions dont elle dispose, la communauté titulaire du certificat des savoirs traditionnels a le droit d’engager une procédure judiciaire devant le tribunal compétent, contre toute personne qui porte atteinte aux droits découlant de l’enregistrement des savoirs traditionnels en accomplissant, sans son consentement, l’un des actes mentionnés aux articles 262, 263, et 266 de la loi sur la propriété industrielle et l’article 2 de la présente ordonnance ou qui accomplit des actes qui rendent vraisemblable la commission d’une contrefaçon, d’une confusion ou de tout acte de concurrence déloyale.

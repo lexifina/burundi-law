@@ -1,0 +1,3 @@
+# Article 1
+
+Peuvent être protégés par le certificat d’enregistrement et faire objet de propriété industrielle tous les aspects des savoirs traditionnels des commu-nautés autochtones et locales du Burundi tels que défi-nis par l’article 247 de la loi sur la propriété industrielle, qui contribuent à la préservation des traditions et des moyens de subsistance des communautés traditionnel-les, assurent le respect de leur identité culturelle et pro-meuvent la création, le développement et la commercialisation de ces savoirs et qui n’ont pas été divulgués au public par quelque moyen que ce soit ou qui, même en cas de divulgation, n’ont pas fait l’objet d’une exploitation commerciale ou industrielle au Burundi.
