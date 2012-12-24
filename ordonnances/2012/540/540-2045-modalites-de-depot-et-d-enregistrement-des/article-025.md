@@ -1,0 +1,3 @@
+# Article 25
+
+En guise de délivrance du certificat, le Directeur de la propriété industrielle rédige en double exemplaire l’acte d’enregistrement du certificat de schéma de configuration de circuits intégrés suivant le modèle préétabli. Il y mentionne l’identité du requérant et éventuellement du mandataire de celui-ci, le numéro d’inscription au registre, la date et l’heure du dépôt ainsi que, en résumé, la description de la création. Le cas échéant, ce résumé est illustré de dessins que le requérant désire y voir figurer. Après avoir mentionné ses noms et fonctions, il signe les deux exemplaires de l’acte et y appose le cachet du Ministère du commerce et de l’industrie.

@@ -1,0 +1,3 @@
+# Article 26
+
+Le Directeur de la propriété industrielle fixe à l’original de l’acte d’enregistrement du schéma de configuration, un exemplaire de tous les documents déposés et classe le tout dans ses archives. Il fixe à l’expédition de l’acte un exemplaire de tous les documents déposés en double exemplaire et le remet au déposant ou à son mandataire ou le lui envoie sous pli recommandé à la poste. Pour rendre impossible l’enlèvement ou la substitution des documents annexés au certificat d’enregistrement du schéma de configuration, chacune de ses annexes est frappée du cachet du Ministère ayant le commerce et l’industrie dans ses attributions.

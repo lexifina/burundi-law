@@ -1,0 +1,3 @@
+# Article 31
+
+Les droits attachés à une demande d’enre-gistrement d’un schéma de configuration de circuits intégrés ou à un schéma de configuration de circuits intégrés enregistré sont transmissibles en totalité ou en partie. Les actes comportant la transmission de pro-priété, la concession de droit d’exploitation ou la ces-sion de ce droit, le gage ou la mainlevée de gage relativement à une demande d’enregistrement de schéma de configuration de circuits intégrés ou à un schéma de configuration de circuits intégrés enregistré doivent, sous peine de nullité, être constatés par écrit. Ils ne sont opposables aux tiers que s’ils ont été inscrits au registre spécial des schémas de configuration de cir-cuits intégrés.

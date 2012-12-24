@@ -1,0 +1,5 @@
+# Article 37
+
+Sur présentation de la preuve de l’expira-tion ou de la résiliation du contrat de licence, la licence est radiée du registre, à la requête du titulaire ou du concessionnaire du schéma de configuration de cir-cuits intégrés.
+
+Le Directeur de la propriété industrielle mentionne la radiation de la licence sur l’original du certificat d’enre-gistrement du schéma de configuration de circuits inté-grés ainsi que sur l’expédition jointe à la demande; il porte sur le registre spécial de schémas de configura-tion de circuits intégrés un renvoi à la radiation; il remet au titulaire, au bénéficiaire de la licence ou à son man-dataire ou lui adresse sous pli recommandé à la poste, une copie du procès-verbal dûment signé et muni du cachet du Ministère en charge du commerce et de l’industrie ainsi qu’une expédition du schéma de confi-guration de circuits intégrés muni de la mention de la radiation; il classe dans ses archives l’original du pro-cès-verbal d’enregistrement de la radiation avec tous les documents y relatifs.
