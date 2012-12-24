@@ -1,0 +1,3 @@
+# Article 1
+
+Peuvent être protégés par des certificats d’enregistrement comme dessins et modèles indus-triels, tout assemblage de lignes ou de couleurs et toute forme plastique associée ou non à des lignes ou à des couleurs, pourvu que cet assemblage ou cette forme donne une apparence spéciale à un produit industriel ou artisanal, soit nouveau et puisse servir de type pour la fabrication d’un produit industriel ou artisanal. Si le même objet peut être considéré à la fois comme un des-sin ou un modèle industriel nouveau et comme une invention brevetable et si les éléments constitutifs de la nouveauté du dessin ou du modèle sont inséparables de ceux de l’invention, ledit objet est protégé comme brevet d’invention ou comme modèle d’utilité.

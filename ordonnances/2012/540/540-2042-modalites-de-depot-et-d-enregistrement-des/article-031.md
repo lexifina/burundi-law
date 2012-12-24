@@ -1,0 +1,3 @@
+# Article 31
+
+Les droits attachés à une demande d’enre-gistrement d’un dessin ou d’un modèle industriel ou à un dessin ou un modèle industriel enregistré sont trans-missibles en totalité ou en partie. Les actes comportant la transmission de propriété, la concession de droit d’exploitation ou la cession de ce droit, le gage ou la main levée de gage relativement à une demande d’enre-gistrement de dessin ou de modèle industriel ou à un dessin ou un modèle industriel enregistré doivent, sous peine de nullité, être constatés par écrit. Ils ne sont opposables aux tiers que s’ils ont été inscrits au registre spécial des dessins et des modèles industriels.

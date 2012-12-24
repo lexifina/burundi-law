@@ -1,0 +1,3 @@
+# Article 25
+
+En guise de délivrance du certificat, le Directeur de la propriété industrielle rédige, en double exemplaire, l’acte d’enregistrement du certificat de dessin ou de modèle industriel suivant le modèle préé-tabli. Il y mentionne l’identité du requérant et éventuellement celle de son mandataire, le numéro d’inscription au registre, la date et l’heure du dépôt ainsi qu’un résumé, la description de la création. Le cas échéant, ce résumé est illustré par des dessins que le requérant désire y voir figurer. Après avoir mentionné ses noms et ses fonctions, il signe les deux exemplaires de l’acte et y appose le cachet du Ministère ayant le commerce et l’industrie dans ses attributions.
