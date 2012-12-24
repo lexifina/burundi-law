@@ -1,0 +1,3 @@
+# Article 25
+
+En guise de délivrance du certificat, le Directeur de la propriété industrielle rédige, en double exemplaire l’acte d’enregistrement du certificat de modèle d’utilité suivant le modèle préétabli. Il y men-tionne l’identité du requérant et éventuellement celle de son mandataire, le numéro d’inscription au registre, la date et l’heure du dépôt ainsi que, en résumé, la des-cription de la création. Le cas échéant, ce résumé est illustré par des dessins que le requérant désire y voir figurer. Après avoir mentionné ses noms et fonctions, le Direc-teur de la propriété industrielle signe les deux exem-plaires de l’acte et y appose le cachet du Ministère ayant le commerce et l’industrie dans ses attributions.
