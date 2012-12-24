@@ -1,0 +1,3 @@
+# Article 25
+
+Il est loisible au titulaire du certificat d’enregistrement de l’indication géographique de faire porter ultérieurement sur l’original de l’acte, toute men-tion concernant des rectifications ou modifications aux énonciations de l’acte autres que celles relatives à la description de l’indication géographique notamment les changements d’adresse ou la dénomination sociale du titulaire du certificat d’enregistrement d’indication géographique, une annulation totale de l’enregistre-ment d’indication géographique, des modifications apportées à la liste des produits couverts. Cette forma-lité n’entraîne d’autres frais que ceux relatifs à la publi-cation.

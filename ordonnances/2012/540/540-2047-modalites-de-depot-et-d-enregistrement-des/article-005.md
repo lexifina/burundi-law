@@ -1,0 +1,7 @@
+# Article 5
+
+Seuls les producteurs exerçant leur activité dans l’aire géographique indiquée au registre, ont le droit d’utiliser à des fins commerciales une indication géographique enregistrée, pour les produits indiqués au registre, pour autant que ces produits possèdent la qualité, la réputation ou les autres caractéristiques indi-quées au registre. En dehors du cas prévu à l’alinéa précédent, l’utilisa-tion à des fins commerciales, pour des produits indi-qués au registre ou pour des produits similaires, de l’indication géographique enregistrée ou d’une dénomi-nation similaire, même si l’origine véritable du produit est indiquée, ou si l’indication géographique est employée en traduction ou accompagnée d’expres-sions telles que genre, type, façon, imitation ou expres-sions similaires, est interdite. Est également interdite l’utilisation dans la désignation ou la présentation d’un produit, de tout moyen qui indique ou suggère que le produit en question est originaire d’une région géogra-phique autre que le véritable lieu d’origine d’une manière qui induit le public en erreur quant à l’origine géographique du produit.
+
+Le contrôle de la qualité des produits mis en vente ou exploités sous une indication géographique enregistrée ainsi que l’utilisation de ladite indication géographique sont décidés par l’autorité compétente.
+
+Chapitre II De la demande d’enregistrement d’une indication géographique

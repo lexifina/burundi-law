@@ -1,0 +1,3 @@
+# Article 21
+
+En guise de certificat d’enregistrement d’indication géographique, le Directeur de la propriété industrielle rédige, en double exemplaire, un acte d’enregistrement de l’indication géographique, selon les modèles préétabli. Il y mentionne l’identité du requérant et éventuellement celle de son mandataire, le numéro d’inscription au registre, la date et l’heure du dépôt ainsi que la reproduction de l’indication géogra-phique et la liste des produits couverts. Le cas échéant, cette reproduction est illustrée de représentation gra-phique spécifique. Après avoir mentionné ses noms et fonctions, il signe les deux exemplaires de l’acte d’enregistrement et y appose le cachet du Ministère ayant le commerce et l’industrie dans ses attributions.
