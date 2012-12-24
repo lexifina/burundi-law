@@ -1,0 +1,3 @@
+# Article 31
+
+En guise de certificat de délivrance du bre-vet, le Directeur de la propriété industrielle rédige en double exemplaire, un acte de brevet d’invention, d’importation ou de perfectionnement, selon les modè-les respectifs repris dans les formulaires préétablis. Il y mentionne l’identité du requérant et éventuellement du mandataire de celui-ci, le numéro d’inscription au registre, la date et l’heure du dépôt ainsi que, un résumé de la description de l’invention. Le cas échéant, ce résumé est illustré par des dessins que le requérant désire y voir figurer. Après avoir mentionné ses noms et fonctions, il signe les deux exemplaires de l’acte de brevet et y appose le cachet du Ministère ayant le com-merce et l’industrie dans ses attributions.

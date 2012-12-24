@@ -1,0 +1,3 @@
+# Article 3
+
+Sous les conditions et dans les limites fixées par la loi sur la propriété industrielle et la présente ordonnance, le brevet confère à son titulaire le droit exclusif d’exploiter et d’interdire à toute personne l’exploitation de l’invention breveté. L’exploitation d’une invention brevetée comprend, lorsque le brevet a été délivré pour un produit, la fabri-cation, l’importation, l’offre en vente et l’utilisation du produit. Lorsque le brevet a été délivré pour un procédé, son exploitation s’entend de l’emploi du procédé, de la fabrication, de l’importation, de l’offre en vente et de l’utilisation du produit résultant directement du pro-cédé.
