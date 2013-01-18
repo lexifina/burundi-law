@@ -1,0 +1,17 @@
+# Ordonnance ministérielle n°530/67 du 18 janvier 2013
+
+PORTANT NOMINATION DES MEMBRES DE LA CELLULE DE GESTION DES MARCHÉS PUBLICS « C.G.M.P. » AU SEIN DU MINISTÈRE DE L’INTÉRIEUR.
+
+Le Ministre de l’Intérieur,
+
+Vu la Constitution de la République du BURUNDI;
+
+Vu la loi n°1/01 du 04 février 2008 portant code des Mar-chés Publics;
+
+Vu le Décret loi n°100/123 du 11 juillet 2008 portant création, Organisation et Fonctionnement des Cellules de Gestion des Marchés Publics;
+
+Vu le Décret n°100/267 du 07 novembre 2011 portant Nomination des Membres du Gouvernement de la République du Burundi;
+
+Vu le Décret n°100/325 du 27 décembre 2011 portant structure, fonctionnement et Mission du Gouverne-ment de la République du Burundi;
+
+Ordonne
