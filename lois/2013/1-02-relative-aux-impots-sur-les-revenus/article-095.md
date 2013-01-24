@@ -1,0 +1,5 @@
+# Article 95
+
+Toute personne assujettie à l’impôt sur les bénéfices des sociétés doit préparer une déclaration annuelle sous la forme spécifiée par le Commissaire général et la soumettre à l’Administration fiscale au plus tard le dernier jour du troisième (3ème) mois de l’exercice fiscal suivant, accompagnée des documents visés aux articles 29 et 30 de la loi relative aux procédu-res fiscales. Toutefois, les personnes assujetties à l’impôt sur les bénéfices des sociétés dont le chiffre d’affaires annuel dépasse le seuil fixé par une Ordonnance du Ministre doivent faire certifier leur déclaration et les annexes par les professionnels agréés par l’Ordre des Profes-sionnels Comptables conformément à la loi.
+
+Le Commissaire général peut solliciter auprès de l’Ordre des Professionnels Comptables le retrait de l’agrément en cas de mauvaise conduite ou de perte de confiance du professionnel. La demande du Commis-saire général doit être motivée. L’Administration fiscale a le droit de refuser la certification des déclarations par le professionnel déféré jusqu’à la décision de l’Ordre des Professionnels Comptables.

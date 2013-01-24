@@ -1,0 +1,3 @@
+# Article 82
+
+Sont exonérées de l’impôt sur le revenu les plus-values réalisées lors de la cession à titre onéreux des biens immeubles, parties de biens immeubles ou de droits y relatifs qui constituent la résidence principale du cédant pendant au moins trois (3) ans sur une période de cinq (5) ans s’achevant à la date de la ces-sion, que ce soit de manière continue ou discontinue. L’exonération visée à l’alinéa 1 peut être accordée à nouveau après l’écoulement d’une période de dix (10) ans à partir de la date de son dernier octroi. Elle s’appli-que également à tout bien immeuble ou droit y relatif qui constitue l’unique propriété du cédant pendant une période de cinq (5) ans s’achevant à la date de la ces-sion.

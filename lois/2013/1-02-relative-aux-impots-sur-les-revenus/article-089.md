@@ -1,0 +1,3 @@
+# Article 89
+
+Le revenu imposable des personnes assu-jetties à l’impôt sur les bénéfices des sociétés est déter-miné selon les règles applicables pour la détermination des bénéfices d’affaires des personnes physiques. Par dérogation à la disposition de l’alinéa 1, le revenu imposable des personnes assujetties à l’impôt sur les bénéfices des sociétés comprend en outre les revenus du capital et les revenus locatifs provenant d’un bien figurant à l’actif de l’entité soumise à l’impôt sur les bénéfices des sociétés, à l’exception des dividendes ou participations aux bénéfices reçus d’une société rési-dente par une autre société résidente.

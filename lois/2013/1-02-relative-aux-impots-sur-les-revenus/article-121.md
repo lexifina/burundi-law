@@ -1,0 +1,3 @@
+# Article 121
+
+Pendant l’exercice fiscal en cours, le contribuable verse au compte de l’Administration fis-cale au plus tard le 30 juin, le 30 septembre et le 31 décembre de l’année d’activité, des acomptes de vingt-cinq pour cent (25%) du montant de l’impôt établi au titre de l’exercice fiscal précédent. De cet acompte est déduite toute retenue à la source prélevée au cours du trimestre considéré conformément aux articles 111 et 113. Lorsque le montant de la retenue à la source prélevée au cours du trimestre s’avère supérieur au montant de l’acompte à payer, le montant de l’acompte est réputé nul. Toute retenue déduite des acomptes trimestriels provi-sionnels ne peut être soustraite du montant de l’impôt sur les bénéfices.
