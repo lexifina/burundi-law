@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Gestion des Marchés Publics (CGMP) au Ministère de la Solidarité Nationale, des Droits de la Personne Humaine et du Genre, les personnes dont les noms suivent : 1. NAHIMANA Victoire : Président; 2. SINDIBUTUME Célestin : Vice-président; 3. NDAYIMIRIJE William : Secrétaire; 4. NDAYISENGA Joseph : Membre; 5. NTAWEMBARIRA Ignace : Membre; 6. MANIRAKIZA Éric : Membre; 7. NZIRORERA Imelde : Membre; 8. CIMPAYE Estella : Membre; 9. NTAKIYIRUTA Salvator : Membre; 10.NININAHAZWE Godeliève : Membre; 11.HATUNGIMANA Chantal : Membre; 12 NDABISEMBEREZE Brigitte : Membre; 13.NGABONZIZA Jean Pierre : Membre; 14.NIMBONA Espérance : Membre; 15.NSABIMANA Charlotte : Membre.
