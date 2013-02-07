@@ -1,0 +1,3 @@
+# Article 4
+
+Le Conseil National de Sécurité a pour mis-sion de conseiller le Président de la République et le Gouvernement dans les domaines : 1. De l’élaboration de la politique du Gouvernement en matière de sécurité; 2. Du suivi et de l’évaluation de la situation du pays en matière de sécurité; 3. De l’élaboration des stratégies de défense nation-ale et de sécurité ainsi que du maintien de l’ordre en temps de crise ou de catastrophes naturelles; 4. De la définition du cadre d’activité de l’ensemble des services de sécurité; 5. De la coordination des services de sécurité; 6. De l’évaluation des moyens à allouer au secteur de la sécurité et de la défense.
