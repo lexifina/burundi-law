@@ -1,0 +1,3 @@
+# Article 3
+
+Les établissements d’enseignement supé-rieur et/ou universitaire privés sont des établissements reconnus comme tels par décision du Ministre ayant l’Enseignement Supérieur dans ses attributions sur avis de la Commission Nationale de l’Enseignement Supé-rieur au Burundi. Ils sont créés par des personnes physiques ou morales conformément aux dispositions du présent Décret et exercent leurs activités sous le contrôle du Ministre ayant l’Enseignement Supérieur dans ses attributions, sans préjudice de celui effectué par d’autres services compétents de l’État, chacun en ce qui le concerne.

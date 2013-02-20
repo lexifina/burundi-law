@@ -1,0 +1,3 @@
+# Article 79
+
+Quiconque dirige un établissement d’enseignement supérieur et/ou universitaire privé sans avoir obtenu l’autorisation d’ouverture ou qui le maintient ouvert ou continue à le diriger après qu’il ait été prononcée sa fermeture provisoire ou définitive, ferme un établissement, des parcours de formation avant que les étudiants aient pu achever leurs cursus dans les délais réglementaires ou ouvre des parcours de formation et délivre des Diplômes, Attestations ou Certificats sans avoir obtenu l’autorisation d’ouverture et l’agrément s’expose aux peines prévues à l’article 116 de la Loi n°1/22 du 30 décembre 2011 portant Réor-ganisation de l’Enseignement Supérieur au Burundi. Il en va de même pour le récidiviste.
