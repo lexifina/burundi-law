@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés membres de la cellule de Ges-tion des Marchés Publics à l’Autorité de Régulation de la Filière Café du Burundi : 1. Monsieur NDAYIRUKIYE Diomède : Conseiller au Cabinet du Ministère de l’Agriculture et de l’Élevage 2. Monsieur BUCUMI Marius : Directeur Technique 3. Monsieur NIZIGIYIMANA Nicodème : Directeur Administratif et Financier 4. Monsieur NTIRUHWAMA Simon : Chef de service Finance et Comptabilité 5. Monsieur NDIKUMANA Jérémie : Chef de Service Économique et Promotion 6. Madame NINEZA Joselyne : Chef de Service Information Statistique et Agro-économique 7. Monsieur BARANYIZIGIYE Thierry : Chef de Service Administration et Affaires Juridiques
