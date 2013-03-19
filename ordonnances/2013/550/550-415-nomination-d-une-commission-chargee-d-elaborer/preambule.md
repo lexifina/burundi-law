@@ -1,0 +1,15 @@
+# Ordonnance ministérielle n°550/415 du 19 mars 2013
+
+PORTANT NOMINATION D’UNE COMMISSION CHARGÉE D’ÉLABORER LES TERMES DE RÉFÉRENCE ET L’AVANT PROJET DE LOI PORTANT RÉVISION DU STATUT DES MAGISTRATS.
+
+Le Ministre de la Justice et Garde des Sceaux,
+
+Vu la Constitution de la République du Burundi;
+
+Vu la Loi n°1/08 du 17 mars 2005 portant Code de l’Organisation et de la Compétence Judiciaires;
+
+Vu la Loi n°1/001 du 29 février 2000 portant Réforme du Statut des Magistrats telle que modifiée à ce jour;
+
+Vu la Loi n°1/ 07 du 25 février 2005 régissant la Cour Suprême;
+
+Ordonne
