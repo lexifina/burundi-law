@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Gestion des Marchés Publics à l’École Normale Supérieure : 1. Dr Janvière NDIRAHISHA : Personne Responsa-ble des Marchés Publics à l’ENS; 2. Monsieur SWEDI Djuma : Président de la Cellule de Passation des Marchés Publics à l’ENS; 3. Monsieur IRAKIZA Évode : Membre; 4. Monsieur NDOVORI Rémégie : Membre; 5. Madame KABURA Cédécias : Membre; 6. Dr. Ir. NDIHOKUBWAYO Athanase : Membre; 7. Dr BANGIRINAMA Frédéric : Membre; 8. Monsieur CIZA Léonard : Membre; 9. Mademoiselle NISHIMWE Odile : Membre; 10.Monsieur BISABWIMANA Antoine : Membre; 11.Monsieur NDUWIMANA Donatien : Membre; 12.Monsieur HAVYARIMANA Vincent : Membre; 13.Monsieur NSHEMEZIMANA Béatrice : Membre.
