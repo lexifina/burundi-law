@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Commission technique chargée de comparer le contenu des pro-grammes de l’Institut Supérieur des Technologies IST et de l’Institut Technique Supérieur ITS : 1. Monsieur NIZIGIYIMANA Frédéric, Conseiller au Bureau de la Planification et des Statistiques de l’Éducation : Président; 2. Monsieur NSAVYIMANA Louis, Conseiller au Cabinet chargé de la Science et la Technologie : Secrétaire; 3. Madame TUYISHEMEZE Floride, Conseillère au Cabinet chargé de la Communication : Membre; 4. Monsieur KAMANA Djuma, Conseiller à la Direc-tion Général de l’Enseignement Supérieur et Post-Secondaire Professionnel, Informaticien : Membre.
