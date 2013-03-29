@@ -1,0 +1,3 @@
+# Article 5
+
+Toutes les dispositions antérieures contrai-res à la présente ordonnance sont abrogées.
