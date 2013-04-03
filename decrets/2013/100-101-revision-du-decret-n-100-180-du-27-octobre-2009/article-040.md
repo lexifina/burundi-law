@@ -1,0 +1,3 @@
+# Article 40
+
+A l’entrée en fonction, le Chef de Mission Diplomatique signe, devant le Ministre ayant en charge les Relations Extérieures et la Coopération Internatio-nale, un Acte d’Engagement où il est mentionné une série de mesures de redevabilité envers l’État. Sous l’autorité du Ministre ayant en charge les Rela-tions Extérieures et de la Coopération Internationale, le Chef de Mission Diplomatique est chargé de l’exécu-tion dans le pays accréditaire, de la politique extérieure du Burundi. Il représente le Président de la République et le Gouver-nement, négocie au nom de l’État et assure la protec-tion des intérêts de celui-ci et de ses ressortissants.

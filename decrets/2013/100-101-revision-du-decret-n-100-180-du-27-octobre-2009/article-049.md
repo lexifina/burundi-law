@@ -1,0 +1,3 @@
+# Article 49
+
+Au terme de ses fonctions respectives au service extérieur, le personnel est réaffecté à l’Adminis-tration Centrale du Ministère des Relations Extérieures et de la Coopération Internationale pour les fonction-naires de la carrière diplomatique ou aux Ministères d’origine pour les autres cadres administratifs en déta-chement. Le dernier aspect concerne aussi le person-nel en provenance du secteur privé. Néanmoins, selon les postes disponibles et sur leur demande, les fonc-tionnaires provenant des ministères techniques ou du secteur privé peuvent réintégrer le Ministère des Rela-tions Extérieures et de la Coopération Internationale.
