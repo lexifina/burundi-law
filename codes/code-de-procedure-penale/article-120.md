@@ -1,0 +1,3 @@
+# Article 120
+
+Aussi longtemps qu’il n’a pas saisi la juridiction de jugement, l’Officier du Ministère Public peut accorder à l’inculpé mainlevée de la détention préventive et ordonner la restitution du cautionnement. Il peut aussi lui accorder la mise en liberté pro-visoire, dans les mêmes conditions et sous les mêmes modalités que le juge peut lui-même le faire. Dans ce cas la décision du Ministère Public cesse ses effets avec ceux de l’ordon-nance du juge qui autorisait ou prorogeait la détention préventive, sauf nouvelle ordonnance de celui-ci. Il peut de même retirer à l’inculpé le bénéfice de la liberté provisoire qu’il lui avait accordée si des circonstances nouvelles et graves rendent cette mesure nécessaire.

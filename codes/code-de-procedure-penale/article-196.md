@@ -1,0 +1,3 @@
+# Article 196
+
+La personne qui, agissant en vertu d’une obligation légale ou de sa propre initiative, a porté les faits poursuivis à la connaissance de la justice, est reçue en témoignage. Celui dont la dénonciation est récompensée pécuniairement par la loi, peut aussi être entendu en témoignage.

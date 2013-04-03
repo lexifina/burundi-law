@@ -1,0 +1,5 @@
+# Article 260
+
+Lorsque l’opposition émane du pré-venu et qu’elle est reçue, le jugement par défaut est considéré comme non avenu et le juge statue à nouveau sur l’ensemble de l’affaire. Lorsqu’elle émane de la personne civilement responsable ou de la partie civile, l’opposition reçue ne met le jugement à néant que dans la mesure où il statue à l’égard de ces parties. Dans tous les cas, les frais et dépens causés par l’opposition, y compris le coût de l’expédition et de la signification du jugement par défaut, sont laissés à charge de l’opposant lorsque le défaut lui est imputable. L’opposition faite à un jugement par défaut interrompt la prescription de la peine et consti-tue le point de départ d’une nouvelle prescrip-tion de l’action publique.
+
+Section 2 De l’appel

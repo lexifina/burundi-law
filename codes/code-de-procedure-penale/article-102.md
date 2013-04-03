@@ -1,0 +1,3 @@
+# Article 102
+
+Les présidents des Cours d’appel et les présidents des Tribunaux de Grande Ins-tance peuvent, après telles enquêtes et épreuves qu’ils déterminent et de l’avis conforme du Ministère Public, revêtir certaines personnes de la qualité d’interprète ou de traducteur juré pour remplir ces fonctions d’une façon constante auprès des juridictions ou des parquets de leur ressort. Ces personnes ne sont revêtues de cette qualité qu’après avoir prêté par écrit devant le magistrat qui les nomme, le serment de remplir fidèlement les devoirs de leur charge et de garder la confi-dentialité. Ce serment, une fois prêté, dispense les inter-prètes et les traducteurs jurés de prêter le ser-ment d’usage chaque fois qu’ils sont appelés à remplir leurs fonctions.

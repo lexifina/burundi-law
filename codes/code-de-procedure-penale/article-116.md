@@ -1,0 +1,3 @@
+# Article 116
+
+Dans tous les cas où la mise en détention est autorisée ou prorogée pour satis-faire aux conditions de l’article 110 alinéa 2, le Juge peut, si l’inculpé le demande, ordonner qu’il soit néanmoins mis en liberté provisoire, à la condition de déposer entre les mains du Gref-fier, à titre de cautionnement, une somme d’argent. Ce cautionnement garantit la représentation de l’inculpé à tous les actes de la procédure et l’exé-cution par lui des peines privatives de liberté aussitôt qu’il en est requis, le cas échéant, la réparation des dommages causés par l’infrac-tion, le paiement des amendes et des frais de jus-tice.
