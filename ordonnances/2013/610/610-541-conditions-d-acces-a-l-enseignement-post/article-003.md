@@ -1,0 +1,3 @@
+# Article 3
+
+La note obtenue à l’examen d’État en appli-cation de l’article 7 de la Loi n°1/22 du 30 décembre 2011 portant Réorganisation de l’Enseignement Supé-rieur au Burundi est sans préjudice à l’accès à l’Ensei-gnement Post-Secondaire Professionnel court ou long, public ou privé au Burundi. Toutefois, en fonction des places disponibles à ce niveau d’enseignement, les responsables des établisse-ments publics et privés d’accueil sont libres de fixer le nombre des étudiants à retenir en fonction des points obtenus à la fin des Humanités générales, Pédagogi-ques et Techniques en application de l’article 7 de la Loi précitée.
