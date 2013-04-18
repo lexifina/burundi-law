@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la commission technique chargée d’élaborer le projet de décret por-tant types de diplômes délivrés à l’issu des études uni-versitaires et post-secondaires professionnel au Burundi: 1. Prof. Joseph NDAYISABA, Professeur à l’Univer-sité du Burundi: Président; 2. NTABINDI Jean, Conseiller au Cabinet MESRS: Vice-Président; 3. Madame NAHIMANA Asha, Conseillère chargée de la Communication au MESRS: Secrétaire; 4. Monsieur KABWIGIRI Charles, Doyen de la FSEA, U.B: Membre; 5. Dr KABANYEGEYE Henri, Chef de Département FSA/ITS (FSI): Membre; 6. Monsieur NIYONGABO Salvator, Conseiller à la Présidence de la République, Bureau Stratégique: Membre; 7. Monsieur MANIRAMBONA Jean Bosco, Con-seiller juridique au MESRS: Membre.
