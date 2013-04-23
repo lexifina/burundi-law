@@ -1,0 +1,3 @@
+# Article 4
+
+De la traçabilité et du transport des minerais Les Minerais désignés doivent être transportés confor-mément aux normes de la chaîne de possession décri-tes dans le manuel de certification de la CIRGL. S’ils sont transportés hors des zones d’exploitations sous licence (possédant des permis d’exploitation), les colis doivent être accompagnés de documents d’enregistre-ments, d’étiquettes ou d’autres documents qui mon-trent la mine d’origine de ces minerais transportés et la traçabilité totale des minerais désignés du site d’exploi-tation au point d’exportation, y compris les étapes intermédiaires.

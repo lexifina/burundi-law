@@ -1,0 +1,3 @@
+# Article 11
+
+Bases de données et de suivi régional des minerais En conformité avec les normes et les procédures du manuel de certification de la Conférence Internatio-nale de la Région des Grands Lacs (CIRGL), les autori-tés chargées des mines au Burundi doivent créer une base de données des sites miniers et une base de don-nées des exportateurs. Elles peuvent également créer une base de données de suivi des minerais. Pour faciliter la fonction de suivi régional des minerais du Mécanisme Régional de Certification de la CIRGL, les contenus de la base de données des sites miniers, de la base de données des exportateurs, et de la base de données de suivi des minerais doivent être partagés dans leur intégralité sur une base régulière avec le Secrétariat de la CIRGL.

@@ -1,0 +1,3 @@
+# Article 12
+
+De l’inspection des sites miniers Les sites miniers produisant des minerais désignés doi-vent respecter les normes et procédures énoncées dans le Manuel de certification de la CIRGL et les docu-ments nationaux de référence issus du manuel de cer-tification de la CIRGL ainsi que les normes et les procédures de l’OCDE. Un agent autorisé du Gouvernement doit inspecter chaque site minier au Burundi au moins une fois par an, et vérifier que le site minier est en conformité avec les normes régionales sur les sites miniers et déterminer si le site est certifié ou non. Seuls les sites miniers certi-fiés sont autorisés à produire des minerais destinés à l’exportation certifiée.
