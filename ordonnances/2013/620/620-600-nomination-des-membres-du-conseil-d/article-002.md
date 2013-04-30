@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés membres de l’Assemblée Générale de la Fondation pour le Logement du person-nel de l’Enseignement: 1. Monsieur KARIKUMUTIMA Emmanuel; 2. Monsieur KIGALI Daniel; 3. Monsieur BARASOKOROZA Nestor; 4. Monsieur NINTERETSE Didier; 5. Monsieur BURIKUKIYE Herménégilde; 6. Madame HATUNGIMANA Gloriose; 7. Madame NTABARUSHIMANA Léa; 8. Monsieur MACUMI Évariste; 9. Madame NIZIGIYIMANA Frédiane; 10.Monsieur MIBURO Célestin; 11.Monsieur NTEZUKOBAGIRA Jean Marie; 12.Madame IRAMBONA Marie Thérèse; 13.Monsieur BISUMBAGUTIRA Dismas; 14.Monsieur BATUNGWANAYO Bernard; 15.Madame JISHO Laurence; 16.Monsieur NYAWAKIRA Gilbert; 17.Monsieur BANGURAMBONA Zacharie.
