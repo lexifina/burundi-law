@@ -1,0 +1,5 @@
+# Article 7 2
+
+La Commission a également pour mission de contribuer, par des études et des propositions, au développement d’un environnement juridique et institutionnel favorable au partenariat public/privé, essentiellement dans le domaine des infrastructures. Umurwi ufise kandi umurimo w’ugufasha mw’ishin-gwa ry’amategeko n’inzego vyorohereza Ugukorana kw’amashirahamwe ya Reta n’ay’abikorera ivyabo, ahanini mu bijanye n’ivyubatswe.
+
+La Commission peut être consultée sur les projets de tex-tes législatifs ou réglementaires relatifs aux infrastructu-res. Umurwi urashobora guhanuzwa ku vyerekeye inte-guro y’amabwirizwa canke amategeko ajanye n’ivyu-batswe. A cet effet, la Commission fournit des conseils indépen-dants sur les mesures d’amélioration, de modernisation et de réforme qui répondent à l’évolution des besoins en matière d’infrastructures. Kubera ivyo, Umurwi uratanga impanuro ataho wegamiye ku ngingo z’ugufata neza ivyubatswe, uku-roranisha ivyubatswe n’ibihe vya none n’ingingo zihindura itunganywa ry’ivyubatswe hisunzwe ingene ivyubatswe bija birakenerwa.
