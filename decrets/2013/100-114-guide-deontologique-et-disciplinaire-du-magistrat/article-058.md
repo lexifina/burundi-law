@@ -1,0 +1,3 @@
+# Article 58
+
+Le magistrat ne commente pas des affaires en cours dans les juridictions et les parquets ou celles dans lesquelles il est intervenu. Toutefois, le droit à l’information étant fondamental pour le citoyen, les juridictions doivent trouver des mécanismes de communication à travers les médias et d’autres canaux de communication autorisés sur des questions de procédure ou d’intérêt public, sans méconnaître l’obligation du secret de l’instruction pré-juridictionnelle ou du délibéré. Lorsqu’il est amené à s’exprimer, le magistrat doit avoir un sens de la mesure dans la communication. Il ne doit pas notamment donner l’impression de partialité ou de mise en cause de la présomption d’innocence ou de l’autorité de la chose jugée.

@@ -1,0 +1,3 @@
+# Article 10
+
+Le magistrat assure l’égalité des justicia-bles devant la loi. Il doit rendre une justice impartiale sans aucune considération de personne, d’intérêt, d’appartenance raciale, ethnique, politique, régionale, sexuelle, religieuse, sociale, économique, philosophi-que ou autre. Il ne doit faire état de la connaissance personnelle qu’il peut avoir d’une affaire. Il ne peut défendre ni verbalement, ni par écrit, même à titre de consultation bénévole, des causes autres que celles qui le concernent personnellement ou qui concernent directement les parents ou alliés jusqu’au deuxième degré.

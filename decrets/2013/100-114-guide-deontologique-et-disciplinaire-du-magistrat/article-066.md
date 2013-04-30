@@ -1,0 +1,3 @@
+# Article 66
+
+Le magistrat, chef de service, donne des directives en vue du bon fonctionnement du service. Lorsqu’il donne des directives, le chef tient compte des circonstances dans lesquelles elles doivent être mises en œuvre. Il est tenu de vérifier le suivi des directives données ainsi que l’accomplissement des missions de chacun avec compétence et respect de la déontologie. Il assure sa fonction de contrôle de manière régulière et efficace. Il le fait dans le but de garantir la bonne exécu-tion des tâches, de bien connaître ses collègues et ses collaborateurs et d’optimiser les prestations de ces der-niers. Il les informe sur ses constatations en la matière.

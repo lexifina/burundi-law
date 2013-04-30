@@ -1,0 +1,3 @@
+# Article 75
+
+Par dérogation aux dispositions de l’article 74, des autorisations individuelles peuvent être accor-dées au magistrat par le Président de la Cour suprême, s’il est du siège, et par le Procureur Général de la Répu-blique, s’il est du Ministère Public, pour exercer des fonctions ou des activités non judiciaires à condition que lesdites fonctions ou activités ne soient pas de nature à porter atteinte à la dignité ou à l’indépendance de la magistrature. Aucune autorisation n’est nécessaire pour se livrer à des activités agro-pastorales, scientifiques, littéraires, culturelles, touristiques ou artistiques.

@@ -1,0 +1,3 @@
+# Article 65
+
+Le chef hiérarchique traite ses collègues et ses collaborateurs d’une manière juste et équitable et veille au respect de leur dignité. Il leur accorde la confiance, leur porte tout l’intérêt requis, veille au respect de leurs droits et a pour eux les égards dus à des personnes dont il doit être solidaire dans l’accomplissement de la mission commune. Il contribue activement à prévenir, à détecter et à résoudre les conflits entre les personnes et les services et favorise un climat de travail harmonieux et construc-tif. Il vient également en aide, dans les limites de ses possi-bilités, aux collègues et aux collaborateurs confrontés à des difficultés d’ordre professionnel, social ou fami-lial qui ont des répercussions sur le travail.
