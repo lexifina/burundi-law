@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres du Comité Techni-que de la Composante 1 du PROSANUT: 1. Madame le Régisseur du PROSANUT; 2. Un représentant de la Cellule d’appuie à l’Ordon-nateur National (CELON); 3. Monsieur le Régisseur suppléant du PROSANUT; 4. Un conseiller de la Direction des Statistiques et Information Agricoles; 5. Monsieur le Comptable du PROSANUT; 6. Un représentant de l’IGEBU; 7. Un représentant du Ministère de la Santé Pub-lique et de la lutte contre le SIDA; 8. Un représentant de I’ISTEEBU; 9. Un représentant du PAIOSA; 10.Un représentant du PAM; 11.Un représentant de la FAO; 12.Un représentant de l’Ambassade des Pays Bas; 13.Un représentant de la Plate Forme Nationale de Prévention des Risques et Gestions des Catastrophes; 14.Un représentant de l’IFDC.
