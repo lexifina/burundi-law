@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres du Comité de pilo-tage du Programme pour la Sécurité Alimentaire et Nutritionnelle, PROSANUT en sigle: 1. Monsieur le Secrétaire Permanent au Ministère de l’Agriculture et de l’Élevage; 2. Madame la Conseillère Chargée du secteur Agri-culture et Élevage à la Deuxième Vice Prési-dence; 3. Monsieur le Secrétaire Permanent au Ministère de la Santé Publique et de la Lutte Contre le SIDA; 4. Monsieur le Directeur de la Cellule d’Appuie à l’Ordonnateur National; 5. Monsieur le Directeur Général de l’Agriculture; 6. Deux Représentants de l’entité attributaire de la subvention au niveau de la composante 2 et ses partenaires; 7. L’équipe d’assistant technique du PROSANUT; 8. Madame le Régisseur du PROSANUT.
