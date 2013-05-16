@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés membres de ce Comité: 1. Monsieur Rémy NDAYISHIMIYE, Conseiller au Cabinet du Ministère de l’Eau, de l’Environne-ment, de l’Aménagement du Territoire et de l’Urbanisme, Président; 2. Monsieur Willy NDAYIKEZA, Conseiller au Cabi-net du Ministère de l’Eau, de l’Environnement, de l’Aménagement du Territoire et de l’Urbanisme, Vice-Président; 3. Madame Inès NITEKA; Conseiller au Cabinet du Ministère de l’Eau, de l’Environnement, de l’Aménagement du Territoire et de l’Urbanisme, Secrétaire; 4. Madame Fabiola NSHIMIRIMANA, Conseiller à la Direction de l’Assainissement et de Contrôle de la qualité de l’Eau, Membre; 5. Monsieur Anatole BUTOYI, Conseiller à la Direc-tion de l’Environnement, Membre.
