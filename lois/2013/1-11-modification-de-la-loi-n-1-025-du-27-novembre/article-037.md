@@ -1,0 +1,3 @@
+# Article 37
+
+L’exploitation d’une station de radio, de télévision ou d’une agence de presse est soumise à une autorisation préalable du Conseil National de la Com-munication.
