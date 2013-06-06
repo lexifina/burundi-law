@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Membres du Comité National de Dialogue Social, « CNDS »: 1. Madame Marie Rosette NIZIGIYIMANA; 2. Monsieur Philippe NUWAKAMWE; 3. Madame Espérance HABONIMANA; 4. Monsieur Anatole NIYONKURU; 5. Monsieur Charles NDUWIMANA; 6. Madame Béatrice HAVUGINOTI; 7. Monsieur Lazare SINDAKIRA; 8. Monsieur Tharcisse GAHUNGU; 9. Madame Eulalie NIBIZI; 10.Madame Marie BUKURU; 11.Monsieur Jean NTUNGUMBURANYE; 12.Monsieur Pierre NIYOYANDEMYE; 13.Monsieur Mélance HAKIZIMANA; 14.Monsieur David DUSABE; 15.Monsieur Théodore KAMWENUBUSA; 16.Monsieur Gaspard NZISABIRA; 17.Monsieur Gabriel BUTOYI; 18.Monsieur Parfait NKERABAHIZI; 19.Monsieur Bernard SELEMANI; 20.Monsieur Laurent NKURIKIYE; 21.Monsieur Emmanuel NTAKIRUTIMANA.
