@@ -1,0 +1,5 @@
+# Article 3
+
+Le Directeur Général de l’Administration de l’Enseignement de Base et Secondaire Général et Péda-gogique; le Directeur Général des Ressources Humai-nes et le Directeur Général des Bureaux Pédagogiques sont chargés chacun en ce qui le concerne de l’exécu-tion de la présente ordonnance qui entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 07/06/2013, Dr Rose GAHIRU (sé).
