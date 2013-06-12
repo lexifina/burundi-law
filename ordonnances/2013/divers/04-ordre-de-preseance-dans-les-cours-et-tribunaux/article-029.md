@@ -1,0 +1,3 @@
+# Article 29
+
+En cas d’infraction flagrante au sens de l’Article 21 du Code de Procédure Pénale, le prévenu comparait endéans trente six heures devant l’Officier du Ministère Public. Celui-ci à qui le dossier est transmis décerne immédiatement le mandat d’arrêt après la première audition de l’inculpé si les conditions de l’Article 110 du CPP sont réunies. L’Officier du Ministère Public procède à tous devoirs utiles en vue de déférer l’inculpé devant la juridiction compétente. Outre les pièces à conviction, il veille à ce que les témoins éventuels comparaissent en même temps que le prévenu ou l’accusé.

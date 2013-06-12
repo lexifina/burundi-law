@@ -1,0 +1,3 @@
+# Article 30
+
+L’Officier du Ministère Public informe l’inculpé qu’il a le droit de se choisir un Avocat. Il est fait mention de cette formalité dans le procès-verbal d’audition contresigné avec l’inculpé. Toutefois, l’assistance d’un défenseur est obligatoire pour les mineurs, lorsque le prévenu est atteint d’une déficience mentale ou quand l’infraction pour laquelle il est poursuivi est punie d’au moins vingt ans de servitude pénale. En tout état de cause, l’instruction devant l’Officier du Ministère Public ne peut dépasser quinze jours. Ce délai est renouvelable une fois par le juge. Une fois ce délai dépassé, l’instruction se poursuit suivant les règles de la procédure pénale ordinaire.
