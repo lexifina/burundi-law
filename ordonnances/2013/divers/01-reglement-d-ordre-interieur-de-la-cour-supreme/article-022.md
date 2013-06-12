@@ -1,0 +1,3 @@
+# Article 22
+
+Le Secrétaire Général a notamment les attributions suivantes: - assurer le suivi des activités des différentes composantes de la Cour Suprême et les relations de la Cour Suprême avec les autres institutions de l’Etat; - réparer et présenter à la signature du Président ou du Procureur Général, des actes administratifs qui sont de leurs compétences exclusives; - Exécuter les décisions du bureau et de l’Assemblée Générale de la Cour; - Diriger et surveiller les divers services du Secrétariat Général ainsi que la coordination de leur action; - Elaborer les rapports d’activités de la Cour et du Parquet Général.
