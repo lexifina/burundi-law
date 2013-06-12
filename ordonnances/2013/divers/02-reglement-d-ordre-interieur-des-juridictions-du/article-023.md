@@ -1,0 +1,3 @@
+# Article 23
+
+Il est tenu par semaine, à jours fixes et au siège ordinaire de chaque juridiction, au moins deux audiences publiques. Des audiences supplémentaires peuvent être fixées par le Président de la juridiction, soit pour siéger en dehors du siège ordinaire, soit pour éviter tout retard dans l’examen des affaires, notamment si le jour d’audience ordinaire se trouve férié, et chômé, soit pour les audiences de conciliation ou de confirmation des détentions. Les Tribunaux tiennent également audience solennelle et publique à l’occasion de la prestation de serment de nouveaux magistrats nouvellement affectés. Le serment doit être écrit.

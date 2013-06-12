@@ -1,0 +1,5 @@
+# Article 65
+
+Les rapports renseignent sous forme de tableau sur les affaires judiciaires suivant leur nature et leur degré (le nombre des affaires inscrites pendant les mois, des affaires jugées avant faire droit ou définitivement biffées pendant le mois, les affaires restantes à la fin du mois, des affaires non exécutées au début du mois, des affaires exécutées pendant le mois et des affaires non exécutées à la fin du mois ),les recettes judiciaires et les dommages-intérêts taxés, perçus et versés ou remis (consignation, frais de justice, amendes, droit proportionnel, acte de notoriété et autres recettes), le rendement de chaque magistrat (le nombre de dossiers détenus par lui au début du mois pour la rédaction de jugement ou arrêt, de dossiers lui remis pendant le mois, de jugement ou arrêts rédigés pendant le mois et leur numéro d’ordre, de dossiers restants à la fin du mois, le nombre de fois qu’il a siégé en audience publique et en audience à huis clos, participé à des réunions de service, les devoirs lui confiés, et exécutés, toute autre mission ou initiative accomplie.
+
+Les rapports doivent faire objet de commentaires dans une réunion de service.
