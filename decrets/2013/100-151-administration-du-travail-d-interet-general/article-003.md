@@ -1,0 +1,3 @@
+# Article 3
+
+Le travail d’intérêt général doit être d’un intérêt social pour la communauté ou la collectivité. Il doit être adapté au prévenu et favoriser son insertion sociale et/ou professionnelle.
