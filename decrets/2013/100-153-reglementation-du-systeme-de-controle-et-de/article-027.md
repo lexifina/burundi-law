@@ -1,0 +1,3 @@
+# Article 27
+
+Dans le cadre de sa mission de lutte contre la fraude et de protéger les intérêts de l’Etat et ceux des opérateurs ayant la licence, l’ARCT ou son mandataire installe chez chaque opérateur un système permettant la détection de trafic frauduleux. A cet effet, l’opérateur facilite la mise en œuvre dudit système, et se conforme à l’intégralité des consignes et requêtes qui sont formulées par l’ARCT permettant le bon fonctionnement de ce système anti-fraude, et doit mettre à la disposition de l’ARCT un MIC SS7 avec 200 DIDs non séquentiels. L’ARCT peut à tout moment demander à l’opérateur de lui fournir des DIDs en remplacement de ceux attri-bués précédemment tant en identification qu’en nom-bre.
