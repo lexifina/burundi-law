@@ -1,0 +1,3 @@
+# Article 51 2
+
+Le non respect par les usagers, du règlement intérieur de l’abattoir ou le refus de se plier aux exigences du service peut entrainer le retrait de la carte d’usager et l’interdiction de l’accès à l’abattoir. Le retrait de la carte et l’interdiction d’accès sont temporaires et ils peuvent être définitifs en cas de récidive. Abakoresha amacuniro batubahirije amategeko ntunga-nyabikorwa y’amacuniro canke ukutemera kwisunga ibitegerejwe ku kazi birashobora gutuma abo bahako-rera bakwa ikarata y’ukuhakorera kandi bakabuzwa kwinjira mu macuniro. Ukwakwa ikarata n’ukubuzwa kwinjira mu macuniro ni ivy’imfatakibanza, ariko biras-hobora kuba burundu mu gihe babaye intahaha.

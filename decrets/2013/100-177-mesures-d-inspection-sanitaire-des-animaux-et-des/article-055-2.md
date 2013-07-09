@@ -1,0 +1,3 @@
+# Article 55 2
+
+Les caractéristiques techniques ainsi que les condi-tions sanitaires et hygiéniques auxquelles doivent satisfaire les moyens de transport des animaux vivants, de la viande et des denrées animales ou d’ori-gine animale doivent répondre aux dispositions régle-mentaires relatives au transport des animaux et des denrées périssables. Ibiranga ubuhinga hamwe n’ibisabwa bijanye n’amagara n’isuku bitegerezwa kwubahirizwa mu kwunguruza ibikoko bikibona, inyama n’ibifungurwa bikomoka mu bikoko canke ibibihingurwamwo bitegerezwa kwisunga amategeko yerekeye ukwunguruza ibikoko hamwe n’ibifungurwa bitabikika umwanya munini.

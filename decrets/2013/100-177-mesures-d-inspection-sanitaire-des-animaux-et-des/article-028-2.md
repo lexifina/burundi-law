@@ -1,0 +1,3 @@
+# Article 28 2
+
+La viande présentée sous emballage, réfrigérée ou congelée est soumise à un examen de salubrité au moment de son débarquement au lieu de consomma-tion. Les transporteurs sont tenus de déclarer à l’auto-rité vétérinaire compétente, tout arrivage dans les vingt-quatre-heures qui précèdent l’arrivée ou en cas de force majeure, immédiatement après l’arrivée. Inyama zitekeye, zikanyishijwe canke zitimbishijwe zira-pimwa ko zikwije ibisabwa bijanye n’isuku mu gihe zishikanywe aho zipakururirwa ngo zikoreshwe. Abun-guruza inyama bategerezwa kumenyesha umutegetsi ajejwe amagara y’ibikoko abifitiye ububasha imbere y’amasaha mirongo ibiri n’ane ko hari inyama zihava zishika canke mu gihe atabimenyesheje kubera imvo zitamuvuyeko akabimenyesha ubwo nyene zigishika.

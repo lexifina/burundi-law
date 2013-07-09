@@ -1,0 +1,3 @@
+# Article 14 2
+
+Lors de l’inspection, l’agent procède, avant l’abattage, à la vérification des documents sanitaires de l’animal, au relevé de son signalement et à l’examen clinique des animaux suspects ou malades. L’inspection avant l’abattage ne doit être pratiquée que dans des condi-tions convenables d’éclairage, à la lumière du jour ou sous un éclairage artificiel adéquat. Mu gihe c’ugusuzuma, umukozi abijejwe, imbere yuko ibikoko bibagwa, arahinyuza inzandiko zerekana uko amagara y’igikoko yifashe, ivyamenyeshejwe ku gikoko, akongera agasuzuma ibikoko biteye amakenga canke bigwaye. Isuzuma rigirwa imbere yuko igikoko kibagwa ritegerezwa kugirwa gusa habona neza, ku murango canke ku muco w’amatara ukwiye.

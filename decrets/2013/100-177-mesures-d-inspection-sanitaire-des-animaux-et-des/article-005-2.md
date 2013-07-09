@@ -1,0 +1,3 @@
+# Article 5 2
+
+Les animaux, les produits d’origine animale soumis à l’inspection sanitaire vétérinaire et ne répondant ni à des normes sanitaires admises, ni à la qualité mar-chande requise sont saisies, dénaturées, détruites, déclassées ou refoulées, suivant le cas. Ibikoko, ibifungurwa bikomoka ku bikoko vyasuzumwe n’abaganga bajejwe amagara y’ibikoko bidakwije ibisa-bwa n’amategeko ajanye n’ivyerekeye amagara canke bidakwije ibisabwa kugira bigurishwe birafatwa, bigati-turwa, bigakurwa mu mugwi w’ibifungurwa canke biki-gizwa kure bivanye n’uko abaganga bajejwe amagara y’ibikoko basanze bimeze.

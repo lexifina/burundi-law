@@ -1,0 +1,3 @@
+# Article 44 2
+
+Un local de dimensions suffisantes avec lavabo muni de ses accessoires élémentaires tels le savon et les ser-viettes, est réservé à l’inspection sanitaire vétérinaire pour servir de bureau et de laboratoire. Le matériel technique nécessaire à l’inspection sanitaire complète de la viande et des produits de laboratoire est fourni par l’établissement. Inyubakwa ifise uburinganire bukwiye n’aho bogereza ibintu, harimwo n’ivyo bijana vya nkenerwa nk’isabuni, udutambara two kwumutsa n’ibindi irategekanirizwa ugusuzuma amagara y’ibikoko bigirwa n’umuganga w’ibikoko kugira ikoreshwe nk’ibiro n’isuzumiro. Ibiko-resho bijanye n’ubuhinga bikenewe mu gusuzuma neza inyama n’imiti yo mw’isuzumiro bitangwa n’amacuniro.

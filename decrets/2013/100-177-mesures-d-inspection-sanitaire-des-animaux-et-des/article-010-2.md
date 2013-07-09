@@ -1,0 +1,3 @@
+# Article 10 2
+
+L’abattage aux fins de boucherie des animaux domes-tiques des espèces bovine, caprine, ovine, porcine, lapine et des volailles est autorisé. Cependant, des mesures restrictives peuvent être prises par le Minis-tre ayant l’élevage dans ses attributions si la nécessité de protéger une espèce menacée se fait sentir. Ukubaga ibitungwa mu ntumbero y’ukudandaza inyama z’inka, iz’impene, iz’intama, iz’ingurube, iz’inkwavu n’iz’ivyororwa biguruka birarekuwe. Ariko, ingingo zibuza ibintu bimwebimwe bijanye n’uko kubaga ibitun-gwa zirashobora gufatwa n’Umushikiranganji ajejwe ubworozi iyo bikenewe kugira hakingirwe ubwoko bw’ibikoko bugeramiwe.
