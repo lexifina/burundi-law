@@ -1,0 +1,25 @@
+# Ordonnance ministérielle n°620/1005 du 17 juillet 2013
+
+PORTANT OUVERTURE D’UNE NOUVELLE SECTION AU LYCÉE GAËTAN DE NYABIKERE
+
+La Ministre de l’Enseignement de Base et Secondaire, de l’Enseignement des Métiers, de la Formation Professionnelle et de l’Alphabétisation,
+
+Vu la Constitution de la République du Burundi;
+
+Vu le Décret-loi n°1/025 du 13 juillet 1989 portant réor-ganisation de l’Enseignement au Burundi tel que modi-fié en ce jour;
+
+Vu le Décret n°100/121 du 30 novembre 2005 portant réorganisation du Ministère de l’Éducation Nationale et de la Culture;
+
+Vu le Décret n°100/08 du 13 septembre 2010 portant structure, fonctionnement et missions du Gouverne-ment de la République du Burundi;
+
+Vu le Décret n°100/125 du 21 avril 2011 portant Organi-sation du Ministère de l’Enseignement de Base et Secondaire, de l’Enseignement des Métiers, de la For-mation Professionnelle et de l’Alphabétisation;
+
+Vu le Décret n°100/23 du 31 janvier 2013 portant nomi-nation de quelques membres du Gouvernement;
+
+Vu l’Ordonnance Ministérielle n°610/747 du 17 juillet 2008 portant organisation des structures de l’enseigne-ment technique;
+
+Vu la convention scolaire du 28 février 1990 entre l’État du Burundi et l’Église Catholique du Burundi;
+
+Sur proposition de la Commission Mixte Permanente État du Burundi/Église Catholique;
+
+Ordonne
