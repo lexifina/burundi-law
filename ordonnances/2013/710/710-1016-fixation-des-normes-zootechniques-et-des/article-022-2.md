@@ -1,0 +1,3 @@
+# Article 22 2
+
+A leur arrivée au Burundi, les embryons de l’espèce bovine doivent être accompagnés d’un certificat sani-taire établi et contresigné par un vétérinaire officiel du pays d’origine et attestant que le pays d’origine, les embryons et les femelles donneuses remplissent les conditions prévues aux articles 23 à 25. Rushitse mu Burundi, urugirugi rw’inka ruba rwashi-zwe mu vyuma bikanyisha ruba ruri kumwe n’iseredi-fika yerekeye amagara y’ibitungwa igirwa kandi igashirwako umukono n’umuganga w’ibitungwa wa Reta wo mu gihugu urugirugi rwamukamwo rwemeza ko igihugu urugirugi rwamukamwo, urugirugi n’imvyeyi zirutanga bikwije ibisabwa bitegekanijwe mu ngingo ziva ku ya 23 gushika ku ya 25.

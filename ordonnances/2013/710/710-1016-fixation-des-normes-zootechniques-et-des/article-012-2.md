@@ -1,0 +1,3 @@
+# Article 12 2
+
+A leur arrivée au Burundi, les semences congelées de l’espèce bovine sont accompagnées du certificat sani-taire établi et contresigné par un vétérinaire officiel du pays d’origine et attestant que le pays d’origine, les semences et les taureaux donneurs remplissent les conditions prévues aux articles 13 à 21. Zishitse mu Burundi, imbuto z’inka ziba zashizwe mu vyuma bikanyisha ziba ziri kumwe n’iseredifika yere-keye amagara y’ibitungwa igirwa kandi igashirwako umukono n’umuganga w’ibitungwa wa Reta wo mu gihugu imbuto zamukamwo rwemeza ko igihugu imbuto zamukamwo, imbuto n’impfizi zizitanga bikwije ibisabwa bitegekanijwe mu ngingo ziva ku ya 13 gushika ku ya 21.
