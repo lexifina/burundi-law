@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Membres de la Cellule de Gestion des Marchés Publics au Ministère du Com-merce, de l’Industrie, des Postes et du Tourisme, les personnes ci-après: 1. Monsieur khamisi HASANGIRABAKIZE; 2. Madame Eulphride HAGURUKA; 3. Monsieur Célestin NTUNGUKA; 4. Madame Charlotte BAGENZI; 5. Monsieur Jean-Marie NDIKUMAGENGE; 6. Monsieur Édouard SINDAYIHEBURA; 7. Monsieur Jean-Marie Vianney NIZIGAMA; 8. Madame Joadane NCUTI; 9. Madame Scolastique BUKURU; 10.Monsieur Emmanuel BAZIKAMWE; 11.Madame Espérance MANIRAKIZA; 12.Monsieur Gérard MANDEVU; 13.Madame Ange Evelyne IRANKUNDA; 14.Monsieur Deo NIYUNGEKO; 15.Monsieur Seth GASHAKA; 16.Mademoiselle Gentille GAHINYUZA.
