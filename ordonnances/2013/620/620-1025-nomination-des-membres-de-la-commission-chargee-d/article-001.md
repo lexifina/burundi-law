@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Commission chargée d’orientation Scolaire après le collège pour l’édition 2013: 1. Monsieur NCAMUMIKANI Tharcisse: Président; 2. Monsieur NDIZEYE Dieudonné: Vice-Président pour l’enseignement secondaire général et péda-gogique; 3. Monsieur NDEREYIMANA Serges: Vice-Prési-dent pour l’enseignement technique; 4. Monsieur MANENGERI Patrice: Administrateur de la base des données; 5. Monsieur KARITUNZE Ildefonse: Secrétaire; 6. Monsieur BUTOYI Richard: Membre; 7. Monsieur HABONIMANA Rémégie: Membre; 8. Madame CIMPAYE Jeanine: Membre; 9. Madame NYINAWUMUNTU Farida: Membre; 10.Madame NAHIMANA Bibiane: Membre; 11.Madame SHIHORI Rose: Membre; 12.Madame NIGARURA Louise: Membre; 13.Madame NICOBAHARAYE Judith: Membre.
