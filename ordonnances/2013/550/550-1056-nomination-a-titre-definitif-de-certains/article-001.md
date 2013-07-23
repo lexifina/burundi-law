@@ -1,0 +1,3 @@
+# Article 1
+
+Les Magistrats dont les noms suivent sont nommés à titre définitif à la date et au grade figurant au regard de leurs noms: Nom et Prénom Matricule Grade Date NIGARURA Jeanine 16870320(227.035) 14 NYANDWI François 14130876(222.606) 14 NIYONZIMA Claudette 15635891(224.834) 14 INEZA Dieudonné 16843442(226.995) 14 NTAKARUTIMANA Croëlle 15633669(224.832) 14 NDUWIMANA Fabiola 16842937(226.988) 14 NTIRANYIBAGIRA Daphrose 13897369(222.184) 14 HABONIMANA Ancille 16855667(226.091) 14 BAMBONEYEHO Bénigne 16183943(227.181) 14 NIYOKVVIZIGI RA Jeanne 16832631(227.474) 14 Article . Toutes dispositions contraires à la présente ordonnance sont abrogées.
