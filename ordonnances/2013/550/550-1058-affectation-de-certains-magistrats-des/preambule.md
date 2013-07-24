@@ -1,0 +1,17 @@
+# Ordonnance ministérielle n°550/1058 du 24 juillet 2013
+
+PORTANT AFFECTATION DE CERTAINS MAGISTRATS DES JURIDICTIONS SUPÉRIEURES
+
+Le Ministre de la Justice et Garde des Sceaux,
+
+Vu la Constitution de la République du Burundi;
+
+Vu la loi n°1/08 du 17 mars 2005 portant Code de l’Orga-nisation et de la Compétence judiciaires;
+
+Vu la loi n°1/001 du 29 février 2000 portant réforme du statut des Magistrats;
+
+Vu le Décret n°100/122 du 28 novembre 2005 portant organisation du Ministère de la justice;
+
+Vu les dossiers personnels et administratifs des intéressés;
+
+Ordonne
