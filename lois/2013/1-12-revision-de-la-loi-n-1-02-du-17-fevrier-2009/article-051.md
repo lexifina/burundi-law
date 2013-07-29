@@ -1,0 +1,3 @@
+# Article 51
+
+Tout assujetti dont le chiffre d’affaires n’atteint plus le seuil de taxation dénommé « seuil de taxation d’office » fixé par le Ministre ayant les finan-ces dans ses attributions pendant toute période consé-cutive de vingt quatre mois peut introduire une demande de radiation à partir du mois qui suit ladite période. Tout assujetti dont le chiffre d’affaires n’atteint plus le seuil de taxation d’office dénommé « seuil de taxation par option » fixé par le Ministre ayant les finances dans ses attributions en dessous duquel l’assujettissement par option n’est pas permis pendant toute période consécutive de vingt-quatre mois, doit introduire une demande de radiation dans les quinze jours qui suivent ladite période.

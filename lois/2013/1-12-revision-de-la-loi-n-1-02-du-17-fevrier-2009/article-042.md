@@ -1,0 +1,3 @@
+# Article 42
+
+Lorsque le paiement de la TVA intervient dans les trente jours qui suivent la date limite de paie-ment, il est appliqué une pénalité de 5% du montant dû. Lorsque le paiement de la TVA intervient après les trente jours mais avant les soixante jours qui suivent la date limite de paiement, il est appliqué une pénalité de 10% du montant dû. Lorsque le paiement de la TVA intervient après les soixante jours mais avant les quatre-vingt-dix jours qui suivent la date limite de paiement, il est appliqué une pénalité de 20% du montant dû. Lorsque le paiement de la TVA intervient après les qua-tre-vingt-dix jours qui suivent la date limite de paie-ment, il est appliqué une pénalité de 20% du montant dû, majorée de 1% par mois de retard sans excéder 30%.
