@@ -1,0 +1,3 @@
+# Article 16
+
+L’annulation de l’homologation d’un médi-cament est décidée par le Ministre ayant la santé publi-que dans ses attributions. Cette décision peut être notamment motivée lorsque: 1. l’homologation accordée l’avait été par des moy-ens frauduleux ou grâce à de fausses déclara-tions; 2. les conditions auxquelles a été consentie l’homologation n’ont pas été respectées; 3. la publicité effectuée après obtention de l’homologation s’est avérée mensongère; 4. le médicament met subitement en danger la santé des patients; 5. des faits nouveaux ont amené la Commission Technique d’Homologation à proposer l’annula-tion.

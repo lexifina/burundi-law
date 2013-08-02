@@ -1,0 +1,5 @@
+# Article 2 2
+
+Aux termes de cette ordonnance, on entend par: 1. Homologation, l’ensemble des processus par lesquels une spécialité pharmaceutique, un médi-cament générique et tout autre intrant pharma-ceutique obtient une Autorisation de Mise sur le Marché (AMM); 2. Homologation allégée ou accélérée, l’ensem-ble des processus par lequel une spécialité, un médicament générique et tout autre intrant phar-maceutique obtient une Autorisation de Mise sur le marché pendant une période relativement courte, sans passer par toutes les étapes habitu-elles pour des raisons de santé publique; 3. Spécialité pharmaceutique, tout médicament préparé à l’avance, présenté sous un condition-nement particulier et caractérisé par une dénom-ination spéciale; 4. Médicament générique, tout médicament ayant la composition qualitative et quantitative que le médicament d’origine (princeps) et ayant une disponibilité équivalente; 5. Renouvellement, le fait d’octroyer à un médica-ment l’Autorisation de Mise sur le Marché (AMM) actualisée après que la période précédente ait expiré.
+
+Chapitre II Des conditions d’homologation des médicaments
