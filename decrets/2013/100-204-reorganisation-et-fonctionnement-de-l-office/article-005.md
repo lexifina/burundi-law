@@ -1,0 +1,5 @@
+# Article 5
+
+L’Office National du Tourisme est notam-ment chargé de: 1. Assister le Gouvernement dans l’élaboration, la définition et la mise en œuvre des politiques et stratégies de développement du tourisme; 2. Définir et promouvoir les mesures de sauve-garde, de protection et de mise en valeur du pat-rimoine touristique national; 3. Développer et promouvoir la formation profes-sionnelle dans le secteur du tourisme en collabo-ration avec les autres services intéressés; 4. Élaborer et mettre en œuvre le plan marketing du tourisme; 5. Assurer le suivi de la gestion et de l’exploitation des équipements et infrastructures touristiques de l’État; 6. Réaliser des études prospectives et d’évaluation du tourisme, produire et diffuser les données sta-tistiques sur le tourisme; 7. Impulser un meilleur rendement des sites touris-tiques contigus ou se trouvant dans les aires pro-tégées gérées par l’INECN en collaboration avec celle-ci.
+
+Chapitre III De l’organisation administrative Section 1 Des Organes

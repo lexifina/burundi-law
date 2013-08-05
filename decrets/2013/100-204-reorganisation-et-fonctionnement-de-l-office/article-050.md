@@ -1,0 +1,3 @@
+# Article 50
+
+Les Commissaires aux comptes peuvent consulter sur place tous les documents et écritures comptables et demander des justifications sur les comptes de l’Office National du Tourisme. Avant la fin du trimestre suivant la clôture de l’exercice fiscal, ils dressent un rapport circonstancié sur les comptes de l’exercice écoulé et donnent leur avis sur la régularité des opérations et sur la qualité de la gestion. Ils font toute suggestion utile pour des améliorations ultérieures. Ce rapport est adressé aux Ministres ayant respective-ment le tourisme et les finances dans leurs attributions ainsi qu’au Directeur Général de l’Office National du Tourisme.
