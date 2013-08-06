@@ -1,0 +1,3 @@
+# Article 6
+
+Capacité opérationnelle d’un aéroport Dans un aéroport où se fait l’attribution de créneaux horaires, les autorités compétentes déterminent deux fois par an, selon des méthodes généralement recon-nues, la capacité disponible pour l’attribution de cré-neaux horaires, en coopération avec des représentants du contrôle du trafic aérien, des autorités aéroportuai-res, de l’administration des douanes et des autorités responsables en matière d’immigration, des transpor-teurs aériens qui utilisent l’aéroport et/ou de leurs orga-nisations représentatives, ainsi qu’avec le coordonnateur de l’aéroport.
