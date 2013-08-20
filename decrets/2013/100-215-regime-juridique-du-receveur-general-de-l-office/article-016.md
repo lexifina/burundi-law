@@ -1,0 +1,3 @@
+# Article 16
+
+Le Receveur général est tenu de procéder au nivellement à zéro de ses comptes de disponibilités ouverts dans les banques commerciales, au jour le jour ou mensuellement pour les comptes de rembourse-ment de crédits d’impôts vers la Banque de la Républi-que du Burundi, sous peine de sanctions administratives qui peuvent être infligées par le Minis-tre en charge des Finances. Il est tenu de niveler automatiquement à zéro ses comp-tes de recettes ouverts à la Banque de la République du Burundi, au jour le jour, ou mensuellement pour les comptes de remboursement des crédits d’impôts au profit du compte courant du trésor ouvert au nom du Comptable principal de l’État.
