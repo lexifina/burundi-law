@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nominées membres de la Cellule de Gestion des Marches Publics au Bureau Burundais de Normalisation et Contrôle de la Qualité, les personnes ci après: 1. Monsieur Damien NAKOBEDETSE; 2. Monsieur Désiré KARERWA; 3. Monsieur Célestin NTAHOMVUKIYE; 4. Monsieur Éric RURACENYEKA; 5. Monsieur Désiré RUDARAGI; 6. Monsieur Gervais NZINAHORA; 7. Monsieur Siméon MISIGARO; 8. Monsieur Frédéric HARIMENSHI; 9. Monsieur José Prosper NKURUNZIZA; 10.Monsieur Bernard NIZIGIYIMANA; 11.Madame Bernardine SINDAKIRA; 12.Madame Béatrice NKURUNZIZA; 13.Madame Élise KEZA; 14.Monsieur BUZOKORO J. Bosco; 15.Monsieur Édouard NZAMBIMANA; 16.Monsieur Etienne NIMPAGARITSE.
