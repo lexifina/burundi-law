@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés Deuxièmes Conseillers: - Pour l’Ambassade du Burundi à New Delhi: Monsieur Georges BERAHINO; - Pour l’Ambassade du Burundi à Addis-Abeba: Monsieur Faustin NDAYISHINGUJE - Pour l’Ambassade du Burundi à New York: Monsieur Delphin NDAYEMEYE; - Pour l’Ambassade du Burundi à Pékin: Monsieur Egide NIJIMBERE; - Pour l’Ambassade du Burundi à Tripoli: Madame Viola NTIMPIRANGEZA; - Pour l’Ambassade du Burundi à Oslo: Madame Thérèse NDIKUMANA; - Pour l’Ambassade du Burundi à Ottawa: Monsieur Emmanuel NIYONZIMA; - Pour l’Ambassade du Burundi à Nairobi: Monsieur Jean Baptiste CIZA; - Pour l’Ambassade du Burundi à Londres: Monsieur Jean Claude KANENE.
