@@ -1,0 +1,3 @@
+# Article 1 14
+
+Les Magistrats dont les noms suivent sont nommés Vice-Présidents des Tribunaux de Résidence suivants: 1. Monsieur NIYONGERE Thérence, Matricule 228.175: Tribunal de Résidence de GISURU; 2. Monsieur HABONIMANA Willerme, Matricule 220.816: Tribunal de Résidence de BWERU; 3. Monsieur NGENDAKUMANA Rénovât, Matricule 220.473: Tribunal de Résidence de MURIZA; 4. Monsieur BARANZIRA Théodore, Matricule 217.830: Tribunal de Résidence de NYABITSINDA; 5. Madame NIYONZIMA Aline, Matricule 226.983: Tribunal de résidence de RUSENGO; 6. Monsieur MINANI Claver, Matricule 221.847: Tribunal de Résidence de BUTEZI.

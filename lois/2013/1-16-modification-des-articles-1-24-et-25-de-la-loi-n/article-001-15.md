@@ -1,0 +1,3 @@
+# Article 1 15
+
+Les Magistrats dont les noms suivent sont nommés Vice-présidents des Tribunaux de Résidence suivants: 1. Monsieur MURENGERINTWARI Prudence, Matricule 221.230 Tribunal de Résidence de VUMBI; 2. Monsieur KARANGWA Bernard, matricule 221.683 Tribunal de Résidence de GITOBE; 3. Monsieur SEZIBERA Pacifique, matricule 216.337 Tribunal de Résidence de RUGAZI; 4. Monsieur BARAZIKIRIZA Pierre, matricule 221.037 Tribunal de Résidence de BWAMBARANGWE; 5. Madame NZOYIHERA Scholastique, matricule 228.160 Tribunal de Résidence de KIRUNDO; 6. Monsieur KAMANZI Arthémon, matricule 204.447 Tribunal de Résidence de BUGABIRA.

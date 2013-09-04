@@ -1,0 +1,3 @@
+# Article 1 6
+
+Les Magistrats dont les noms suivent sont nommés Présidents des Tribunaux de Résidence suivants: - Monsieur BARANKARIZA Oscar, Matricule 220.035: Tribunal de Résidence de RUMONGE; - Monsieur NAHAYO Albert, Matricule 228.319: Tribunal de Résidence de GITARAMUKA; - Monsieur NAHUMUREMYI Rémy, Matricule 220.807: Tribunal de Résidence de NGOZI; - Madame NDAYISHIMIYE Estella, Matricule 221.072: Tribunal de Résidence de GITEGA; - Monsieur NIYONGABO Ladislas, Matricule 219.028: Tribunal de Résidence de VYANDA; - Monsieur HAVYARIMANA Cyriaque, Matricule 228.844: Tribunal de résidence de GIHOGAZI.
