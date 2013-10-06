@@ -1,0 +1,21 @@
+# Article 5
+
+Le présent décret entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 06 octobre 2013, Pierre NKURUNZIZA (sé) Par le Président de la République;
+
+Le Premier Vice-Président de la République Thérence SINUNGURUZA (sé);
+
+Le Ministre de la Fonction Publique, du Travail et de la Securite Sociale Annonciata SENDAZIRASA (sé). ORDONNANCE MINISTERIELLE AFFECTATION D’UN MAGISTRAT DU TRIBUNAL DE RESIDENCE DE RUMONGE Le Ministre de la Justice et Garde des Sceaux,
+
+Vu la Constitution de la République du Burundi;
+
+Vu la Loi n°1/08 du 17 mars 2005 portant Code de l’Organisation et de la Compétence Judiciaires;
+
+Vu la loi n°1/001 du 29 février 2000 portant Réforme du Statut des Magistrats tel que modifié à ce jour;
+
+Vu le Décret n°100/122 du 28 novembre 2005 portant Organisation du Ministère de la Justice;
+
+Vu le dossier personnel et administratif de l’intéressé;
+
+Ordonne
