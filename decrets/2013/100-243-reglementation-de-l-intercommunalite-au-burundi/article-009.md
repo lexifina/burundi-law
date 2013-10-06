@@ -1,0 +1,3 @@
+# Article 9
+
+La représentation des communes au sein du conseil du GCI est assurée à raison de trois (3) délégués par commune adhérente. L’Administrateur communal est membre de droit. Outre, l’Administrateur communal, membre de droit, le Bureau du conseil communal de chaque commune adhérente propose, parmi les membres du conseil communal concerné, une liste de deux délégués et de leurs suppléants devant représenter la commune au sein du conseil du GCI et la soumet au conseil communal pour approbation. La désignation des délégués et de leurs suppléants auprès du GCI doit respecter les équilibres prévus par la législation en vigueur au Burundi.

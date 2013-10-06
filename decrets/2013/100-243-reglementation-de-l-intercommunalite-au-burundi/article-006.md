@@ -1,0 +1,3 @@
+# Article 6
+
+Le GCI est créé conformément aux modalités suivantes: - les conseils communaux intéressés décident par des délibérations concordantes de la création du GCI et chargent leurs Administrateurs de l’exécution de ces délibérations; - les Administrateurs des Communes intéressées prennent acte des délibérations de leurs conseils et constatent par décision constitutive conjointe, la création du GCI conformément aux missions définies à l’article 7 ci-dessous; - la décision constitutive conjointe est transmise au Gouverneur de province ou au Maire dont relève territorialement le siège du GCI pour contrôle de légalité et à tous les autres Gouverneurs concernés, pour information.

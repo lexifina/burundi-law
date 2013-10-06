@@ -1,0 +1,3 @@
+# Article 29
+
+Les recettes du GCI comprennent notamment: - le revenu des biens, meubles ou immeubles du GCI; - les redevances rémunératoires de services rendus; - les subventions de l’Etat et des communes; - Les fonds provenant de l’aide des partenaires techniques et financiers; - les montants correspondants aux dons et legs; - les montants des emprunts; - le produit des redevances et droits divers correspondant aux services assurés en régie, concédés ou affermés par le GCI, de sa participation dans les entreprises; - les cotisations annuelles des communes membres dans les conditions fixées par la décision constitutive. Ces cotisations sont des dépenses obligatoires des communes membres; - toute autre recette prévue par la loi.

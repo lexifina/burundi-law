@@ -1,0 +1,3 @@
+# Article 20
+
+Le Président est élu au scrutin secret par les membres du Conseil du GCI, en son sein, pour la durée du mandat du Conseil Communal. Il est élu au premier tour, à la majorité absolue des suffrages exprimés. Si celle-ci n’est pas obtenue au premier tour, il est procédé à un deuxième tour où seuls se présentent les deux candidats qui ont recueilli le plus grand nombre de suffrages. Si à l’issue du deuxième tour aucun candidat n’a obtenu la majorité absolue des suffrages exprimés, il est procédé à un troisième tour à l’issue duquel est déclaré élu le candidat qui obtient le plus grand nombre de suffrages exprimés. En cas d’égalité des voix, le candidat le plus âgé et, à âge égal, le candidat le plus ancien dans le Conseil du GCI est déclaré élu.
