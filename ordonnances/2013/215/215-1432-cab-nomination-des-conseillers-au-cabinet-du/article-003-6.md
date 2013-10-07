@@ -1,0 +1,5 @@
+# Article 3 6
+
+Les compétences définies à l’article 2 sont reconnues aux cadres du Ministère en charge de la santé publique repris ci-après: - le Directeur du département de promotion de la santé, de l’hygiène et de l’assainissement; - les conseillers au département de promotion de la santé, de l’hygiène et de l’assainissement; - les coordonnateurs provinciaux de la promotion de la santé, de l’hygiène et de l’assainissement (CPPS); - les techniciens de promotion de la santé (TPS).
+
+Les mêmes compétences sont reconnues aux cadres du ministère en charge de la gestion de l’eau repris ci-après: - le Directeur de l’assainissement et du contrôle de la qualité de l’eau; - le Directeur de la gestion intégrée des ressources en eau; - le Directeur technique de l’Institut national de l’environnement et de la conservation de la nature; - le Directeur de l’environnement de l’Institut national de l’environnement et de la conservation de la nature; - les conseillers à la Direction générale et aux directions en charge des ressources en eau et assainissement; - les chefs de parc.

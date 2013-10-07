@@ -1,0 +1,5 @@
+# Article 4 4
+
+Le classement du Comité Technique d’agrément et établissements de tourisme est composé de: - Deux Représentants du Ministère en charge du Tourisme; - Un Représentant du Ministère en charge des Relations Extérieures et de la Coopération Internationale; - Un Représentant du Ministère en charge de l’Urbanisme et de l’Habitat; - Un Représentant du Ministère en charge de l’Hygiène; - Un Représentant du Ministère en charge de l’Environnement; - Un Représentant du Ministère en charge de la Protection Civile; - Un Représentant du Ministre en charge des Affaires de la Communauté Est-Africaine; - Un Représentant de l’Office National du Tourisme (ONT); - Un Représentant du Bureau Burundais de Normalisation et Contrôle de la Qualité (BBN); - Deux (2) Représentants de la Chambre Sectorielle de l’Hôtellerie et du Tourisme; - Les membres du Comité Technique d’agrément et de classement sont nommés par ordonnance du Ministre en charge du tourisme.
+
+Chapitre II Du fonctionnement du comité

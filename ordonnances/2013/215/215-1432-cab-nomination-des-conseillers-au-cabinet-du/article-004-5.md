@@ -1,0 +1,3 @@
+# Article 4 5
+
+Avant d’exercer leurs missions, les fonctionnaires dont la liste est reprise à l’article 3 sont désignés par les Ministres dont ils relèvent. Une fois désignés, le Ministre en charge de la gestion de l’eau établit une liste comportant tous les fonctionnaires assermentés. Dans les quinze jours suivant leur désignation, ils prêtent serment par écrit d’exercer avec loyauté leur mission. Le serment est reçu par les deux ministres. Préalablement à l’exercice de leur mission, les fonctionnaires assermentés reçoivent une formation appropriée, axée notamment sur les aspects juridiques, techniques et déontologiques.
