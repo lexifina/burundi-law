@@ -1,0 +1,3 @@
+# Article 155
+
+Sans préjudice des dispositions du Code pénal, est puni d’une servitude pénale de cinq à dix ans et d’une amende de cinquante millions à cent millions de francs burundais, ou l’une de ces peines seulement, quiconque se livre à des activités de prospection, à des travaux de recherche, d’exploitation de mines, de carrière, à toute activité de sondage, de fouille sans titre minier ou autorisation ou en vertu de titre minier ou d’autorisation périmés ou non valides sans préjudice de tous les dommages et intérêts qui peuvent lui être réclamés soit par l’Etat soit par toute autre personne lésée.

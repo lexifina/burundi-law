@@ -1,0 +1,5 @@
+# Article 139
+
+Les documents fournis en vertu de l’article 138 sont opposables, pendant toute la durée de validité du permis, au titulaire d’un titre d’exploitation minière. Leur contenu est repris et précisé, le cas échéant, dans la convention minière, qui constitue la preuve de ses engagements en matière de remise en état progressive. Un manquement à ces engagements peut servir de base à l’application des sanctions prévues par le présent Code.
+
+Les documents fournis en application de l’article 138 relatifs à l’obligation de réhabilitation du site, tels que repris et précisés dans la convention minière, demeurent opposables à l’ancien exploitant pendant une période qui sera fixée par la convention minière au-delà de l’expiration du permis d’exploitation minière et de la fin concomitante de la convention minière. Durant toute cette période, un manquement aux obligations de réhabilitation, découvert après l’expiration de son titre, l’ancien exploitant s’expose aux sanctions prévues par le présent Code.

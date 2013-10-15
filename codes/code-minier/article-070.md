@@ -1,0 +1,3 @@
+# Article 70
+
+Si au cours de l’exploitation, le titulaire d’un permis d’exploitation, découvre des substances autres que celles faisant l’objet du permis d’exploitation en vigueur, il est tenu de les déclarer à l’autorité compétente sous peine de voir son permis d’exploitation annulé et des poursuites judiciaires engagées. A l’égard des substances minérales qui apparaissent à l’état d’association naturelle dans un même gisement, le titulaire d’un permis d’exploitation doit solliciter l’extension de son titre à l’ensemble des substances constituant ladite association et cela devra faire objet d’un avenant à la convention initiale.

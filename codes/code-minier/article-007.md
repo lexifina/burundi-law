@@ -1,0 +1,3 @@
+# Article 7
+
+Les gisements des substances minérales ou fossiles soumis au régime légal des Carrières ou des Mines constituent la propriété exclusive de l’Etat. Cette propriété relève de la souveraineté permanente de l’Etat sur ses ressources naturelles et, est inaliénable, imprescriptible et distincte de la propriété du sol. Toutefois, les substances minérales ou fossiles, les carrières peuvent être concédées à des personnes morales ou physiques qui en font la demande à travers des autorisations et des titres miniers pour la prospection, la recherche et l’exploitation suivant les dispositions du présent Code.

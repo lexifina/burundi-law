@@ -1,0 +1,5 @@
+# Article 128
+
+L’occupation des terrains nécessaire à l’activité de prospection, de recherche ou d’exploitation de substances minérales et aux industries qui s’y rattachent, tant à l’intérieur qu’à extérieur du périmètre du titre minier ou de l’autorisation de prospection ainsi que le passage sur ces terrains pour les mêmes fins, s’effectuent selon les conditions et modalités établies par la réglementation en vigueur. L’occupation de ces terrains ouvre au profit du propriétaire du sol ou de l’occupant traditionnel ou coutumier le droit à indemnisation. Cette occupation comporte, le cas échéant, le droit de couper le bois nécessaire à cette activité et d’utiliser les chutes d’eau libres et les eaux de surface et souterraines, le tout à l’intérieur du périmètre défini dans le titre minier ou l’autorisation, sous réserve d’indemnisation ou de paiement des taxes ou redevances prévues par la législation en vigueur.
+
+Section 2 : Des prérogatives découlant des titres miniers ou des permis d’exploitation de carrière
