@@ -1,0 +1,3 @@
+# Article 5 9
+
+Est nommé Préfet des Etudes: - au Lycée Communal de BUSONI: Monsieur MADOMO Mathias, matricule 564.523. - au Lycée Communal de KABANGA: Monsieur NZIGAMASABO Christophe, matricule 574.216. - au Lycée Communal de MAREMBO: Monsieur NGABISHENGERA Eugène, matricule 588.542. - au Lycée Communal de MURORE: Monsieur MANIRAKIZA Richard, matricule 569.032. - au Lycée Communal de VUMBI: Monsieur RIVUZUMWAMI Philippe, matricule 518.509. - au Lycée Communal de MUGENDO: Monsieur NDAYIZEYE Marc, matricule 15.392.785. - au Lycée Communal de GIKOMERO: Monsieur NSABIRABANDI Joseph, matricule 559.214.

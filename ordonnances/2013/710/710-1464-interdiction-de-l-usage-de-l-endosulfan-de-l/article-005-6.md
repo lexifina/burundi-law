@@ -1,0 +1,23 @@
+# Article 5 6
+
+Le Directeur Général de l’Administration de l’Enseignement Technique, de l’Enseignement des Métiers et de la Formation Professionnelle; le Directeur Général des Ressources Humaines et le Directeur Général des Bureaux Pédagogiques sont chargés chacun en ce qui le concerne de l’exécution de la présente ordonnance qui entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 17/10/2013 Dr. Rose GAHIRU (sé) ORDONNANCE MINISTERIELLE NOMINATION DES CERTAINS CHEFS DES ETABLISSEMENTS D’ENSEIGNEMENT SECONDAIRE PUBLIC ET COMMUNAL EN DIRECTION PROVINCIALE DE L’ENSEIGNEMENT EN MAIRIE DE BUJUMBURA Le Ministre de l’Enseignement de Base et Secondaire, de l’Enseignement des Métiers, de la Formation Professionnelle et de l’Alphabétisation,
+
+Vu la loi n°1/010 du 18 mars 2005 portant promulgation de la Constitution de la République du Burundi;
+
+Vu la loi n°1/19 du 10 Septembre 2013 portant organisation de l’Enseignement de Base et Secondaire;
+
+Vu le Décret n°100/057 du 27 mai 2000 portant création des Directions Provinciales de l’Enseignement;
+
+Vu le Décret n°100/08 du 13 septembre 2010 portant structure, fonctionnement et missions du Gouvernement de la République du Burundi;
+
+Vu le Décret n°100/125 du 21 avril 2011 portant organisation du Ministère de l’Enseignement de Base et Secondaire, de l’Enseignement des Métiers, de la Formation Professionnelle et de l’Alphabétisation;
+
+Vu le Décret n°100/23 du 31 janvier 2013 portant nomination de certains membres du Gouvernement;
+
+Sur proposition du Conseil Provincial de l’Enseignement en Mairie de Bujumbura;
+
+Vu le dossier administratif de l’intéressé;
+
+Ordonne

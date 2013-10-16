@@ -1,0 +1,3 @@
+# Article 2 18
+
+Le comité de pilotage a pour mission de: - Coordonner avec les partenaires toutes les activités de la campagne; - Informer et sensibiliser la communauté éducative sur l’exécution et la pérennisation des acquis de la campagne; - Organiser en collaboration avec les Directions Provinciales de l’Enseignement, les services et les partenaires des ateliers et des séminaires dans le cadre du déroulement de la campagne; - Superviser les formations, la construction/réhabilitation et équipement des écoles; - Suivre la mise en oeuvre des activités de la campagne 2013 et contribuer à l’évaluation des campagnes précédentes. II. Composition
