@@ -1,0 +1,3 @@
+# Article 8
+
+Les véhicules des administrations personnalisées, sociétés publiques, para publiques et aux établissements publics à caractère administratif ou commercial non affectés conformément aux articles 5 et 6 de cette ordonnance sont vendus dans le respect strict des règles de la transparence aux autres cadres de l’Etat, en suivant l’ordre de leur statut dans leurs fonctions et dans les proportions des coûts fixées par l’article 14 du Décret n°100/219 du 21 août 2013 portant modification du Décret n°100/22 du 31 janvier 2013 mode d’organisation et de fonctionnement du Transport administratif dans le cadre de la politique de charroi zéro.
