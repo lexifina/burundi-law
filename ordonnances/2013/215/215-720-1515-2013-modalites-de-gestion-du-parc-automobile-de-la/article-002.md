@@ -1,0 +1,3 @@
+# Article 2
+
+Les véhicules de liaison ou de service de chaque ministère, administrations personnalisées, sociétés publiques, para publiques, établissements publics à caractère administratif ou commercial et des structures déconcentrées doivent posséder obligatoirement des inscriptions sur les deux côtés indiquant l’institution utilisatrice sauf pour des cas exceptionnels analysés et approuvés par le ministère ayant les Transports dans ses attributions. Ces véhicules doivent être conduits par des chauffeurs contractuels ayant en permanence un carnet de bord dûment rempli et sont garés dans les enceintes de l’institution utilisatrice après les heures de services.
