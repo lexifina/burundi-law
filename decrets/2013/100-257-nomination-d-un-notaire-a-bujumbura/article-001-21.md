@@ -1,0 +1,3 @@
+# Article 1 21
+
+Les Magistrats dont les noms suivent sont affectés comme suit: - Monsieur NIYONKURU Pierre, Matricule 215.891: Juge au Tribunal de Résidence de GITANGA; - Monsieur NICIMPAYE Stany, Matricule 230.908: Juge au Tribunal de Résidence de MARAMVYA; - Monsieur HARERIMANA François, Matricule 221.879: Juge au Tribunal de Résidence de MWUMBA; - Monsieur NYANTORE Annick, Matricule 20452448: Juge au Tribunal de Résidence de Buterere; - Monsieur NIYONZIMA Bernard, Matricule 226.612: Juge au Tribunal de Résidence de Gihosha; - Monsieur NDEMEYE Jean Claude, Matricule 16306205: Juge au Tribunal de Résidence de Gashoho.

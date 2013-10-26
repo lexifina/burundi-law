@@ -1,0 +1,3 @@
+# Article 1 2 2
+
+Objet § 1. Dans le respect du Code Minier, la Convention a pour objet: (i) de préciser les droits et obligations des parties s’agissant des travaux à réaliser et des conditions de l’exploitation des sites situés dans le périmètre du permis d’exploitation; (ii) de garantir à la société [...] signataire des présentes la stabilité des conditions qui lui sont faites, notamment sur le plan de la fiscalité; (iii) de définir les conditions d’exécution des engagements de la société [...] s’agissant des créations d’infrastructures qu’elle prévoit; (iv) de fixer les rapports entre l’État et le titulaire pendant tout la durée du permis d’exploitation auquel elle est attachée. § 2. [description du projet]
