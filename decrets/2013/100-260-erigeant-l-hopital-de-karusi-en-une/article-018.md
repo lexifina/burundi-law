@@ -1,0 +1,3 @@
+# Article 18
+
+Les dépenses de l’hôpital comprennent notamment: - toute dépense de fonctionnement et d’investissement nécessaire à la réalisation de sa mission; - les rémunérations du personnel ainsi que les charges sociales et fiscales y afférentes; - les frais d’acquisition de location et d’entretien des biens meubles et immeubles ainsi que le renouvellement de l’équipement technique nécessaire à la réalisation de ses missions.; - toute autre dépense nécessaire à la réalisation de ses missions; - les remboursements des emprunts; - les amortissements; - les engagements extraordinaires adoptés par le Conseil d’administration et le Ministre ayant la Santé publique dans ses attributions.
