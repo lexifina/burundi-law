@@ -1,0 +1,3 @@
+# Article 1
+
+Il est institué au Burundi un Visa statistique qui garantit le label d’intérêt général et de conformité technique pour toute enquête et étude statistique ou recherche entreprises sur le territoire national. Un visa statistique est une autorisation écrite délivrée, sur demande, sous forme de code alphanumérique, par le Ministre en charge de l’Institut de Statistiques et d’Etudes Economiques du Burundi (ISTEEBU), à toute personne désireuse d’entreprendre une enquête statistique, et attestant que cette enquête respecte les normes et méthodes reconnues internationalement, que ce soit au niveau de son organisation ou de la publication des données qui en sont issues.
