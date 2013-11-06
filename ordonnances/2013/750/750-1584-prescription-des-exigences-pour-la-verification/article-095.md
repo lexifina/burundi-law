@@ -1,0 +1,3 @@
+# Article 95
+
+Dans le but d’inspection, la personne en charge des distributeurs à vérifier doit, sur demande de l’inspecteur, lui fournir du carburant à utiliser pour le test. Tout carburant retiré du réservoir ou du récipient doit, après le test, être immédiatement reversé dans le réservoir ou le récipient à partir duquel il a été retiré ou être placé dans un autre récipient fourni par la personne en charge du distributeur. L’inspecteur doit fournir à la personne en charge de l’instrument testé, une déclaration signée et datée de la quantité du carburant retirée et de celle retournée à la cuve de stockage ou au conteneur. Paragraphe 17 Bris de scellés sur réservoir de stockage ou conteneur

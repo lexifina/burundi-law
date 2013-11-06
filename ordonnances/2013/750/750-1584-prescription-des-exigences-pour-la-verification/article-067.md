@@ -1,0 +1,3 @@
+# Article 67
+
+Chaque distributeur de carburant soumis à la vérification doit être lisiblement et durablement indiqué avec le numéro de certificat ou le numéro de la notice d’approbation délivré ou dûment adopté par le Directeur en ce qui concerne le schéma selon lequel il est fait, précédé par les mots « N°de certificat" ou « N°de Rapport ». Lorsque le distributeur est conçu conformément à une modification autorisée par le Directeur, l’instrument doit porter une indication lisible et durable de la date de cette autorisation précédée par la lettre «M». Paragraphe 5 Marquage de catégorie ou identification de produit carburant

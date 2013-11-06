@@ -1,0 +1,3 @@
+# Article 57
+
+Chaque mesure de capacité du liquide doit être testée à la température ambiante normale en remplissant la mesure étalon de référence secondaire appropriée ou étalon de travail avec de l’eau et en vidant le contenu dans l’instrument à tester. Lorsque la mesure de capacité est définie par une ligne, la mesure doit être testée à partir du fond et, dans le cas des instruments de mesures en verre, le niveau de l’eau doit être pris au fond du ménisque. Un instrument de mesure de liquide muni d’un bord à bec ou de retenue doit être testé au fond du bord de bec ou de retenue. Paragraphe 11 Erreurs maximales tolérées

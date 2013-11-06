@@ -1,0 +1,3 @@
+# Article 104
+
+L’inspecteur ne doit pas admettre à la vérification tout instrument de pesage dont: - le plateau, creuset ou récipient est brisé; - le plateau est ébréché, fissuré ou poreux au point qu’il est devenu absorbant; - les contrepoids présentent un poids supérieur ou inférieur à la capacité marquée de l’instrument; - les pièces amovibles, en cas de suppression, affecteraient l’exactitude de l’instrument à moins que ces pièces lui soient indispensables; - les pièces réversibles ou interchangeables, en cas d’inversion ou d’échange, auraient une incidence sur la précision de l’instrument, sauf si la position de ces pièces est clairement indiquée d’une manière indélébile.

@@ -1,0 +1,3 @@
+# Article 12
+
+La ‘vérification périodique consiste à vérifier si un instrument qui a déjà fait l’objet de la vérification primitive satisfait encore aux prescriptions légales. Dans l’affirmative, une ou plusieurs marques de vérification sont apposées et un certificat est délivré.
