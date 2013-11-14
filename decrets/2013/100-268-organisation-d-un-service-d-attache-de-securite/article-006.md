@@ -1,0 +1,3 @@
+# Article 6
+
+L’Attaché de Sécurité est notamment chargé de: - traiter, avec les autorités en charge de la Sécurité des pays accréditaires, de toutes les questions ayant trait à la coopération en matière de sécurité; - tenir informés les chefs de missions diplomatiques auprès desquelles il est attaché des démarches ou négociations entreprises en vue d’une bonne coordination de l’action diplomatique; - Informer le chef de mission diplomatique sur les questions politiques et technologiques des attachés en matière de sécurité publique; - Participer à toutes les activités organisées par ou au profit des attachés de sécurité accrédités dans le pays hôte; - Participer à l’organisation des visites ou missions de personnalités en charge de Sécurité Publique burundaise.
