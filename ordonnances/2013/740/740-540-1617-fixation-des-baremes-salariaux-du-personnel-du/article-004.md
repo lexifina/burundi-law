@@ -1,0 +1,11 @@
+# Article 4
+
+Toutes les dispositions antérieures et contraires à la présente ordonnance sont abrogées.
+
+Fait à Bujumbura, le 19/11/2013 Le Ministre du Développement Communal Monsieur Jean Claude NDIHOKUBWAYO (sé)
+
+Le Ministre des Finances et de la Planification du Développement Economique Hon. Tabu Abdallah MANIRAKIZA (sé) Annexe 1 Les indemnités de logement sont fixées à 60% du salaire de base;
+
+Les indemnités de déplacement sont fixées à 15% du salaire de base à l’exception du Coordinateur qui dispose d’un moyen de déplacement;
+
+Les allocations familiales sont fixées à 1.000 Fbu par enfant et à 2.000 Fbu pour le conjoint ou la conjointe qui ne travaille pas; Il est accordé une indemnité de caisse de 20.000 Fbu/mois pour le comptable. ANNEXE 2 GRILLE SALARIALE CNFAL INSS MFP AFD SB IL ID AF IND.0 S.BRUT EMPLOYE PATRON EMPLOYE PATRON BI IPR SN COORDINATEUR 452 883991 530395 5000 1419386 18000 27000 35360 53039 918578 215574 1150000 RAF 226 627972 376783 94196 3000 1101951 18000 27000 28887 43330 549461 104838 950000 RF 226 627972 376783 94196 3000 1101951 18000 27000 28887 43330 549461 104838 950000 CADRE CONS. 452 347139 208283 52071 6000 613493 18000 27000 15968 23953 295362 29072 550001 SECRETAIRE 452 131244 78746 19687 6000 235677 9187 13781 6037 9056 109005 220001 COMPTABLE 452 281488 168893 42223 6000 20000 498603 18000 27000 12948 19423 236013 17203 450000 CHAUFFEUR 452 88404 53042 13261 6000 160707 6188 9282 4067 6100 73277 150000 PLANTON 452 51685 31011 7753 6000 96448 3618 5427 2377 3566 42653 90000 TOTAL 3039894 1823936 323385 41000 20000 5228216 108993 163490 134531 201797 2773809 471525 4510003 272483 336328
