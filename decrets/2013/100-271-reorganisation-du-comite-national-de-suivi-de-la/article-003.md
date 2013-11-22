@@ -1,0 +1,3 @@
+# Article 3
+
+Le CNDP est composé des membres suivants: - le Ministre ayant les Finances dans ses attributions: Président; - le Ministre ayant les Relations Extérieures et la Coopération Internationale dans ses attributions: Vice-président; - le Ministre en charge de la Bonne Gouvernance: Membre; - le Gouverneur de la Banque de la République du Burundi: Membre; - le Secrétariat Permanent du Secrétaire Permanent du Comité National de Coordination des Aides: Membre; - le Secrétaire Permanent du Suivi des Réformes Economiques et Sociales: Membre; - le Conseiller Principal à la Deuxième Vice-Présidence de la République chargé des questions économiques: Membre; - le Directeur ayant la gestion de la dette dans ses attributions au Ministère en charge des Finances: Secrétaire

@@ -1,0 +1,3 @@
+# Article 6
+
+Le secrétariat du CNDP est assuré par la Direction ayant la gestion de la dette dans ses attributions au Ministère en charge des Finances. Il a notamment pour tâches: - d’assurer le suivi quotidien de la mise en oeuvre des orientations du CNDP; - de préparer les documents de travail pour le CNDP; - d’examiner toute proposition d’endettement public et d’en assumer la présentation au CNDP; - de garantir l’information du public sur la politique et la stratégie nationale d’endettement public ainsi que sur l’encours et la composition de la dette publique; - d’assurer le suivi quotidien du service de la dette publique et d’en tenir le CNDP informé; - de prendre les procès-verbaux des réunions du CNDP.
