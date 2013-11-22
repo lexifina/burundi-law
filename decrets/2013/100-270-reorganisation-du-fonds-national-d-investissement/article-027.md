@@ -1,0 +1,3 @@
+# Article 27
+
+Les ressources du Fonds sont notamment constituées par: - l’actif du Fonds de Développement Communal au jour de sa transformation; - les dotations budgétaires de l’Etat à hauteur de 15% du budget national; - les ressources financières mobilisées et destinées au développement des communes; - les financements des organismes publics ou privés, nationaux ou étrangers destinés à la promotion des collectivités locales; - Les recettes de la taxe de péréquation; - les emprunts régulièrement contractés par l’Etat pour le compte des Communes; - les dons et legs; - toute autre ressource autorisée par le Conseil d’Administration, en conformité avec les lois et règlements en vigueur.

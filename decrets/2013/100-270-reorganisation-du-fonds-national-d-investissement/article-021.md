@@ -1,0 +1,3 @@
+# Article 21
+
+A la fin de chaque trimestre, le Directeur Général adresse aux membres du Conseil d’Administration un rapport qui rend compte de la situation générale du Fonds, de l’état d’exécution des décisions prises lors des précédentes réunions et des initiatives prises au niveau de l’exécution du budget par rapport aux prévisions. Avant la clôture de l’exercice, il présente au Conseil d’Administration ses propositions pour le budget prévisionnel de l’exercice à venir. Après la clôture de l’exercice, il présente au Conseil d’Administration et au Ministre de tutelle un rapport annuel d’activités du Fonds ainsi que les comptes de l’exercice précédent.
