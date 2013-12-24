@@ -1,0 +1,3 @@
+# Article 2 14
+
+Aux termes de la présente loi, le mot « sinistré » désigne la personne physique ou morale notamment l'association ou société de droit privé, la. personne rapatriée, déplacée, regroupée ou dispersée, veuve, orpheline ainsi que toute autre personne qui aurait été spoliée de ses biens du fait des événements tragiques qu'a connus le Burundi depuis son indépendance. L'expression « autres biens » désigne les biens meubles et immeubles, le matériel roulant, les comptes bancaires, les assurances sociales, les équipements divers, le cheptel, les salaires, les indemnités, les parts sociales dans les entreprises et les sociétés, les fonds de commerce, les produits et les effets commerciaux, les parts dans les associations à but lucratif, les droits d'héritage.

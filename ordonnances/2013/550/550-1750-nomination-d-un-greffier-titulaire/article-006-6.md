@@ -1,0 +1,3 @@
+# Article 6 6
+
+Sont nommés au grade d'Offic ier de Police Principal de 2ème Classe (OPP2) à la date du 31 décembre 2013, les Officiers de Police de 1 ère Classe (0P1) dont les noms, prénoms et matricules suivent: Série NOM ET PRENOM MATRICULE 1 NSHIMIRIMANA Désiré OPN1290 2 SURWAVUBA Jean Louis OPN0918 3 TUYISHIME Martin OPN1079 4 NDAYEGAMIYE Gédéon OPN1300 5 HAVYARIMANA Jean Bosco OPN0836 6 ZIMIYABANDI Innocent OPN0867 7 HATUNGIMANA Innocent OPN0971 8 BIZIMANA Stany OPN1383 9 HABONIMANA Zacharie OPN1374 10 MANIRAKIZA Evode 0PN1375 MUGISHA Audace 0PN1376 12 NDAYIZEYE Melchicedec OPN1377 13 UWIZEYIMANA Eric 79039 14 KABURA Ferdinand 0PN1385 15 BIGIRIMANA Eric 0PN1381 16 NTIBANKUNZE Donatien OPN1402 17 NKUNZIMANA Jean Claude OPN1399 18 NDAMAMA Alexandre 0PN1078

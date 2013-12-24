@@ -1,0 +1,3 @@
+# Article 2 2
+
+Cette commission comprend les membres suivants; -Un représentant de la Deuxième Vice-présidence de la République; -Deux représentants du Ministère des Transports, des Travaux Publics et de l'Equipement; -Un représentant du Ministère des Finances et de la Planification du Développement Economique; -Un représentant du Ministère du Commerce, de l'Industrie, des postes et du tourisme; -Un représentant du Ministère de l'Eau, de l'Environnement, de l'Aménagement du Territoire et de l'Urbanisme; -Trois représentants de l'Office Burundaise des Recettes; -Un représentant de la Police de l'Air, des Frontières et des Etrangers; -Un représentant du Bureau Burundais de Normalisation et du Contrôle de la qualité.
