@@ -1,0 +1,3 @@
+# Article 14 2
+
+Champ d'application de l'accord Un accord préalable en matière de prix de transfert s'applique aux transactions contrôlées mentionnées dans l'accord et effectuées après la date à laquelle l'accord est signé, et reste en vigueur pendant les exercices fiscaux indiqués dans l'accord, qui ne doivent pas dépasser 3 exercices fiscaux après la date de conclusion de l'accord. En outre, les parties à l'accord peuvent disposer que l'accord s'applique aussi aux transactions effectuées pendant l'exercice fiscal en cours au moment où la demande est soumise, ou aux exercices fiscaux antérieurs à l'exercice en cours au moment où la demande est soumise.

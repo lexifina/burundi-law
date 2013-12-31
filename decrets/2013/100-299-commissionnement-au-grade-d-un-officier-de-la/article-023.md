@@ -1,0 +1,3 @@
+# Article 23
+
+De l'autorité compétente. 1. La demande prévue par l'article 97 de la loi n°1/18du 6 septembre 2013relative aux procédures fiscales tendant à obtenir à titre gracieux une remise du montant des amendes et intérêts doit être adressée au Ministre. 2. La demande doit être formulée par écrit et contenir les indications nécessaires pour identifier l'imposition à laquelle les amendes et intérêts sont afférents et être accompagnées de la note d'imposition ainsi que d'une liste complète de ses biens immeubles, ses comptes bancaires, ses actifs financiers, ses avoirs ou tous autres biens, ainsi que dans l'hypothèse d'une personne physique, ceux de son conjoint et de ses enfants mineurs, qui se situent au Burundi ou à l' étranger.
