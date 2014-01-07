@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Ges-tion des Marchés Publics en Mairie de Bujumbura, les personnes suivantes: 1. NDAYISHIMIYE Cylus: Président; 2. MUCOMWIZA Jean Marie: Membre; 3. NZOYISABA Claver: Membre; 4. BIGIRUKWAYO Frédéric: Membre; 5. HAVYARIMANA Lenus: Membre; 6. NDABAGOYE Vénuste: Membre; 7. ARAGASHIMA Clarté Marie-Ange: Membre; 8. TOYI Brigitte Georgia: Membre; 9. MINANI Léonidas: Membre; 10.IRAMBONA Francine: Membre; 11.KEZIMANA Lyse-Claire: Membre; 12.NKUNZIMANA Ildephonse: Membre; 13.BIZIMANA Rénovât: Membre; 14.BAVUMIRAGIYE Sylvana: Membre; 15.BIHIZI Claudine: Membre; 16.NIYINDABIRA Jean de Dieu: Membre; 17.NTAHIMPEREYE Jean Claude: membre.
