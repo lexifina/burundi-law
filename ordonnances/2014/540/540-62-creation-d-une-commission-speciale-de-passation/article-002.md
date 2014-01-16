@@ -1,0 +1,3 @@
+# Article 2
+
+Sont désignés membres permanents de la Commission: 1. Le directeur général de l’AMPF, président; 2. Le secrétaire permanent à la Direction nationale de contrôle des marchés publics, vice-président; 3. Le président de la cellule de gestion des marchés pub-lics à l’AMPF, secrétaire; 4. Le directeur du budget au ministère des Finances et de la Planification du développement économique, membre; 5. Le directeur administratif et financier à l’AMPF, membre; 6. Le directeur de l’Autorité maritime à l’AMPF, mem-bre; 7. Le directeur de l’Autorité portuaire à l’AMPF, mem-bre; 8. Le chef du service Infrastructures portuaires à l’AMPF, membre; 9. Le chef du service Inspection Navale à l’AMPF, membre.
