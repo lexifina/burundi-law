@@ -1,0 +1,3 @@
+# Article 24
+
+La sonorisation générale dans les banques, institutions de microfinances, compagnies et agences de voyages, sociétés d’assurances et de télécommunications et d’autres endroits ayant des salles d’attentes sonorisées est soumise à une tarification forfaitaire. Celle-ci est cal-culée à base du nombre d’employés en contact avec la clientèle au guichet et du nombre d’appareils à musique utilisé: 1. Moins de 5 employés, la redevance est de 12.500 Fbu; 2. De 5 à 10 employés, la redevance est de 17.500 Fbu; 3. De 11 à 15 employés, la redevance est de 20.000 Fbu; 4. De 16 à 20 employés, la redevance est de 22.500 Fbu; 5. Plus de 20 employés, la redevance est de 25.000 Fbu. En cas de poste téléviseur, une majoration de 10% est appliquée.
