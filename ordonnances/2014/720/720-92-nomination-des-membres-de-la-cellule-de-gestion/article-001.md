@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Ges-tion des Marchés Publics au sein de l’Autorité de l’Avia-tion Civile du Burundi: 1. Mr Albert MANIRATUNGA: Président et Personne Responsable de la CGMP; 2. Mr Serges NIMBONA: Vice-Président de la CGMP; 3. Mme Jocelyne MUHIMBARE: Secrétaire; 4. Mr Jean de Dieu BIZIMANA: Membre; 5. Mr Jean Bosco NIKOBAMYE: Membre; 6. Mr Norbert NIYONGABO: Membre; 7. Mr Oscar NTETURUYE: Membre; 8. Mr Léonidas BUKURU: Membre; 9. Mme Marie-Rose KARENZO: Membre; 10.Mr Révérien HARAHAGAZWE: Membre; 11.Mr Arsène NDABIHAWENIMANA: Membre; 12.Mr Pacifique MUSONGERA: Membre; 13.Mr Jean Pierre NIYUKURI: Membre.
