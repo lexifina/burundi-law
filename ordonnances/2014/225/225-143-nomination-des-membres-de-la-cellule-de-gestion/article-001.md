@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Ges-tion des Marchés Publics (CGMP) du Centre National de Réadaptation Socio-Professionnelle (CNRSP), les per-sonnes dont les noms suivent: 1. NDABAKURANYE Virginie: Présidente; 2. HARAMATEGEKO Fabien: Vice-Président; 3. NIYOMPABONYE Générose: Secrétaire; 4. BIZIMUNGU Gilbert: Membre; 5. NYARUSHATSI Rénilde: Membre; 6. HATUNGIMANA Chantal: Membre; 7. CIMPAYE Clovis: Membre; 8. CIMPAYE Constantin: Membre; 9. MACUMI Gérard: Membre; 10.NGENZEBUHORO Adolphe: Membre; 11.BINUNDA Louis: Membre; 12.BAPFUTWABO Candide: Membre; 13.IBRAHIM Amisi: Membre; 14.FENGURE Léonie: Membre; 15.NGIRIYIMANA Agrippine: Membre.
