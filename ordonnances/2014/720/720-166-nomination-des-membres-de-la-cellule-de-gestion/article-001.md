@@ -1,0 +1,5 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Ges-tion des Marchés Publics auprès du Cabinet du Ministère des Transports, des Travaux publics et de l’Équipement, pour l’administration centrale: 1. NSANZAMAHORO Philbert: Président; 2. HAVYARIMANA Désiré: Membre; 3. NKURUNZIZA Jean Bosco: Membre; 4. NKURIKIYE Rhamadan: Membre; 5. BARUTWANAYO Norbert: Membre; 6. RUHIMBI NDABANIWE Thérence: Membre; 7. KARIKURUBU Emmanuel: Membre; 8. HABIMANA Fabrice: Membre; 9. RUKUNDO Éric: Membre; 10.HARERIMANA Égide: Membre; 11.NIKUNDANA Andy Aliella: Membre; 12.NDAYIRAGIJE Athanase: Membre; 13.NDIKUMAGENGE Josiane: Membre; 14.NIYONSABA Moïse: Membre; 15.SIBOMANA Dieudonné: Membre; 16.BAVUMIRAGIYE Célestin: Membre; 17.NITUNGA Consolateur: Membre; 18.KIGABO Marijani Saidi: Membre; 19.NKURUNZIZA Alexis: Membre; 20.NKUNZIMANA Jean Marie: Membre; 21.NDARURINZE Jean Marie: Membre.
+
+La Personne Responsable des Marchés Publics au Cabi-net du Ministère des Transports, des Travaux Publics et de l’Équipement est Monsieur BAKIRE NZOYISABA Vincent, Secrétaire Permanent.
