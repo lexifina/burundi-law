@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Ges-tion des Marchés Publics à l’École Normale Supérieure: 1. Dr BISORE Simon: Président de la Cellule de Passa-tion des Marchés Publics à l’École Normale Supé-rieure; 2. Monsieur SWEDI Djuma: Secrétaire; 3. Monsieur BAPFUTWABO Louis: Membre; 4. Monsieur NDOVORI Rémégie: Membre; 5. Madame NTAHIRAJA Zaina: Membre; 7. Monsieur NDAYISENGA Jean Paul: Membre; 8. Madame DUSHIMIRIMANA Rénilda: Membre; 9. Madame IRAKIZA Zuena: Membre; 10 Madame NYANZOBE Annociate: Membre; 11.Monsieur BISABWIMANA Antoine: Membre; 12.Monsieur CIZA Léonard: Membre; 13.Monsieur NDIKURIYO Elias: Membre; 14.Monsieur MUKESHIMANA Éric: Membre.
