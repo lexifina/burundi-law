@@ -1,0 +1,3 @@
+# Article 2
+
+La taxe de sûreté sur les marchandises impor-tées est de 1,15% (un virgule quinze pour cent) de la valeur en douane de toutes les marchandises à destination de la République du Burundi. Elle sera prélevée par les Banques commerciales lors de l’ouverture des licences d’importations, et pour les importations n’ayant pas fait l’objet d’une licence, par l’Office Burundais des Recettes lors de la liquidation des déclarations douanières d’importation. Elle sera versée sur les comptes « Taxes de sûreté » ouvert dans les livres des banques et centrali-sée dans un compte séquestre ouvert dans les livres de la Banque de Crédit du Burundi (BCB).
