@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Ges-tion des Marchés Publics au Ministère de la Jeunesse, des Sports et de la Culture, les personnes dont les noms suivent: 1. Monsieur Cyriaque NIYIHORA: Président; 2. Madame Viola KANKINDI: Secrétaire; 3. Monsieur Mathias MANIRAKIZA: Secrétaire adjoint; 4. Monsieur Solyvent HABONIMANA: Membre; 5. Monsieur KARUKE J. Claude: Membre; 6. Madame Chantal KAMANZI: Membre; 7. Monsieur Nicodème NYANDWI: Membre; 8. Madame A. Louise NDIKUMWENAYO: Membre; 9. Monsieur Justin BIGIRIMANA: Membre; 10.Monsieur Richard BATUNGWANAYO: Membre; 11.Monsieur Léonidas NDAYIRAGIJE: Membre; 12.Madame Viola NIBOGORA: Membre.
