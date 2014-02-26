@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Ges-tion des Marchés Publics: 1. Monsieur MVUKIYE Didmond; 2. Madame NIMBONA Anastasie; 3. Madame NIYONSABA Aimée-Généreuse; 4. Madame KANTORE Alphonsine; 5. Madame NSHIMIRIMANA Jeanne; 6. Madame NIYIGABA Marie Constance; 7. Madame KWIZERA Francine; 8. Madame NKUNDIZANYE Lyduine; 9. Madame NDEREYIMANA Donavine; 10.Madame NDIKUMANA Marie-Louise; 11.Monsieur NTAKIYIRUSHA Vital; 12.Monsieur NIYONZIMA Faustin; 13.Monsieur KIDUDI Aloys; 14.Madame NIREMA Jeanne d’Arc; 15.Madame NIRERA Honorine; 16.Monsieur NIYONKURU Bernard; 17.Madame SIMENYA Frédiane; 18.Madame TEGERA Catherine.
