@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la commission technique chargée de préparer les États Généraux de l’Éducation: 1. Monsieur MASHARABU Tatien: Président; 2. Monsieur MUYUKU Ladislas: Vice-Président; 3. Monsieur NDIMURIRWO Venant: Secrétaire; 4. Monsieur NSHIMIRIMANA Philippe: Secrétaire Adjoint; 5. Madame HATUNGIMANA Alexine: Membre; 6. Monsieur BUNGUZA Libérat: Membre; 7. Monsieur BARUTWANAYO Aaron: Membre; 8. Monsieur TUNGAMWESE Emmanuel: Membre; 9. Monsieur NTABINDI Jean: Membre; 10.Madame RURATAMBITSE Godelieve: Membre; 11.Monsieur NAHINDAVYI NDANGA Alphonse: Membre; 12.Monsieur BIGIRIMANA Astère: Membre.
