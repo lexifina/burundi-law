@@ -1,0 +1,3 @@
+# Article 5
+
+Sont nommés membres de la CGMP du LACA les personnes suivantes: 1. Monsieur Didace BIRABISHA, Président; 2. Monsieur Déogratias NIZEYIMANA, Membre; 3. Monsieur Déogratias BAZIKAMWE, Membre; 4. Madame Josélyne CIZA, Membre; 5. Monsieur Célestin NDAYIKUNDA, Membre; 6. Monsieur Méthode NDUWIMANA, Membre; 7. Madame Philomène NDAYISENGA, Membre; 8. Madame Spès-Caritas NIYONZIMA, Membre; 9. Madame Jeanne NIRUTANYA, Membre; 10.Monsieur Albert SIMBARE, Membre; 11.Monsieur Kabeya KIBAMBE, Membre; 12.Monsieur Égide NKESHIMANA, Membre; 13.Mademoiselle Inès KABAGENI, Membre; 14.Madame Claudette NDUWAYO, Membre; 15.Mademoiselle Espérance SABIYAKIRA, Membre; 16.Madame Josélyne NKURUNZIZA, Membre; 17.Mademoiselle Amandine MUTONI, Membre.
