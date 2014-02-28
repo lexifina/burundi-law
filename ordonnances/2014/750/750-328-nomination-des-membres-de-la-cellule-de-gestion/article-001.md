@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommées Membres de la Cellule de Ges-tion des Marchés Publics à la Régie Nationale des Postes, les personnes ci-après: 1. HAVYARIMANA Alexis; 2. MUNDANIKURE J. Marie; 3. BAGORIKUNDA Grégoire; 4. NIZIGIYIMANA Didier; 5. SIMBAKWIYE Thomas; 6. FURAHA J. Claude; 7. MAKERA Emile; 8. BIZI Olivier; 9. NAHIGOMBEYE Mozart; 10.SIRABAHENDA Ernest; 11.NDAYISHIMIYE J. Léonard; 12.MANIRAKIZA Godeliève; 13.NIYONGANJI Christophe; 14.NDABIRORERE Yvan; 15.MISIRAKUBA Déo; 16.KAMIKAZI M. Thérèse; 17.BAZOMPORA Virginie; 18.NSABIYUMVA Elkana; 19.HASSAN Ramazani; 20.NDEGEYA Évariste; 21.BAMBASI Alexandre; 22.NIYOKWIZIGIRA Égide.
