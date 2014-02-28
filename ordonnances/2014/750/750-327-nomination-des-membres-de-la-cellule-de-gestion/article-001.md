@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommées Membres de la Cellule de Ges-tion des Marchés Publics au Bureau Burundais de Nor-malisation et Contrôle de la Qualité, les personnes ci-après: 1. Monsieur KARERWA Désiré; 2. Monsieur NTAHOMVUKIYE Célestin; 3. Monsieur RURACENYEKA Éric; 4. Monsieur RUDARAGI Désiré; 5. Monsieur NZINAHORA Gervais; 6. Monsieur MISIGARO Siméon; 7. Monsieur HARIMENSHI Frédéric; 8. Monsieur NKURUNZIZA José Prosper; 9. Monsieur NIZIGIYIMANA Bernard; 10.Madame SINDAKIRA Bernardine; 11.Madame NKURUNZIZA Béatrice; 12.Madame KEZA Élise; 13.Monsieur BUZOKORO Jean Bosco; 14.Monsieur NZAMBIMANA Édouard; 15.Monsieur NIMPAGARITSE Étienne.
