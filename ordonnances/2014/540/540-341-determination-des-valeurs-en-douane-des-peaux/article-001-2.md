@@ -1,0 +1,3 @@
+# Article 1 2
+
+En rapport avec l'OM n°540/169/2011 du 17/02/2011 portant seuils de passation, de contrôle et de publication des marchés publics à financement extérieur, il est pris une mesure dérogatoire, exceptionnelle et ponctuelle de relèvement du seuil de passation des marchés publics dans le cadre de la construction des écoles fondamentales financées par les PTFs du Fonds Commun de l'Education « FCE ». Cette mesure est uniquement limitée aux conventions de Maîtrise d'Ouvrage Communale (MOC) signées sur le budget du FCE à engager en 2014, mais dont les paiements peuvent s'étendre sur l'année 2015.
