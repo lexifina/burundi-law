@@ -1,0 +1,5 @@
+# Article 3
+
+Le Ministre des Relations Extérieures et de la Coopération Internationale est chargé de l'exécution du présent Décret qui entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 13/03/2014, Pierre NKURUNZIZA.(sé) PAR LE PRESIDENT DE LA REPUBLIQUE LE PREMIER VICE-PRESIDENT DE LA REPUBLIQUE Ir Prosper BAZOMBANZA.(sé) LE MINISTRE DES RELATIONS EXTERIEURES ET DE LA COOPERATION INTERNATIONALE, Laurent KAVAKURE (sé)
