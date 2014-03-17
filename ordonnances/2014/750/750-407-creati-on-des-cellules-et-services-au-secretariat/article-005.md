@@ -1,0 +1,9 @@
+# Article 5
+
+Les attributions de la Cellule chargée de la Communication et des Relations Publiques sont notamment de : − Assurer le rôle de porte- Parole du Ministère; − Assurer les relations publiques et sociales internes et externes; − Assurer la communication interne et externe; − Veiller à la bonne marche du site WEB et à son alimentation régulière;
+
+- Faire connaître les activités du Ministère notamment par des émissions radiodiffusées et télévisées régulières;
+
+- Accueillir les demandeurs d'audiences et programmer les rendez- vous des visiteurs avec le Ministre;
+
+- Programmer les visites du Ministre à l'intérieur du pays.
