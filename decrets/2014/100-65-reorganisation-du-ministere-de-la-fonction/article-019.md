@@ -1,0 +1,3 @@
+# Article 19
+
+La Direction de la Promotion de l'Emploi est notamment chargée de : − concevoir et mettre en œuvre les actions de nature à favoriser et stimuler la création de l'emploi dans tous les secteurs de la vie nationale; − participer, en collaboration avec l'Office National de l'Emploi et de la Formation, à la collecte, analyse et publication périodique des informations concernant l'emploi dans le secteur formel et informel et à la constitution d'une banque de données statistiques sur le monde du travail et de l'emploi; − analyser, évaluer et classifier les emplois des secteurs parapublic et privé en veillant à leur harmonisation avec les classifications internationales en vigueur.

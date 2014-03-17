@@ -1,0 +1,3 @@
+# Article 18
+
+La Direction Générale du Travail et du Perfectionnement Professionnel est notamment chargée de : − planifier, programmer et coordonner les activités relatives à la mise en œuvre de la politique nationale de l'emploi et la planification des ressources humaines; − élaborer des projets de textes législatifs ou réglementaires relatifs aux conditions générales de travail et aux relations professionnels pour une meilleure applicabilité du Code du Travail; − concevoir, planifier et coordonner les activités concourant au perfectionnement et à la formation professionnelle du secteur parapublic et privé.
