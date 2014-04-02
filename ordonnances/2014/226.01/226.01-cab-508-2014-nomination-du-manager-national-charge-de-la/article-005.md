@@ -1,0 +1,3 @@
+# Article 5
+
+Avec l’accord conjoint du Ministre de la Santé Publique et de la Lutte contre le SIDA et du Ministre de l’Enseignement Supérieur et de la Recherche Scientifique, le présent programme de formation condui-sant au grade académique de Licence en Sciences de la Santé, option Anesthésie-Réanimation peut être modifié dans son contenu comme dans sa durée. Intitulé des modules volume horaire 1. Santé Publique, Statistiques Épidémiologiques 60 h 2. Anglais 60 h 3. Informatique 60 h 4. Management des services 30 h 5. Socio-anthropologie 30 h 6. Méthodologie de la recherche 30 h 7. Entrepreneuriat 45 h Volume Horaire Total 315 heures Intitulé des modules volume horaire Stages: 11 mois 1760 h Volume Horaire Total 1760 heures Section III Filière Laboratoire
