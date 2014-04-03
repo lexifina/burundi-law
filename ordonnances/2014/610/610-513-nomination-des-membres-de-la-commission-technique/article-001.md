@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Commission Technique Mixte chargée d’élaborer convention spéci-fique de partenariat entre le Ministère de l’enseignement supérieur et de la recherche scientifique et le Ministère de la santé publique et de la lutte contre le sida via l’univer-sité du Burundi en faveur de la faculté de médecine: 1. Docteur NYANDWI Joseph, Vice-Doyen de la Faculté de Médecine, Université du Burundi: Président; 2. Monsieur MANIRAMBONA Jean Bosco, Conseiller Juridique au MESRS: Secrétaire; 3. Docteur NGIRIGI Liboire, Directeur Général de la Santé: Membre; 4. Monsieur HITIMANA Jean- Bosco, Conseiller Juri-dique au MSPLS: Membre; 5. Monsieur NTAKIYIRUTA Joseph, Chef du Person-nel et Conseiller Juridique chargé du contentieux au CHUK: Membre.
