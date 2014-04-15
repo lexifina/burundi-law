@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Ges-tion des Marches Publics dans la commune BWERU, les personnes dont les noms suivent: 1. NTIRAMPEBA Alexandre: Président; 2. NTAHOMBAYE Thomas: Membre; 3. NKURUNZIZA Dieudonné: Membre; 4. NZEYIMANA Béatrice: Membre; 5. NTIBANYIHA Venant: Membre; 6. NIYONIZIGIYE Orner: Membre; 7. MVUYEKURE Déodate: Membre; 8. NADENDE Venantie: Membre; 9. MANIRAKIZA Jean Claude: Membre; 10.NIYONZIMA Jean Claude: Membre; 11.NDAGIJIMANA Astère: Membre; 12.NITUYAHAGA Cyriaque: Membre; 13.BARANDEREKA Athanase: Membre; 14.BWORO Léopold: Membre; 15.NDARUBAGAYE Clément: Membre.
