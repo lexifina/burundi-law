@@ -1,0 +1,3 @@
+# Article 2 2
+
+Sont membres du Comité de Pilotage de l’EDSB-III, 2014-2015, les personnes dont les noms suivent: 1. Dr NIZIGIYIMANA Dionis (MSPLS): Président; 2. Mme BIGIRIMANA Immaculée (MFPDE): Vice Président; 3. Mr NDAYISHIMIYE Nicolas (ISTEEBU): Secrétaire; 4. Dr NICAYENZI Dieudonné (MSPLS): Membre; 5. Dr NGIRIGI Liboire (MSPLS): Membre; 6. Dr RIRANGIRA Jean (CNLS): Membre; 7. Mme HASHAZINKA Marie Jeanine (MFPDE): Membre; 8. Mr HATUNGIMANA Alain (MFPDE): Membre; 9. Mr BARAMPANZE Gervais (UNFPA): Membre; 10.Dr NTAKARUTIMANA Donatien (USAID): Membre; 11.Dr CIZA Alphonse (OMS): Membre; 12.Mme DASTEL Beate (UNICEF): Membre; 13.Dr NKURUNZIZA Donatien (Coopération Suisse): Membre.
