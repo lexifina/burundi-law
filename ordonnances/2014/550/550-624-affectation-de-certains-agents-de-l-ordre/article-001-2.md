@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommés membres de la commission char-gée de la mise en place d’un « Plan d’investissement minimum » dans le cadre de la privatisation de l’ONATEL: 1. Monsieur Gilbert BARANYIZIGIYE, Directeur Général de l’ONATEL, Président; 2. Monsieur Pacifique MUNYESHONGORE, Com-missaire Général Adjoint du SCEP, Vice-président; 3. Monsieur Christophe MASUMBUKO, Expert Éco-nomiste au SCEP, membre; 4. Madame NIZIGIYIMANA Marie Conseiller au Cabinet du Ministre à la Présidence chargé de la Bonne Gouvernance et de la Privatisation; 5. Monsieur Siméon CUBWA, Directeur Technique à l’ONATEL, membre; 6. Monsieur Herman BARUTWANAYO cadre de l’ONATEL.
