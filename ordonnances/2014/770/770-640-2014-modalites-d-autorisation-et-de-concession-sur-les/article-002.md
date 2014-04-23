@@ -1,0 +1,3 @@
+# Article 2
+
+Sous réserve de l’utilisation de l’eau à des fins domestiques ou pastorales par les populations riveraines, personne ne peut mener des activités sur les eaux du domaine public hydraulique s’il ne dispose pas préalable-ment d’une autorisation ou concession valide, selon les distinctions opérées par les articles 94 à 110 du Code de l’eau. En cas de contraventions aux dispositions de l’alinéa pré-cédent et sans préjudice des sanctions prévues par le Code de l’eau, le Ministre en charge de la gestion des res-sources en eau peut ordonner la démolition, par le contre-venant ou aux frais de celui-ci, des installations, des ouvrages et des travaux réalisés.
