@@ -1,0 +1,5 @@
+# Article 6
+
+La présente ordonnance entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 23/04/2014 Le Ministre des Finances et de la Planification du Développement Économique Hon. Tabu Adballah MANIRAKIZA (sé).
