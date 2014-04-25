@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Ges-tion des Marchés Publics dans la commune BUTA-GANZWA, les personnes dont les noms suivent: 1. NDIKUMANA Abraham: Président; 2. HAKIZIMANA Onésime: Membre; 3. NDORERAHO René Pascal: membre; 4. NDIHOKUBWAYO Sophie: membre; 5. NDARUFATIYE Rémy: membre; 6. NIMPAYE Delphine: membre; 7. DENDEREZA Mathias: membre; 8. AHISHAKIYE Alvère: membre; 9. NTIBAGAYIMVO Claver: membre; 10.NIMUBONA Claver: membre; 11.MANIRAMBONA Suavis: membre; 12.NTOROGO Jean Marie: membre; 13.NTAKARUTIMANA Gérard: membre; 14.SABARUGIRA Réverien: membre; 15.NTIRUHWAMA Stany: membre.
