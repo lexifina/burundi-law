@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de Ges-tion des Marches Publics dans la commune BUGE-NYUZI, les personnes dont les noms suivent: 1. NICAYENZI Jérôme: Président; 2. NZITONDA Eloussa: Membre; 3. ARAKAGWIRA Arthur: Membre; 4. HAVYARIMANA Ferdinand: Membre; 5. SINDAYIGAYA Alexis: Membre; 6. GAKECURU Spéciose: Membre; 7. NDUWAYO Onesphore: Membre; 8. NDAYIKENGURUKIYE Prucherie: Membre; 9. NGENDAKUBWAYO Jeudi Saint Pascal: Membre; 10.CIZA Jean Bosco: Membre; 11.NTANEZA Manassé: Membre; 12.NIZIGIYIMANA Didace: Membre; 13.HAVYARIMANA Georges: Membre; 14.NDUWIMANA Léonard: Membre; 15.MANIRAKIZA Désire: Membre.
