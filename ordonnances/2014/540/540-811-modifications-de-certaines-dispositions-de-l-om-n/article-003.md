@@ -1,0 +1,3 @@
+# Article 3
+
+Toute marchandise à destination du Burundi doit obligatoirement se conformer aux prescriptions du Bordereau Électronique de Suivi des Cargaisons « BESC » et se soumettre à la procédure internationale y afférente à l’exception des biens importés par des personnes bénéficiaires de la franchise douanière et/ou fiscale en vertu des accords, traités et conventions signés par le Burundi dans le cadre bilatéral ou multilatéral ainsi que les marchandises importées par des personnes privilégiées en vertu de la loi sur la gestion des Douanes de la Communauté Est Africaine et par des instruments juridiques nationaux.
