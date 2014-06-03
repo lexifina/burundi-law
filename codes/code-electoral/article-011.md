@@ -1,3 +1,3 @@
 # Article 11
 
-L'inscription sur le rôle électoral est constatée ct attestée par la délivrance d'une carte d'électeur dont la présentation au moment du vote est obligatoire.
+Les électeurs sont convoqués par décret du Président de la République quarante-cinq jours calendrier au plus tard et soixante jours calendrier au plus tôt avant la date du scrutin. Néanmoins, lorsque deux ou plusieurs consultations sont organisées dans un intervalle n’excédant pas trois mois, les électeurs peuvent être convoqués par un décret unique.

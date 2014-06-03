@@ -1,7 +1,3 @@
 # Article 77
 
-Elle est compétente pour connaître de toute question et exception posée ou soulevée à l'occasion de la requête, mais sa décision n'a d'effet juridique qu'en ce qui concerne l'objet de ladite requête.
-
-CHAPITRE V. Dispositions pénales.
-
-Section 1. Dispositions générales.
+La proclamation officielle des résultats par la Cour Constitutionnelle doit intervenir au plus tard le neuvième jour calendrier à partir de celui de leur transmission.

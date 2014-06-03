@@ -1,3 +1,3 @@
 # Article 128
 
-Les candidats à l'Aso:emblée Nationale remplissan t les conditions définies aux articles 122 et 123 déposent leurs candidatures auprès du Gouverneur de Province, par lettre recommandée ou par porteur con tre accusé de réception, dans les délais déterminés par le décret de convocation des électeurs.
+Les candidats indépendants se présentent également sur une liste bloquée d’un nombre égal au double du nombre de sièges à pourvoir dans la circonscription, Pour trois candidats inscrits à la suite sur une liste, deux seulement peuvent appartenir au même groupe ethnique, et au moins un sur quatre doit être une femme.

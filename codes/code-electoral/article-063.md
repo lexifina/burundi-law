@@ -1,3 +1,3 @@
 # Article 63
 
-Il est institué une Commission de Vérification, ci-après dénommée « la Commission », chargée de s'assurer de la régularité du scrutin et notamment de vérifier la composition régulière des Bure,aux E---'~-----------------------------------------------------------------------------------------------------------------------lectoraux, le respect des prescriptions de l'article 31, le libre exercice des droits des électeurs et les conditions de dépouillement et de dénombrement des suffrages.
+Le dépouillement suit immédiatement la clôture du vote et se fait au lieu où s’est déroulé le vote. Il est conduit sans désemparer jusqu’à son achèvement complet à l’aide des scrutateurs choisis par le Président parmi les électeurs présents sachant lire et écrire, opérant sous la surveillance et la responsabilité des membres du bureau de vote en présence des mandataires des partis politiques, des candidats indépendants.

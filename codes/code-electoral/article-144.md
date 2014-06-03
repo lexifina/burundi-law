@@ -1,3 +1,3 @@
 # Article 144
 
-Les r~sultats de l'ensemble du scrutin sont arrêtés et proclamés par le Ministre de l'Intérieur, qui puQ RO,B. n 6/84 blie un tableau faisant ressortir les résultats dans chaque circonscription électorale ct une liste des candidats ainsi élus, classés par ordre décroissant du nombre de voix obtenues.
+La législature est la période pendant laquelle le Sénat est appelé à exercer son mandat. Elle commence à l’expiration du mandat de la législature en cours et prend fin à l’expiration d’un délai de cinq ans.

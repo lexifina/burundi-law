@@ -1,3 +1,5 @@
 # Article 10
 
-L'inscription sur le rôle électoral est effectuée sur présentation de la carte nationale d'identité ou de toute autre pièce d'identification régulière, ainsi que de tout document de nature à permettre la vérification de la qualité d'électeur du comparant.
+Lorsqu’une cause d’incapacité survient entre la clôture du rôle électoral et le vote, les membres de la Commission Electorale Communale Indépendante (CECI), agissant collégialement, la constatent et font rapport à la Commission Electorale Provinciale Indépendante pour décision.
+
+CHAPITRE II DES ROLES ELECTORAUX ET DE LEUR ETABLISSEMENT

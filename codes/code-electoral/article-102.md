@@ -1,5 +1,3 @@
 # Article 102
 
-La répartition des suffrages exprimés, au sen:. du
-
-6° du premier alinéa de l'article 62, est mentionnée au procès-verbal de dépouillement en nombre de voix exprimés pour le candidat et en nombre de voix exprimés contre.
+Il est interdit de déposer des emblèmes, couleurs ou signes semblables. Lorsque plusieurs candidats concurrents adoptent des emblèmes, couleurs ou signes semblables, préférence est accordée au candidat qui a déposé le premier sa candidature. Néanmoins, lorsque les candidats sont présentés par les partis politiques, il est tenu compte des signes distinctifs déposés au Ministère de l’Intérieur lors de la demande d’agrément. Lorsque plusieurs candidats de partis politiques ou coalitions de partis, pour des raisons de campagne adoptent des emblèmes, couleurs ou signes semblables autres que ceux déposés au ministère ayant l’intérieur dans ses attributions lors de la demande d’agrément, préférence est accordée au candidat qui a déposé le premier sa candidature. Lorsque plusieurs partis politiques/candidats indépendants ou coalitions, pour des raisons de campagne adoptent des emblèmes, couleurs ou signes semblables, préférence est accordée au candidat qui a déposé le premier sa candidature. La Commission Electorale Nationale Indépendante statue sur la recevabilité de la candidature dans un délai de quatre jours calendrier.

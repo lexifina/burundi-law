@@ -1,5 +1,3 @@
 # Article 136
 
-Les conditions dans lesquelles les candidats pourront effectuer leur campagne électorale, notamment en ce qui concerne la tenue de réunions électorales et la diffusion ou l'affichage de thèmes électoraux, seront déterminées par décret.
-
-Section 5. Déroulement du scrutin, dépouillement et établissement des résultats.
+La répartition des sièges se fait proportionnellement aux suffrages obtenus par les différentes listes. Après avoir éliminé les listes qui ne totalisent pas deux pour cent (2%) des suffrages au niveau national, on répartit alors les sièges aux listes qui demeurent en compétition.

@@ -1,3 +1,5 @@
 # Article 97
 
-Le scrutin doit avoir lieu vingt jours au moins ct quarante jours au plus avant l'expiration du mandat du Président de la République en exercice,
+Chaque candidature aux élections présidentielles doit être parrainée par un groupe de deux cents personnes formé en tenant compte des composantes ethniques et du genre. Ce groupe doit revêtir un caractère national.
+
+Les membres du groupe de parrainage doivent eux-mêmes réunir les conditions de fond requises pour l’éligibilité aux élections législatives.

@@ -1,3 +1,3 @@
 # Article 39
 
-Mention de l'ensemble des opératiollu et vérifications visées aux deux ar ticles précédents, ain~i que de l'identité des électeurs désignés comme témoins et, éventuellemen t, comme remplaçants, est fai t au procès-verbal. ~ 2. Déroulement du scrutin et modalités du vote .'
+Chaque bureau de vote est doté d’un ou de plusieurs isoloirs. Les isoloirs doivent assurer le secret du vote. Le vote se fait dans une ou plusieurs urne(s) selon le(s) type(s) de scrutin dont le modèle et l’emplacement sont déterminés par la Commission Electorale Nationale Indépendante.

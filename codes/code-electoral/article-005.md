@@ -1,5 +1,3 @@
 # Article 5
 
-Sont défi.1itivement exclus du droit de vote, sous réserve des dispositions de J'article suivant: 1 0 les personnes condamnées à une peine principale criminelle supérieure à dix ans de servitude pénale ;
-
-2° les personnes condamnées à une peine supérieure à un an de servitude pénale du chef d'atteinte à la süreté extérieure de l'Etat; 3" les militaires condamnées pour désertion à plus d'un an de servitude pénale.
+Sont frappées d’incapacité électorale temporaire : 1. les personnes placées en détention préventive conformément aux dispositions du Code de procédure pénale ; 2. les personnes placées en détention en exécution d’une peine de servitude pénale principale ou subsidiaire ou en exécution d’une contrainte par corps ; 3. les personnes mises à la disposition du Gouvernement en application des articles 82 et suivants du Code pénal ; 4. les personnes internées ou hospitalisées pour cause d’aliénation mentale ou en vertu de toute autre mesure de défense sociale ; 5. les personnes faisant l’objet d’une mesure d’interdiction par application des dispositions du chapitre premier du titre XIV du Code des personnes et de la famille ; 6. les personnes faisant l’objet d’une condamnation à la dégradation civique les privant des droits visés aux points 1 et 2 de l’article 66 du Code pénal.

@@ -1,3 +1,3 @@
 # Article 20
 
-Toute personne inscrite au rôle électoral doit, à peine des sanctions prévues à l'article 80, accomplir 1 son devoir de citoyen ct voter, soit personnellement, soi l pal procuration dans les cas visés à J'article 23.
+Les listes provisoires des électeurs peuvent être consultées par toute personne intéressée. Elles sont affichées aux centres d’inscription et aux bureaux des Communes. Elles peuvent également être affichées en tout autre endroit public approprié qui est déterminé par la CENI.

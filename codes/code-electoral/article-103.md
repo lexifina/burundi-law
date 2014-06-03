@@ -1,3 +1,3 @@
 # Article 103
 
-Les dispositions des deux premiers alinéas de l'article 100 sont applicables à l'établissement, à la transmission et à la conservation du procès-verbal de dépouillemen t.
+En cas de rejet de candidature, la décision de la Commission Electorale Nationale Indépendante doit être motivée sur tous les points de non-conformité à la Constitution et à la présente loi. Dans les deux jours calendrier qui suivent la signification de cette décision, toute contestation peut être portée devant la Cour Constitutionnelle qui dispose d’un délai de huit jours calendrier pour statuer définitivement.

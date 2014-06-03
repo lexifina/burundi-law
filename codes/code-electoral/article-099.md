@@ -1,3 +1,5 @@
 # Article 99
 
-La Commission visée à ['article 63 est composée d'un président, choisi parmi les magistrats de l'ordre judiciaire, et d'autant de membres que nécessaire, choisis parmi les personnes reconnues pour leur probité, leur impartialité et lcur ~ens patriotique, tous désignés par décret.
+Dans le cas où le candidat élu Président de la République occupait une fonction publique, il est placé d’office en position de détachement dès la proclamation des résultats. Dans le cas où il occupait une fonction privée, rémunérée ou non, pour son propre compte ou pour le compte d’un tiers, il cesse toute activité dès la proclamation des résultats.
+
+CHAPITRE III DE LA DECLARATION DE CANDIDATURE

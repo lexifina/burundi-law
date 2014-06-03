@@ -1,3 +1,3 @@
 # Article 118
 
-Dans chaque circonscription électorale, les électeurs procèdent à l'élection d'un nombre de R~I-Iésentants égal au quotient du nombre total d'habitants de ladite circon5criptioll par quatr~-vingts mille. Si ce quotient comporte des décimales, il est arrondi au nombre entier supérieurs lorsque ces décimales sont égales ou supérieurs à cinq dixièmes et au nombre -mtier inférieur dans I~ ca~ contraire.
+Le mandat de député est incompatible avec toute autre fonction à caractère public, électif ou non. Tout agent public, statutaire ou contractuel, qui est élu comme député est d’office placé dans la position de détachement.

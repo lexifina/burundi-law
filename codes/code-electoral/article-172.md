@@ -1,3 +1,9 @@
 # Article 172
 
-Les dispositions des articles 104 à 109, celles de ['article 110 et celles de J'article 112 son t applicables, mutatis mutandis. à la centralisation des résultats, à la vérification de la régularité du scrutin. aux pouvoirs de la Chambre constitutionnelle et à la proclamation des résultats du référendum.
+Le candidat membre du Conseil de colline ou de quartier doit :
+
+a) être de nationalité burundaise ;
+
+b) être légalement domicilié à la colline ou dans le quartier ou y résider en permanence ;
+
+c) être âgé de vingt-cinq ans révolus au moment de l’élection.

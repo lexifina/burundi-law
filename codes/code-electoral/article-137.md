@@ -1,3 +1,9 @@
 # Article 137
 
-Le procès-verbal de déroulement visé à l'article 52 est établi en un original et en quatre copies certifiées. L'original et deux copies certifiées son t adressés au Gouverneur de Province, 1 copie est adressée au Président de la Commission visée à l'article 63, et le dernier exemplaire étant conservé sur place. Les modalités desdites transmissions sont précisées par le Ministre de l'Intérieur. Dans le cas visé au second alinéa de l'article 30 et aux articles 53 et 54, l'original et la copie destinée au Gouverneur de Province d'un procès-verbal établi par un bureau secondaire, son t transmis sous couvert • du Président du Bureau Electoral chal du dépouillement, qui les annexe au procès-verbal de déroulelement dudit Bureau.
+Il est procédé à la répartition des sièges suivant la méthode des plus forts restes décrite ci-après :
+
+a) on calcule le quotient électoral en divisant le nombre de suffrages exprimés par le nombre de sièges à pourvoir ;
+
+b) on divise ensuite le nombre de suffrages obtenus par chaque liste par le quotient électoral et on attribue à chaque liste autant de sièges qu’il a atteints de fois le quotient ;
+
+c) le ou les sièges non pourvus sont enfin attribués aux listes en compétition dans l’ordre successif des plus forts restes.

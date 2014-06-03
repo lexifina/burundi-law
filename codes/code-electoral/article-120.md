@@ -1,3 +1,3 @@
 # Article 120
 
-Sont élus, dans la limite du nombre de sièg>s à pourvoir, les candidats ayant obtenu le plus grand nombre de voix dans J'ensemble de la cilconscription électorale considérée. En cas de partage des voix, le est attribué au candidat le plus âgé.
+L’exercice de fonctions conférées par un Etat étranger ou par une organisation internationale est également incompatible avec le mandat de député.

@@ -1,5 +1,9 @@
 # Article 135
 
-Les recours Vlses à l'article précédent doivent être introduits au plus tard quinze jours avant la date des élections auprès de la Chambre Administrative de la Cour Suprême, par simple déclaration au greffe de ladi te Chambre.
+A la déclaration de candidature, une somme de cinq cent mille francs burundais par liste déposée doit avoir été versée sur un compte du Trésor public ouvert à cet effet à la Banque de la République du Burundi.
 
-La Chambre Administrative statue, sans frais ni forme de procédure, sur simple avertissement donné deux jours à l'avance à toutes les parties intéressées au plus tard le huitième jour précédant le jour du scrutin. Une copie de la décision est délivrée sans frais ni délai aux parties intéressées et il est immédiatement opéré rectification de la liste de candidatures concernée.
+Le défaut de cautionnement est sanctionné par l’irrecevabilité de la liste de candidats par la Commission Electorale Nationale Indépendante. Cette caution est remboursée en totalité si le parti ou la liste d’indépendants est déclaré irrecevable. Cette caution est également remboursée en totalité si le parti ou la liste d’indépendant obtient 2 % au moins au niveau national.
+
+Le retrait de candidature ne donne pas droit au remboursement.
+
+CHAPITRE V DE LA REPARTITION DES SIEGES

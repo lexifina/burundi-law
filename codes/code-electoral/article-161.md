@@ -1,3 +1,3 @@
 # Article 161
 
-Lorsqu'un Représentant exerce par ailleurs une fonction politique et touche à ce titre une ou plusieurs indemnités il ne peut y avoir cumul entre ces dernières et celles de Représentants. Seules les indemnités versées à J'un ou l'autre titre dont le total est le plus élevé sont dues.
+La déclaration des candidatures est déposée au siège de la Commission Electorale Nationale Indépendante par l’intéressé. La Commission Electorale Nationale Indépendante délivre un récépissé de ce dépôt. Elle dispose d’un délai de sept jours calendrier pour en vérifier la recevabilité.

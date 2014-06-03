@@ -1,3 +1,5 @@
 # Article 159
 
-Les agents statutaires de l'Etat optant pour l'exercice du mandat de Représentant sont placés en po· sition de détachement suivant les dispositions en vigueur du statut de la Fonction Publique, des Forces Armées et de la Magistrature. § 2. 1 nclemnités. •
+Nonobstant les dispositions de l’article 158 alinéa 3 ci-dessus, ne constituent pas des causes d’inéligibilité et n’empêchent pas la présentation de candidature, les condamnations pour délits d’imprudence hors le cas de délits de fuite, de conduite d’un véhicule automobile sans permis ou en état d’ivresse ou de défaut d’assurance concomitants.
+
+CHAPITRE IV DE LA DECLARATION DES CANDIDATURES

@@ -1,3 +1,3 @@
 # Article 110
 
-11 est nécessairemen t fai t application des dispositions de l'article 108, lorsqu'il s'avère, en supposant tour à tour que les électeurs inscrits dans les bureaux de vote concernés ont tous voté pour ou contre le candidat, que les irrégularités constatées n'ont eu aucune incidence sur son élection ou sa non élection, mais simplement sur le nombre de voix qu'îl a obtenues.
+Dès sa première session, l’Assemblée Nationale adopte son règlement intérieur qui détermine son organisation et son fonctionnement. Elle met également en place son Bureau composé du Président et de deux Vice-présidents en tenant compte des équilibres ethnique et de genre. Le nombre de groupes parlementaires est fixé dans le règlement intérieur. Cette session est présidée par le député le plus âgé.

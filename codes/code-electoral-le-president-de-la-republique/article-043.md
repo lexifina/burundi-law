@@ -1,7 +1,0 @@
-# Article 43
-
-Les mandataires doivent inscrire ou faire inscrire toutes leurs observations au procès-verbal unique combinant les opérations de vote et les résultats. Ces observations sont obligatoirement suivies de la signature de leurs auteurs. Un exemplaire de ce procès verbal unique est remis à la CECI, à la CEPI, à la CENI, à un mandataire par parti ou candidat indépendant représentés au bureau de vote et à la Cour Constitutionnelle selon le type de scrutin.
-
-Les membres du bureau de vote sont tenus, sous peine de s’exposer aux sanctions prévues par le présent Code, de faire consigner toutes les observations qui leur sont adressées en vertu de l’alinéa premier ci-dessus. Seules les observations enregistrées sont prises en considération à l’appui d’une requête ultérieure introductive d’un contentieux électoral.
-
-La signature ou l’empreinte digitale d’un mandataire présent par parti politique ou candidat indépendant sur le procès-verbal est obligatoire. Dans tous les cas, la non signature ou l’absence d’empreinte digitale de l’un ou l’autre mandataire sur le procès-verbal n’invalide pas les résultats.

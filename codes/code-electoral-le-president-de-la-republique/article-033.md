@@ -1,3 +1,0 @@
-# Article 33
-
-Les pratiques publicitaires de caractère commercial, les dons et libéralités en argent ou en nature à des fins de propagande pour influencer ou tenter d’influencer le vote durant la campagne électorale sont interdits. De même, l’utilisation des biens ou moyens d’une personne morale publique, institution ou organisme public, aux mêmes fins est interdite.

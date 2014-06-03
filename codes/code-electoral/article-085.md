@@ -1,5 +1,5 @@
 # Article 85
 
-Sera puni des peines énoncées à l'article 82, celui qui, par quelque moyen que ce soit et en violation des dispositions de l'article 12, se serait fait inscrire ou aura fait inscrire un tiers sur plusieur~ rôles électoraux. Sera puni des peines énoncées au premier alinéa de l'article 84, celui qui aura profité d'une inscription multiple pour voter plus d'une fois. ArL 86. Sera puni des peines énoncées au second alinéa de l'article 84, celui qui, accompagnan l un électeur dans l'isoloir en vertu des dispositions des second et troisième alinéas de l'article 43, aura émis un suffrage différent de celui qui lui aura été dicté par ledi t électeur.
+La Cour Constitutionnelle ne peut être saisie que par une requête écrite. Cette requête doit être reçue au greffe de la Cour dans un délai de trois jours calendrier qui suivent la proclamation provisoire des résultats du scrutin.
 
-Section 4. Des manŒuvres et violences commises pour fausser la liberté de vote et troubler le scrutin.
+Le droit de contester une élection appartient aux partis politiques, candidats indépendants ou coalition intéressés, et à toutes les personnes inscrites sur les listes électorales de la circonscription concernée.

@@ -1,3 +1,3 @@
 # Article 34
 
-Le Président du Bureau Electoral est chargé de prendre toute disposition et toute mesure pour assurer le bon déroulement du scrutin, ainsi que l'ordri: et la tranquilité à l'intérieur et aux abords du bureau de vote. I! assure la police de vote et a qualité d'officier de police judiciaire à compétences territoriale et matérielle restreinte: il constate les infractions commises à l'intérieur et aux abords du bureau de vote et étant en rapport avec le déroulement du scrutin. Il peut, aux fins susvisées, r~quérir les autorités civiles et militaires de lui prêter main-forte et assistance,
+Il est interdit de distribuer pendant les heures de service, sur les lieux du travail, tout document ou tout autre support de propagande électorale. Toute distribution de ces documents est également interdite dans les enceintes des établissements scolaires et universitaires publics et privés.

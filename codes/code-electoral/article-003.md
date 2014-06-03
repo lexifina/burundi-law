@@ -1,9 +1,5 @@
 # Article 3
 
-Est électeur, toute pen;onne de l'un ou J'autre sexe remplissant les conditions suivantes : -
+La Commission Electorale Nationale Indépendante dont les missions et la composition sont déterminées par la Constitution garantit la liberté, l’impartialité et l’Indépendance du processus électoral. Son mandat, son organisation et son fonctionnement sont déterminés par décret.
 
-1° avoir la nationalité burundaise et jouir de ses droits politiques;
-
-2° être agé de dix huit ans accomplis ;
-
-3° ne pas être dans un des cas de suspension ou d'exclusion du droit de vote prévus par la loi.
+TITRE II DES DISPOSITIONS COMMUNES A TOUS LES TYPES D’ELECTIONS CHAPITRE I DES CONDITIONS REQUISES POUR ETRE ELECTEUR

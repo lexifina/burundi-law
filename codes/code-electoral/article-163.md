@@ -1,3 +1,3 @@
 # Article 163
 
-Conformémen t au principe posé par l'article 2 de la constitution, le référendum est un des modes d'exelcice de la souveraineté du peuple. 11 ne peut y être recouru que dans le cas prévus par la Const i tu tion et rappelés à l'article suivant.
+En cas de rejet de candidature, la contestation peut être portée par le candidat devant la Cour Constitutionnelle qui dispose d’un délai de huit jours calendrier pour statuer. Le requérant doit saisir la Cour Constitutionnelle dans les quarante-huit heures suivant la signification de la décision de rejet.

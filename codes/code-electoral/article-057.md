@@ -1,3 +1,3 @@
 # Article 57
 
-Lorsque les circonstances le constitué plusieurs équipes de procèdent aux opérations ci-après urne. Il est tout d'abord procédé au kurs ayant participé au vote. permettent, il es. dépouillement qui décrites urne par comptage des élecLe nombre des bulletins trouvés dans les urn~s doit être identique à celui du nombre de& votants. Si une différence existe et si elle ne peut être éhminée par des comptages de vérification, mention est en faite au procès-verbal de dépouillcment.
+Tout électeur atteint d’une infirmité certaine le mettant dans l’impossibilité d’apposer son empreinte digitale devant l’insigne du parti ou de la liste des candidats indépendants de son choix et de déposer le bulletin de vote dans l’urne est autorisé à se faire assister d’une personne de son choix ayant qualité d’électeur.

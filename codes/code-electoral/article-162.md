@@ -1,5 +1,21 @@
 # Article 162
 
-A l'exception du Président et du Vice-Président de l'Assemblée Nationale, qui peuvent bénéficier d'un logement de fonction, les Représentants ne bénéficient ni de logement en natUle, ni d'indemnité de logement, ni d'aucune autre indemnité qui ne serait pas prévue à la présente section.
+Le dossier de candidature, établi en quatre exemplaires, contient pour chaque candidat :
 
-CHAPITRE III. Dispositions spéciales au référendum.
+a) un curriculum vitae ;
+
+b) une photocopie de la carte nationale d’identité ;
+
+c) un extrait du casier judiciaire ;
+
+d) un extrait de l’acte de naissance ou de toute autre pièce en tenant lieu ;
+
+e) une attestation de résidence ;
+
+f) une attestation d’aptitude physique ;
+
+g) quatre photos passeport ;
+
+h) le bordereau de versement de la caution ;
+
+i) un acte de souscription à la Charte de l’Unité Nationale et aux principes fondamentaux suivants: le respect, la sauvegarde et la consolidation de l’unité nationale ; la protection et la promotion des droits fondamentaux de la personne humaine; la promotion d’un Etat de droit fondé sur le respect et la défense de l’intégrité du territoire et de la souveraineté nationale; la proscription de l’intolérance, de l’ethnisme, du régionalisme, de la xénophobie, du recours à la violence sous toutes ses formes.

@@ -1,3 +1,3 @@
 # Article 13
 
-A la clôture du rôle électoral, il est dressé un procès-verbal en original, adressé au Tribunal de Résidence territorialement compétémt, ct en trois copie" certifiées, dont l'une est conservée sur place et les deux autres transmises au GOt! verneur de Province.
+La Commission Electorale Nationale Indépendante, en collaboration avec le Ministère ayant l’état civil dans ses attributions, peut décider que la tenue des rôles soit permanente ou qu’elle fasse l’objet d’une révision périodique selon les modalités qu’elle détermine.

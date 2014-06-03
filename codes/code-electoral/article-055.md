@@ -1,3 +1,3 @@
 # Article 55
 
-Les opérations de dépouil\ement doivent commencel dès la clôture du procès-verbal visé à l'article 52 ou dès l'accomplissement des formalités visées à l'article précédent, sauf cas de force majeure et suivant les conditions délel minées par le décret de convocation de, éh cteurs.
+Les agents de l’ordre ne peuvent être placés à l’intérieur ou aux abords immédiats du bureau de vote, sauf en cas de réquisition par le Président du bureau de vote.

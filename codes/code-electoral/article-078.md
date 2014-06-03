@@ -1,3 +1,3 @@
 # Article 78
 
-Les membres des bureaux électoraux, de" Commissions électorales spéciales visées à l'article 30 et de la Commission de Vérification visée à l'article 63, ainsi que toute autre personne ou autorité compéten te qui auront connaissance ou auxquels aura été révélés des faits constitutitifs d'infraction au présent code, communiqueJOnt sans délai le dossier au Procureur de la République compétent.
+Avant de procéder à la proclamation officielle des résultats du scrutin, la Cour Constitutionnelle vérifie, au vu des documents lui transmis par la Commission Electorale Nationale Indépendante, la régularité dudit scrutin, tant en ce qui concerne son déroulement que le dépouillement et l’établissement des résultats.

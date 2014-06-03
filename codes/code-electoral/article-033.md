@@ -1,3 +1,3 @@
 # Article 33
 
-Le Bureau Electoral est chargé d'effectuer ou, selon le cas, de superviser les opérations décrites dans les deux sections suivantes et de les constater dans les procès-verbaux visés aux articles 52 et 54.
+Les pratiques publicitaires de caractère commercial, les dons et libéralités en argent ou en nature à des fins de propagande pour influencer ou tenter d’influencer le vote durant la campagne électorale sont interdits. De même, l’utilisation des biens ou moyens d’une personne morale publique, institution ou organisme public, aux mêmes fins est interdite.

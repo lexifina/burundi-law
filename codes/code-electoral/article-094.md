@@ -1,9 +1,15 @@
 # Article 94
 
-Toute personne appelée, pour l'une ou l'autr;: d;::s mêmes raisons, à recevoir, surveiller, compter, dépouiller ou transporter les bulletins contenant les suffrages, à établir ou transporter les procès-verbaux de dépouillement ou à centraliser et établir ou publier le~ réoultats du scrutin, qui aUla modifié frauddeusemen t ces derniers, sera puni d'une amende de vingt mille francs au maximum et d'une peine de servitude pénale de cinq à dix ans, ou de l'une de ces peines seulem.:nt. Tl y a modification frauduleu~e des résultats du scrutin, au sens des alinéas précédent et second de l'article 88, lorsque, notamment, il a été soustrait, ajouté, substitué ou altéré un bldletin de vok con· tenant un suffrage, énoncé un autre suffrage que celui inscri t sur le bulletin lu, falsifié ou altéré un procès· verbal de dépouillement, fabifié d'une manière quelconque les résultats Jors de leur centralisation, ou publié ou fait publier sciemment des résultats falsifiés Sera reconnue complice de l'infraction visee au premier alinéa, toute personne qui, assistant aux faits énoncés à l'alinéa précédent, ne les aura pa, empêchés personnellemen t ou ne les aura pas dénoncés immédiatement à l'autorité compélente Art 95.
+Le candidat aux fonctions de Président de la République doit :
 
-La condamnation éventuellement prononcée par application des dispositions des deux articles précéden ts ne pourra, en aucun cas, a voir pour effet d'annuler 1::: :>crutin déclaré valide: par Ic:, autorités compétcntes ou dont les résultats sont tenus définitifs par l'absence de tout recours formés dans les condi. tions et délais prévus à la seconde section du précé· dent chapi tre.
+a) avoir la qualité d’électeur dans les conditions prévues par les articles 4 à 10 du présent Code ;
 
-TITRE II. Dispositions spéciales.
+b) être de nationalité burundaise de naissance ;
 
-CHAPITRE l. Dispositions spéciales à l'élection du Président de la République.
+c) être âgé de trente cinq ans révolus au moment de l’élection ;
+
+d) résider sur le territoire du Burundi au moment de la présentation des candidatures ;
+
+e) jouir de tous ses droits civils et politiques;
+
+f) souscrire à la Charte de l’Unité Nationale et exprimer son adhésion aux principes fondamentaux suivants : le respect, la sauvegarde et la consolidation de l’unité nationale ; la protection et la promotion des droits fondamentaux de la personne humaine; la promotion d’un Etat de droit fondé sur le respect et la défense de la démocratie ; la défense de l’intégrité du territoire et de la souveraineté nationale ; la proscription de l’intolérance, de l’ethnisme, du régionalisme, de la xénophobie, du recours à la violence sous toutes ses formes. En outre, si le candidat a été condamné pour délit à une servitude pénale égale ou supérieure à six mois, il doit avoir entièrement purgé cette peine depuis au moins quatre ans. De même, s’il a été condamné pour crime à une servitude pénale égale ou supérieure à cinq ans, il doit avoir entièrement purgé sa peine depuis au moins dix ans.

@@ -1,3 +1,3 @@
 # Article 70
 
-La proclamation officielle des résultats définitifs par l'autorité compétente doit intervenir au plus tard le quatrième jour suivant celui du scrutin.
+Nul ne peut, sous peine de sanctions prévues par la loi, emporter hors du bureau de vote, un quelconque bulletin de vote.

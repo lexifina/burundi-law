@@ -1,3 +1,3 @@
 # Article 98
 
-Le décret de convocation des électeurs visé à l'article 27 fixe la date du scrutin conformément aux dispositions dudit article et de J'articlc précédent. 11 précise l'identité du candidat, sa qualité de Présiden t du Parti U prona et la date de son élection à ce poste. Il définit en outre les modalités d'applications des articles 29 à 32, directement ou en renvoyant tout ou partie de cette définition au Ministre de l'Intérieur par délégation de compét~nce. Il indique enfin les modalités selon lesquelles s'exprimeront les suffrages, et notamment le nombn: des urnes ou de types de bulletins de vote mis à la disposi tion des électeurs.
+Les fonctions de Président de la République sont incompatibles avec l’exercice de toute autre fonction publique élective, de tout emploi public et de toute activité professionnelle.

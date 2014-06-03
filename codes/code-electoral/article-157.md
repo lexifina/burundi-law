@@ -1,3 +1,5 @@
 # Article 157
 
-Le règlement intérieur de l'Assemblée Nationale pourra, sur proposition du Bureau de celle-ci, dé· terminer toute autre activité jugée incompatible a vec l'exercice d'un mandat de Représentant ou consent i 1 d'éven tueHes dérogations.
+Sans préjudice des dispositions prévues à l’article 154 du présent Code, tout Sénateur exerçant une fonction incompatible avec son mandat est considéré comme démissionnaire d’office.
+
+CHAPITRE III DES CONDITIONS D’ELIGIBILITE ET DES CAUSES D’INELIGIBILITE

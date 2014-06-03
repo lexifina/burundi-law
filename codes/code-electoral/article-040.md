@@ -1,3 +1,5 @@
 # Article 40
 
-Chaque électeur vote, personnellement ou par procuration, au bureau de vote situé dans la commune ou dans la zone où il a été inscrit au rôle élec toral. Art. 41, Les électeurs ne peu ven t se présen ter à l'in ,érieul ou aux abords du bureau de vote en armes ou en troupe organisée.
+Un bureau électoral composé d’un Président et de quatre membres est désigné pour chaque bureau de vote par la Commission Electorale Communale Indépendante parmi les électeurs inscrits au rôle dudit bureau dans le respect des équilibres politiques, ethniques et de genre.
+
+La décision de nomination est notifiée aux intéressés et affichée aux portes du bureau de vote ou à tout autre endroit approprié proche du bureau de vote. Elle est également communiquée aux représentants des partis politiques œuvrant dans la commune au cours d’une réunion convoquée à cette fin par la Commission Electorale Communale Indépendante. Un recours contre le non respect de la diversité politique, ethnique et de genre de la composition du bureau électoral peut être adressé par quiconque, y compris les partis participant aux élections, à la Commission Electorale Provinciale Indépendante au plus tard trois jours après la désignation de ce bureau. La Commission Electorale Provinciale Indépendante statue définitivement dans un délai de quatre jours calendrier suivant sa saisine.

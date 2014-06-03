@@ -1,5 +1,5 @@
 # Article 71
 
-Dè, Je lendemain du scrutin et avant la proclamation officielle susvisée, le Ministre de l'Intérieur peut diffus;;:r un communiqué ou faire une déclaration portant sur le déroulement des élections.
+Aussitôt après le dépouillement, le Président du bureau donne lecture à haute voix des résultats. Mention de ceux-ci est portée au procès-verbal qui est clos par la signature des membres du bureau de vote et des mandataires conformément à l’article 43 du présent Code.
 
-Section 2. Recours contre les résultats du scrutin.
+CHAPITRE VIII DE L’ETABLISSEMENT DES RESULTATS ET DES RECOURS

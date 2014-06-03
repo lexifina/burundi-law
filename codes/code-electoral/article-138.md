@@ -1,5 +1,5 @@
 # Article 138
 
-Chaque électeur exprime son suffrage, en sens de l'article 46, en choisissant, parmi les candidats dont le nom figure sur le bulletin de vote qui lui est remis. ceux qu'il entend désigner comme Représentant,>, sans pou voir faire porter son choix sur plus de candats qu'il n'y a de à pourvoir dans la circonscription.
+En cas de désistement d’un parti ou d’une liste de candidats indépendants après les élections, les sièges sont répartis aux partis et aux listes de candidats indépendants siégeant au prorata des suffrages obtenus et sous réserve du respect des conditions prévues à l’article 136 du présent Code.
 
-Les modalités de formulation de ce choix sont définies par le Ministre d;: l'[ntérieur en fonction du type de bulletin de vote.
+TITRE V DES DISPOSITIONS PARTICULIERES AUX ELECTIONS DES SENATEURS CHAPITRE I DES CIRCONSCRIPTIONS, DU NOMBRE DE SENATEURS ET DE LA DUREE DE LA LEGISLATURE

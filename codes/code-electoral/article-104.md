@@ -1,5 +1,5 @@
 # Article 104
 
-Dès réception des procès-verbaux de dépouillemen t, le Ministre de l'In térieur dresse un procèsverbal de centralisation des résultats faisant res!>ortir, pour chacun des postes définis au premier alinéa de l'article 62, tel que complété par l'article 102, le total des chiffres obtenus sur l'ensemble du territoire national.
+A la déclaration de candidature, le candidat doit avoir constitué un cautionnement de quinze millions de francs burundais (15.000.000 Fr Bu) par le versement sur un compte du Trésor Public ouvert à cet effet à la Banque de la République du Burundi. Le défaut de cautionnement est sanctionné par l’irrecevabilité de la candidature par la Commission Electorale Nationale Indépendante. Cette caution est remboursée en totalité si la candidature est déclarée irrecevable. Cette caution est également remboursée en totalité si le candidat obtient 5% au moins des suffrages exprimés au premier tour. Le retrait de candidature ne donne pas droit au remboursement.
 
-Les modali tés d 'application du présent artlCli: pourron t être précisées dans le décret de con vocation des électeurs, les disposi tions du troisième alinéa de l'article 98 étant applicables.
+TITRE IV DES DISPOSITIONS PARTICULIERES AUX ELECTIONS DE DEPUTES CHAPITRE I DES CIRCONSCRIPTIONS, DU NOMBRE DE DEPUTES ET DE LA DUREE DE LA LEGISLATURE

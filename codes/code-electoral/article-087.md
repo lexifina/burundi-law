@@ -1,3 +1,5 @@
 # Article 87
 
-Quiconque aura, personnellement ou par l'entremise d'un tiers, usé d'un de~ moyens énumérés à l'article 81, en vue d'influencer le suffrage d'un ou de plusieurs électeurs, soit directement en incî tant à voter dans un sens, soit indirectement en '1ubordonnant l'exécution de sa promesse ou menace au résultat local ou général du scrutin, sera puni d'une amende qui n'excédera pas dix mille francs ou d'une de ces peines seulement. Si le moyen employé est de ceux énumérés aux second et quatrième alinéas dudit article 81, la peine de servitude pénale sera celle prévue à ce dernier alinéa, les dispositions du second alinéa étant en outre applicables. Si le moyen employé e~t de ceux énumérés au dernier alinéa dudits article 81, la peine de servitude pénale susvisée sera celle prévue audit alinéa. -
+La Cour Constitutionnelle dispose d’un délai de huit jours calendrier pour statuer sur la requête.
+
+TITRE III DES DISPOSITIONS PARTICULIERES AUX ELECTIONS PRESIDENTIELLES CHAPITRE I DES GENERALITES

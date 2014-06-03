@@ -1,3 +1,3 @@
 # Article 122
 
-Toute personne remplissant les conditions pour être électeur, telles que définies aux articles 3 à 5 du présen t code, et âgée de vingt cinq ans accompli5 peut être candidate à un siège de Réprésentant à l'Assemblée Nationale.
+Le député placé dans l’un des cas prévus à l’article 121 ci-dessus reprend ses fonctions dès que l’incompatibilité a disparu et pour autant que le mandat pour lequel il a été élu est en cours.

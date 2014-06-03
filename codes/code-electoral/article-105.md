@@ -1,3 +1,3 @@
 # Article 105
 
-Le MinistIe de J'Intérieur transmet ensuite sans délai le procès-verbal de centralisation des résultats et les originaux des procès-verbaux de déroulemen t et de dépouillemen t au Président de la Chambre Constitutionnelle de la Cour Suprême.
+Sous réserve des dispositions reprises au présent titre, les règles du Titre II restent applicables aux élections des députés. Il y a autant de circonscriptions électorales que de provinces, la Mairie de Bujumbura étant assimilée à une Province.

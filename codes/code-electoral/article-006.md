@@ -1,3 +1,3 @@
 # Article 6
 
-Les effets de la prescription de la peine, de la grâce, de J'amnistie ou de la réhabilitation sur l'appiication des articles 4-6", 4-7 0 et 5 du présent code, sont déterminés conformément aux principes posés respectivement par les articles 93 d suivants, Ill, 128 et 132 du code pénal.
+Lorsqu’un condamné est en liberté conditionnelle, son incapacité électorale subsiste jusqu’à l’expiration d’un délai égal à la durée d’incarcération qu’il avait encore à subir à la date de sa mise en liberté conditionnelle. Les personnes condamnées à une servitude pénale avec sursis sont frappées d’incapacité électorale pendant le double de la durée du sursis.

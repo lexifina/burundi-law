@@ -1,5 +1,7 @@
 # Article 146
 
-La Chambre administrative de la Cour Suprême est compétente pour connaître des lecours visés à l'article 72, qui peuvent lui être soumis par toute personne inscrite sur un rôle électoral par un candidat ou, hors les cas visés au second alinéa de l'article précéden t, par le Ministre de l'In térieur. Si elle constate des erreurs matérielles ou des irrégularités insusceptibles d'avoir eu une quelconque incidence sur l'élection ou la non élection d'un candidat, notament dans l'hypothèse visée au premier alinéa de l'article 110, elle prend toute décision utile de rectification ou d'annulation, mais seulement dans l'in térêt de la loi. Si elle constate des erreurs matérielles ou des irrégularités susceptibles par leur nombre et leur gravité, d'avoir eu une incidence, non seulement sur le nombre des voix obtenues par l'un ou l'autre des candidats, mais également sur leur élection ou leur non élection elle fait application, selon le cas, des principes posés par les articles 107 ou 109. Il est alors fait application, mutatis mutandis, des dispositions de l'article 111.
+Le mandat d’un Sénateur peut prendre fin avant son terme normal, soit en cas de vacance constatée par suite de décès, de démission, d’inaptitude physique, d’incapacité permanente, d’absence injustifiée à plus d’un quart de séances d’une session, ou de déchéance consécutive à la perte d’une condition d’éligibilité ou la survenance d’une cause d’inéligibilité. La vacance est constatée par la Cour Constitutionnelle saisie par le Bureau du Sénat.
 
-Section 7. Durée de la législature et du mandat des Représentants.
+Le mandat peut également prendre fin par survenance d’une des causes d’incompatibilité prévues au chapitre II du présent Titre.
+
+Le mandat d’un Sénateur peut aussi prendre fin quand il quitte volontairement le parti pour lequel il a été élu ou s’il en est exclu après avoir exercé toutes les voies de recours devant les juridictions compétentes.

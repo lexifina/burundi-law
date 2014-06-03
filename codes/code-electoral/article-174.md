@@ -1,5 +1,5 @@
 # Article 174
 
-Les dispositions de l'article 115 sont applicables au recours contre les résultats du scrutin, visé à 1'artic1~ 72.
+Dès l’ouverture de la Campagne électorale, la Commission Electorale Communale Indépendante organise des réunions électorales au cours desquelles les candidats se présentent au public et exposent leurs programmes.
 
-TITRE III. Dispositions diverses et finales.
+Les réunions électorales en dehors de ce cadre sont interdites.

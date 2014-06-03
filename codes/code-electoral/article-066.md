@@ -1,7 +1,5 @@
 # Article 66
 
-Les opérations et les constatations des membres de la Commission sont consignées dans des rapports communiqués sa.1S délais au Président de ladite Commission et, dans les cas visés il l'article 78, au Procureur de la République territorialement compétent.
+En cas de discordance entre les bulletins de vote distribués et les bulletins de vote dépouillés allant au-delà d’un seuil fixé par la CENI, au cours d’une élection présidentielle ou législative, la CENI saisit la Cour Constitutionnelle pour demander l’annulation de ce scrutin au bureau de vote concerné.
 
-La Commission établit un rapport de synthèse, transmis en original au Président de la Chambre Constitutionnelle de la Cour Suprême et en copie cer tifiée au Président de la Chambre Administrative de ladite Cour, ainsi qu'aux Ministres de l'Intérieur et de la Justice.
-
-Section 5. De la Conservation des documents relatifs au scrutin.
+La Cour Constitutionnelle se prononce dans un délai de sept jours calendrier à partir de la saisine par la CENI. En cas d’annulation par la Cour Constitutionnelle, la CENI organise un nouveau scrutin dans un délai de trente jours calendrier à partir de la signification de l’Arrêt. En cas de discordance allant au-delà d’un seuil fixé par la CENI au cours d’une élection communale ou collinaire, la CENI annule le scrutin au bureau de vote concerné. Dans ce cas, elle organise un nouveau scrutin endéans trente jours calendrier.

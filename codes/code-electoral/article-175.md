@@ -1,5 +1,3 @@
 # Article 175
 
-Les frais nécessaires à l'organisation des scru tins présidentiel, législatif ou référendaire sont à la charge de ['Etat.
-
-La loi visée au second alinéa de l'ar ticle 2 pourra prévoir une participation des communes à la charge résultant de l'organisation des élections visées audit article.
+Après les formalités prévues à l’article 56 alinéa 1er de la présente loi, chaque électeur reçoit d’un membre du bureau électoral un bulletin dont le modèle est fixé par la CENI. Il se rend directement dans l’isoloir et inscrit, à l’envers du bulletin, trois noms choisis parmi les candidats. L’électeur qui ne sait pas écrire peut recourir aux services d’un scribe de son choix ayant qualité d’électeur. Ensuite, il retourne et fait constater qu’il n’est porteur que d’un seul bulletin. Enfin, il introduit le bulletin dans l’urne en présence du bureau et du public. Tout bulletin comportant plus de trois noms est réputé nul.

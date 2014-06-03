@@ -1,3 +1,3 @@
 # Article 155
 
-Les disposi tions de la présente section, ainsi que d'une façon générale le statut des Représentants, pourront être précisées par décret pris après avis du Bureau de l'Assemblée Nationale, dans le respect des dispositions du présent code et de l'article 44 de la Constitution. ~ 1. 1 ncompatihilités.
+Le Sénateur placé dans l’un des cas prévus à l’article 154 ci-dessus reprend ses fonctions dès que l’incompatibilité a disparu et pour autant que le mandat pour lequel il a été élu est en cours.

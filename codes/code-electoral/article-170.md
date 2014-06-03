@@ -1,3 +1,7 @@
 # Article 170
 
-La répartition des suffI ages visée au 6° du premier alinéa de l'article 62, est mentionnée au procèsverbal de dépouillement en nombre de « OUJ » et en nombre de « NON» données en réponse à la question posée aux électeurs dans le décret de convocation.
+Le Conseil de colline ou de quartier est composé de cinq membres élus au suffrage universel direct.
+
+Le Conseiller qui a obtenu le plus grand nombre de voix devient le Chef de colline ou de quartier.
+
+Les Conseillers de colline ou de quartier ne sont pas élus sur la base des listes des partis politiques. Tous les candidats se présentent à titre indépendant.

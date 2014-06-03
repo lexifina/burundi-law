@@ -1,7 +1,5 @@
 # Article 46
 
-L'électeur se rend ensuite directement et isolément dans un des compartimenb isolvirs et exprime &on vote sui van t les modalités électorales fixées pour chaque type de scrutin au titre II du présent code. Toutefois, l'électeur illettré peut se rendre dan::. l'isoloir avec un scribe de son choix. L'électeur qui, en raison d'une infirmité grav,-, ne peut se rendre seul dans l'isoloir ou exprimer par lui-même son vote, peut être autorisé par le Président du Bureau Electoral à se faire accompagner d'une personne de son choix.
+Avant d’entrer en fonctions, les membres des Commissions Electorales Provinciales Indépendantes et des Commissions Electorales Communales Indépendantes prêtent serment solennellement devant l’échelon supérieur. Ce serment est libellé comme suit : « Moi … (énoncer le nom), je jure de veiller avec conscience et impartialité au déroulement régulier du vote et de recenser fidèlement les suffrages ». Avant d’entrer en fonctions, les membres du bureau de vote prêtent serment par écrit devant la Commission Electorale Communale Indépendante. Le même serment en Kirundi est repris solennellement devant la population présente avant le démarrage effectif des opérations de vote.
 
-La personne accompagnant l'électeur illettré ou infirme ne peut être désignée par le Bureau Electoral, ni choisie parmi les membres de ce dernier, ni être un candidat, un proche ou un représentant de ce dernier.
-
-Le Bureau Electoral peut refuser le choix du scribe dont les garanties du secret et de la liberté du vote sont sujettes à caution.
+CHAPITRE VI DU DEROULEMENT DES OPERATIONS DE VOTE
