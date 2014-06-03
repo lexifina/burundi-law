@@ -1,0 +1,3 @@
+# Article 25
+
+Les litiges qui naîtraient de l’interprétation ou de l’exécution de la présente Convention seront réglés à l’amiable. S’il n’est pas possible de résoudre le diffé-rend à l’amiable, chacune des parties pourra renvoyer la ou les questions à la Cour Administrative de Bujumbura.
