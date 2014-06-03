@@ -1,0 +1,3 @@
+# Article 58
+
+L’électeur qui, bien que porteur de la carte d’électeur et régulièrement inscrit sur le rôle électoral, ne peut produire les documents requis pour justifier son identité, peut être admis néanmoins à voter par décision du bureau électoral, lorsque son identité est parfaitement connue d’au moins trois membres dudit bureau. L’électeur qui, porteur des documents requis pour justifier son identité et régulièrement inscrit au rôle électoral, ne peut produire sa carte d’électeur, peut être admis à voter par décision du bureau électoral. L’électeur qui n’est porteur, ni de sa carte d’électeur, ni des documents requis pour justifier son identité, ne peut être admis à voter.

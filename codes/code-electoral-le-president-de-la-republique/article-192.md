@@ -1,0 +1,3 @@
+# Article 192
+
+Le Président, le Vice-Président du Conseil communal et l’Administrateur communal sont élus à la majorité absolue des suffrages exprimés. Si celle-ci n’est pas obtenue au premier tour, il est procédé immédiatement à un second tour. Si la majorité absolue n’est pas obtenue au second tour, il est procédé à un troisième tour où seuls se présentent les deux candidats qui ont recueilli le plus grand nombre de suffrages. Est élu au troisième tour, le candidat qui obtient le plus grand nombre de suffrages exprimés. En cas d’ex aequo au troisième tour, il est procédé au tirage au sort pour départager les deux candidats.

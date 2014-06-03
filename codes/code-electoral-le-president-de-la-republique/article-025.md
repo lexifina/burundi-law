@@ -1,0 +1,3 @@
+# Article 25
+
+La campagne électorale est l’ensemble des opérations de propagande précédant une élection ou un référendum et visant à amener les électeurs à soutenir les candidats en compétition ou à se prononcer sur une question qui leur est soumise par voie de consultation. Elle est ouverte par décret du Président de la République le seizième jour qui précède celui du scrutin. Elle est close quarante huit heures avant le scrutin. S’il y a lieu de procéder au second tour, la campagne électorale est à nouveau ouverte dès la proclamation des résultats du premier tour. Elle est close quarante huit heures avant le second tour. Toute propagande électorale en dehors de la période et des heures fixées est punie conformément à l’article 219, point a) du présent Code.

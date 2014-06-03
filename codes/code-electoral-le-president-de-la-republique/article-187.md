@@ -1,0 +1,5 @@
+# Article 187
+
+Le mandat des membres du Conseil communal commence à courir le jour où il entre en fonction et prend fin à l’expiration d’un délai de cinq ans. Il peut prendre fin avant son terme normal par suite de décès, de démission, d’inaptitude physique, d’incapacité permanente, de déchéance consécutive à la perte d’une condition d’éligibilité ou à la survenance d’une cause d’inéligibilité, de condamnation à une peine de servitude pénale égale ou supérieure à six mois, d’absence injustifiée à trois sessions consécutives.
+
+Le mandat d’un Conseiller communal peut aussi prendre fin quand il quitte volontairement le parti pour lequel il a été élu ou s’il en est exclu après avoir exercé toutes les voies de recours devant les juridictions compétentes.

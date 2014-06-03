@@ -1,0 +1,7 @@
+# Article 108
+
+L’Assemblée Nationale compte au moins 100 députés à raison de 60% de Hutu et 40% de Tutsi, y compris un minimum de 30% de femmes élus au suffrage universel direct sur base de listes bloquées à représentation proportionnelle constituées de manière que pour trois candidats inscrits à la suite sur une liste, deux seulement appartiennent au même groupe ethnique et au moins un sur quatre soit une femme. Au cas où les résultats du vote n’atteignent pas les pourcentages visés à l’alinéa précédent, la Commission Electorale Nationale Indépendante procède au redressement des déséquilibres constatés en retenant sur les listes des partis politiques et des indépendants ayant atteint 5% des suffrages exprimés un nombre égal de députés supplémentaires appartenant à l’ethnie ou au genre sous représenté nécessaires pour résorber les déséquilibres.
+
+La cooptation est faite par la CENI en concertation avec les partis politiques et les candidats indépendants concernés et dans le respect de l’ordre établi sur les listes bloquées en s’assurant de la participation de toutes les ethnies dans le plus de circonscriptions possibles. La Commission Electorale Nationale Indépendante procède également à la cooptation de trois députés de l’ethnie Twa provenant de régions différentes.
+
+La cooptation des députés de l’ethnie Twa se fait sur base de listes présentées par leurs organisations les plus représentatives reconnues par l’autorité de tutelle, en tenant compte de la dimension « genre » et de la répartition géographique.
