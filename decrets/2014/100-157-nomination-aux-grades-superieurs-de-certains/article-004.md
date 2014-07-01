@@ -1,0 +1,3 @@
+# Article 4
+
+Est nommé au grade de Major à la date du 01 Juillet 2013: Lieutenant-Colonel Angelo NTIBIGARURA SS0301 Lieutenant-Colonel Nestor BAHATI SS0360 Lieutenant-Colonel Alexis NDUWIMANA SS0389 Major Michel NDIKURIYO SSO480 Major Philippe NZAMBIMANA SSO463 Major Barnabé NTIBAGIRIRWA SSO465 Major Gaston GASHIRAHAMWE SSO476 Major Marc NZIMENYA SSO499 Major Pie NDENGUTSE SS0501 Major Oscar MBONIMPA SS0516 Major Jean-Claude MASAKE SS0530 Major Alexis NIYONKURU SS0537 Major Gervais KABISA SS0538 Major Jean TUYISENGE SS0604 Major Joseph Robert SHINGIRO SS0628 Major Commissionné Emmanuel NZIMENYA SS0879
