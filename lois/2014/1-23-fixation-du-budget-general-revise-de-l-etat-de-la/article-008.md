@@ -1,0 +1,3 @@
+# Article 8
+
+Le comité technique est composé de : - un membre du corps professoral impliqué dans la recherche agronomique: Président; - un représentant de l’ISABU: Vice-Président; - un représentant de l’ONCCS: Membre; - un représentant de la Direction de la Promotion des Semences et Plants: Membre; - un représentant de la Direction Générale de la Mobilisation à l’Auto-développement et de la Vulgarisation Agricole: Membre; - un représentant du Programme rotatif de recherche thématique concerné de l’ISABU: Membre; - trois représentants des producteurs privés de semence: Membre; - un représentant des laboratoires privés de recherche agronomiques: Membre; - un représentant des agriculteurs bénéficiaires des semences: Membre.
