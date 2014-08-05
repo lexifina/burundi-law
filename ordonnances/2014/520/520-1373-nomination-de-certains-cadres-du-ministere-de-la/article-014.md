@@ -1,0 +1,3 @@
+# Article 14
+
+Sont nommés Officiers Instructeurs Permanents au Groupement des Etudes Militaires Supérieures : Colonel Alexis NDUWIMANA, SS0389 de la matricule Lieutenant Colonel Elie BUKURU, SSO481 de la matricule Lieutenant Colonel Sébastien NIYONKURU, SS0556 de la matricule Major Wenceslas NTETURUYE, SS0551 de la matricule Major Nestor NIBAYUBAHE, SS0553 de la matricule Major Alexis NCUTINAMAGARA, SS0584 de la matricule Major Jean Bosco KABUHUNGU, SS0592 de la matricule Major Gilbert NKURUNZIZA, SS0614 de la matricule Major Viateur HABARUGIRA, SS0727 de la matricule Major Déo HABARUGIRA, SS0993 de la matricule
