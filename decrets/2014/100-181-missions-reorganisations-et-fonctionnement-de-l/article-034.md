@@ -1,0 +1,3 @@
+# Article 34
+
+Le Secrétaire Général de l’Agence fait préparer à la fin de l’exercice par la Cellule des Statistiques et des Analyses Economiques, une correspondance demandant aux entreprises d’assurances d’adresser à l’Agence leurs rapports annuels, conformément à la réglementation. La correspondance susvisée précise les délais de transmission et les sanctions prévues en cas de non-respect de la réglementation. Si des incohérences, insuffisances ou oublis sont constatés, il est demandé aux sociétés d’assurances concernées de corriger leurs rapports. La Cellule susmentionnée transmet à la Cellule d’Inspection un exemplaire de chaque rapport annuel pour les besoins de contrôle sur place.

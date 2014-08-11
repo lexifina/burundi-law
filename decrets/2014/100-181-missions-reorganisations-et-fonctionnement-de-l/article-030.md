@@ -1,0 +1,3 @@
+# Article 30
+
+Le Secrétaire Général reçoit les dossiers de demande d’agrément présentés par les sociétés d’assurances, les courtiers et sociétés de courtage d’assurances et les instruit. Il vérifie la conformité des dossiers à la réglementation et apprécie leur validité technique. Cette procédure est également suivie pour les dossiers de demande d’habilitation des agents généraux introduits par les sociétés d’assurances mandantes. Après étude, le Secrétaire Général transmet lesdits dossiers avec avis à la Commission au moins quinze jours avant la réunion au cours de laquelle ces demandes d’agrément seront examinées.
