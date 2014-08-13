@@ -1,0 +1,5 @@
+# Article 3 6
+
+La présente Ordonnance entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 13/08/2014 Le Ministre de la Justice et garde des Sceaux Pascal BARANDAGIYE (sé).
