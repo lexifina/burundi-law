@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés membres de l’équipe d’appui à l’organisation des Etats Généraux de l’Education au Burundi : 1- Madame NAHIMANA Asha, Conseillère attachée au Secrétariat Permanent du Ministère de l’Enseignement Supérieur et de la Recherche Scientifique; 2- Madame MASABO Libérate : Secrétaire Comptable à la Commission Nationale du Burundi pour l’UNESCO; 3- Monsieur NIYONGABO Stève : Conseiller en charge du BAS/FCE à la Direction Générale des Finances au Ministère de l’Enseignement de Base et Secondaire, de l’Enseignement des Métiers de la Formation Professionnelle et de l’Alphabétisation; 4- Monsieur BIZOZA Saïdi : Conseiller au Ministère de l’Enseignement Supérieur et de la Recherche Scientifique.
