@@ -1,0 +1,5 @@
+# Article 2
+
+Ingingo ya 2 Sous réserve des dispositions ci-après, la, détermination des périmètres de protection des captages d’eau destinée à la consommation humaine obéit aux normes techniques contenues dans le Guide national de détermination des périmètres de protection des captages d’eau destinée à la consommation humaine en annexe I, et qui fait partie intégrante du présent décret. Hatirengagijwe ingingo z’iri tegeko zikurikira, ugutomora imbibe z’uturere dukingira amasoko akwegwamwo amazi abantu banywa vyubahiriza amategeko ategekanijwe mu Rwandiko rw’ivyisungwa ku rwego rw’igihugu mu gutomora uturere dukingira amasoko akwegwamwo amazi abantu banywa rugize imperekeza ya I, kandi ruri mu bigize iri tegeko.
+
+Le guide visé à l’alinéa précédent est susceptible d’être mis à jour chaque fois que de besoin, par ordonnance du Ministre en charge de la gestion de l’eau, après avis du Conseil des Ministres. Urwandiko rwavuzwe mu gahimba ka mbere k’iyi ngingo rurashobora kuja ruraroranishwa n’ibihe igihe cose bikenewe, biciye mw’itegeko ry’Umushikiranganji ajejwe amazi, Inama nshikiranganji imaze kugira ico ibivuzeko.

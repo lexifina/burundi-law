@@ -1,0 +1,3 @@
+# Article 16
+
+Ingingo ya 16 Sauf disposition conventionnelle contraire, l’entretien du périmètre de protection incombe à l’opérateur exploitant le captage dont il constitue l’accessoire. Kiretse mu masezerano hari ingingo ibitegekanya ukundi, uwahawe uruhusha ni we ajejwe kubungabunga akarere gakingira amasoko akwegwamwo amazi kuko gafatanye n’ayo masoko. En l’absence, pour quelque cause que ce soit d’un opérateur précis exploitant le captage, la charge d’entretien du périmètre de protection incombe au maître d’ouvrage. Mu gihe, ku mvo iyo ari yo yose, uwahawe uruhusha atahari ngo abungabunge akarere gakingira amasoko akwegwamwo amazi, ako karere kabungabungwa na nyene ibikorwa.

@@ -1,0 +1,3 @@
+# Article 4
+
+Ingingo ya 4 Le dossier de demande est introduit en trois exemplaires par l’opérateur. Il est adressé au Ministre en charge de la gestion de l’eau sauf si le captage n’est pas muni d’un système d’adduction, auquel cas les demandes sont adressées à l’Administrateur communal territorialement compétent. ldosiye y’ugusaba uruhusha ishikirizwa mu makopi atatu n’ishirahamwe rya Reta canke iryigenga. Iyo dosiye irungikirwa Umushikiranganji ajejwe amazi kiretse iyo ibikorwa c’ugukwega amazi kitari kumwe n’ic’ukuyakwiragiza, muri ico gihe amadosiye abisaba arungikirwa Musitanteri w’ikomine akarere vyerekeye karimwo.

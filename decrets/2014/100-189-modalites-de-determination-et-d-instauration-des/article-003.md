@@ -1,0 +1,7 @@
+# Article 3
+
+Ingingo ya 3 Tout opérateur public ou privé intervenant dans la construction, la gestion ou l’exploitation des captages d’eau destinée à la consommation humaine est tenu de procéder à la délimitation et à la mise en place de périmètre(s) de protection avant le début de l’exploitation. Umuntu wese canke ishirahamwe ryose ryaba irya Reta canke iryigenga rikora ivy’ukwubaka amasoko akwegwamwo amazi abantu banywa, ukuyatunganya canke ukuyakoresha, ritegerezwa gushiraho imbibe z’uturere dukingira amasoko akwegwamwo amazi abantu banywa n’ukuhashinga uturimbi imbere y’ugutangura gukoresha amasoko.
+
+Les périmètres peuvent avoir pour objet la protection immédiate, rapprochée ou éloignée en fonction des Utwo turere tugenewe gukingira ayo masoko nyene akwegwamwo amazi, twaba uturi hafi canke kure impératifs de la protection qualitative de l’eau. yayo bivanye n’ibikenewe mu gukingira akaranga k’amazi abantu banywa. Quel que soit le type de périmètre de protection, son aménagement est subordonné à l’obtention, préalable d’une autorisation de l’autorité compétente. Akarere gakingira amasoko akwegwamwo amazi, kaba akari hafi canke akari kure y’amasoko, gatunganywa ari uko umutegetsi abifitiye ububasha abanje kubitangira uruhusha.
+
+Section 2: La procédure d’autorisation de délimitation de périmètres Agace ka 2: Ibikurikizwa mu gutanga uruhusha rw’ugushiraho imbibe z’uturere dukingira amasoko akwegwamwo amazi

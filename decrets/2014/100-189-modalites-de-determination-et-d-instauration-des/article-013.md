@@ -1,0 +1,3 @@
+# Article 13
+
+Ingingo ya 13 Au vu de la décision l’autorisant, le titulaire de l’autorisation est tenu de procéder, dans un délai maximal de trois mois, à la matérialisation du ou des périmètres de protection autorisés, après avoir, le cas échéant, désintéressé les titulaires éventuels de droits fonciers sur le site érigé en périmètre de protection. Amaze kubona ingingo imuha uruhusha, uwahawe uruhusha ategerezwa gutangura ibikorwa vy’ukwerekana urubibe canke imbibe z’akarere gakingira amazi katangiwe uruhusha mu kiringo kitarenga amezi atatu, abanje guha umuzibukiro, igihe bikenewe, aboba bafise uburenganzira ku matongo yagenewe kuba akarere gakingira isoko ry’amazi.

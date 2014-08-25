@@ -1,0 +1,3 @@
+# Article 10
+
+Ingingo ya 10 Conformément aux dispositions du Code foncier relatives à l’expropriation pour cause d’utilité publique, tout établissement d’un périmètre de protection immédiat est précédé d’une allocation d’une juste et préalable indemnité aux propriétaires ou aux titulaires d’autres droits fonciers sur la partie non domaniale du périmètre en question. Hisunzwe ingingo zo mu Gitabu c’amategeko agenga amatongo zijanye n’ugusohora abantu mu matongo yabo ku neza ya bose, imbere y’ugushinga akarere k’ugukingira isoko ry’amazi abantu banywa, bene amatongo canke abandi bafise ubundi burenganzira kw’itongo atari irya Reta riri muri ako karere babanza guhabwa umuzibukiro ukwiye.

@@ -1,0 +1,3 @@
+# Article 9
+
+Ingingo ya 9 Indépendamment des propositions contenues dans l’étude préalable à l’instauration d’un périmètre de protection, les activités reprises à l’article 45 du Code de l’eau sont, en tout lieu et en toute circonstance, réputées interdites dans tout périmètre de protection immédiat et rapproché. Hatarinze kwisungwa ivyashikirijwe mu cigwa c’intangamarara kigirwa imbere y’ugushinga akarere k’ugukingira isoko, ibikorwa bivugwa mu ngingo 45 y’lgitabu c’amategeko agenga amazi, aho ari hose no mu gihe ico ari cocose, bifatwa ko bibujijwe mu karere kose gakingira isoko haba hafi canke ahegereye isoko.
