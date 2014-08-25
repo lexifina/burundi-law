@@ -1,0 +1,3 @@
+# Article 14
+
+Du quorum et des points à l’ordre du jour Le quorum requis pour la tenue des réunions du Conseil d’Administration de l’Académie Rundi est d’au moins deux tiers (2/3) des membres. A l’ordre du jour du premier trimestre de l’année figurent notamment les points relatifs à l’analyse et à l’approbation du rapport d’activités et d’exécution du budget pour l’exercice précédent. L’agenda de la réunion du troisième trimestre comprend notamment l’examen de l’avant- projet du budget et du plan d’action pour l’exercice suivant. A chaque trimestre, le Conseil d’Administration de l’Académie doit également examiner le rapport financier et le rapport d’activités pour le trimestre écoulé et le soumettre au Ministre de tutelle pour approbation.

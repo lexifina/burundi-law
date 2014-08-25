@@ -1,0 +1,3 @@
+# Article 13
+
+De la convocation et de la tenue des réunions du Conseil d’Administration de l’Académie Le Conseil d’Administration de l’Académie se réunit une fois par trimestre et chaque fois que de besoin, sur convocation du Président de l’Académie ou du Vice- Président en l’absence du Président ou sur demande écrite d’au moins un tiers (1/3) des membres. L’invitation à la réunion est faite par écrit et transmise aux académiciens au moins quinze (15) jours avant la tenue de la réunion. Toutefois, la réunion extraordinaire est convoquée par écrit au moins cinq jours (5) avant la tenue de la réunion.
