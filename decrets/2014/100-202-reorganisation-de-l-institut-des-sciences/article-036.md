@@ -1,0 +1,3 @@
+# Article 36
+
+La tenue de la comptabilité de l’institut est placée sous la responsabilité d’un chef comptable qui œuvre sous la supervision du Directeur général et du directeur de l’administration, des finances et des res-sources humaines. Seul le chef comptable ou ses délégués au niveau des ser-vices déconcentrés sont habilités à opérer un paiement par chèque, virement ou en espèces. Toutefois, aucun paiement ne peut être effectué sans l’autorisation de l’ordonnateur ou de ses délégués dûment autorisés à engager des dépenses de l’institut. Aucun payement ne peut être effectué sans la signature de deux responsables différents de l’institut.

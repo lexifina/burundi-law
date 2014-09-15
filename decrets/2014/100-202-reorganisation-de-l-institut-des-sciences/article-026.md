@@ -1,0 +1,3 @@
+# Article 26
+
+Les centres d’innovation sont des sites d’expérimentation et d’application des programmes et activités de recherche. Ils sont conçus comme unités de rayonnement et de valorisation des résultats de recherche. Ils ont comme mission principale de faciliter l’accomplis-sement du mandat régional de la station dont ils relèvent à travers une exhibition et le transfert des technologies et autres produits de la recherche dans la zone agro-écolo-gique concernée. Les activités de recherche, expérimen-tation, production, et valorisation du patrimoine réalisées au niveau du centre d’innovation se font sous la supervi-sion de la direction de la station de recherche dont il dépend.
