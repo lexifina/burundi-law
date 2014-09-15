@@ -1,0 +1,3 @@
+# Article 39
+
+Dès le dépôt de la déclaration, le greffier fait sommation à la partie qui a produit la pièce incriminée de déclarer si elle persiste à en faire état. Si la partie qui a produit la pièce contestée renonce à en faire état par une déclaration au greffe ou si elle n’a pas fait de déclaration dans la huitaine, la pièce est écartée. Si elle déclare persister à faire état de la pièce contestée, le greffier le notifie immédiatement à la partie qui a sou-levé l’incident. La cour instruit préalablement sur l’authenticité et la régularité de la preuve incriminée et reste libre de rendre un arrêt avant dire droit. Cet arrêt n’est susceptible ni d’opposition ni de tierce opposition.

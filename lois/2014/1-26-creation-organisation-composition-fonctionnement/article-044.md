@@ -1,0 +1,3 @@
+# Article 44
+
+Les audiences de la Cour sont publiques à moins que cette publicité ne soit dangereuse pour l’ordre public ou les bonnes mœurs. Dans ce cas, la Cour ordonne le huis clos sur les bancs.
