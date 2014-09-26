@@ -1,0 +1,3 @@
+# Article 2 2
+
+L’exercice de forage, de creusement de puits et de sondage en vue de la recherche, du captage ou de l’exploitation des eaux souterraines sur toute l’étendue de la République du Burundi est subordonné à l’obtention préalable d’une auto-risation délivrée par le Ministre ayant la gestion de l’eau dans ses attributions, selon les modalités et les prescrip-tions techniques fixées par la présente ordonnance. Ukwimba amazi yo mu kuzimu, ukwimba amariba n’ukurondera ahari amazi yo mu kuzimu mu ntumbero yo kuyakwega canke kuyakoresha ku gataka kwose k’Uburundi bitegerezwa kubanza gutangirwa uruhusha n’Umushikiranganji ajejwe amazi, hisunzwe ibikuriki-zwa n’ibitegerejwe n’ubuhinga bishinzwe n’iri tegeko nshikiranganji n’ibiri mu rwandiko.
