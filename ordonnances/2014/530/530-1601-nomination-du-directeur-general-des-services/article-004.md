@@ -1,0 +1,7 @@
+# Article 4
+
+Le Conseil d’Administration de l’École Nationale d’Administration est chargé de la mise en application de la présente Ordonnance Ministérielle.
+
+Fait à Bujumbura, le 29/09/2014, Le Ministre des Finances et de la Planification du Développement Économique Hon. Tabu Abdallah MANIRAKIZA (sé);
+
+La Ministre de la Fonction Publique, du Travail et de la Sécurité Sociale Hon. Annociata SENDAZIRASA (sé). Barèmes salariaux du personnel administratif et technique de l’ENA: Catégorie Grade Qualifications Barème Direction D10 Licence/Ingénieur de 4 ans 165 246 D9 Ingénieur civil, maîtrise, DESS, DEA 216 602 D8 283 918 D7 Doctorat/Ph. D 372 155 D6 487 815 D5 639 420 D4 838 141 D3 1 098 622 D2 1 440 056 Dl 1 887 602 Collaboration C12 Humanités Générales 73 505 C11, E01 Humanités Techniques A2 96 349 C11, E10 Ière Candidature réussie 105 564 C11, E20 2ème Candidature réussie 116 839 C10 ISCO, IP 126 293 C9 Ingénieur technicien graduant 165 543 C8 216 991 C7 284 428 C6 372 823 C5 488 691 C4 640 568 C3 839 646 C2 1 100 595 Cl 1 442 642 Exécution E12 Main d’oeuvre ordinaire 27 120 E11 Main d’oeuvre semi-qualifiée 35 548 E10 Tronc commun et plus (travailleur qualifié) 46 596 E9 Diplôme A3/Cycle professionnel A4 61 078 E8 80 060 E7 104 941 E6 137 555 E5 180 305 E4 236 341 E3 309 791 E2 406 069 El 532 269 Bibliothécaire B10 Licence en bibliothéconomie 169 806 B9 Master’s degree, DEA, DESS, Licence spéciale 222 446 B8 291 404 B7 381 739 B6 Doctorat/Ph. D 500 078 B5 655 102 B4 858 183 B3 1 124 220 B2 1 472 728 B1 1 929 274
