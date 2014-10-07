@@ -1,0 +1,3 @@
+# Article 5
+
+Sont nommés: -Commandant de l'Unité chargée de la Protection des Mineurs et des Mœurs: OPC1 Carine Jeannette NZEYIMANA, OPN 0233 de la matricule; -Commandant de la Police de Roulage et de la Sécurité Routière: OPP1 Alfred Innocent MUSEREMU, OPN 0925 de la matricule; -Commandant en Second de la Police de Roulage et de la Sécurité Routière: OPP1 Etienne NDAYISABA, OPN 1105 de la matricule; -Commandant en Second de l'Unité de Police Marine: OPP1 Hassan HAGABIMANA, OPN 0389 de la matricule; -Commandant en Second de l'Unité chargée de la Protection des Institutions: OPP1 Albert BIGIRIMANA, OPN 0692 de la matricule; -Commandant en Second de l'Unité Anti-drogue: OPP1 Pierre NKURUNZIZA, OPN 0895 de la matricule.
