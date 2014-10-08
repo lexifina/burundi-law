@@ -1,0 +1,3 @@
+# Article 21
+
+Les bases de données issues des opérations statistiques d'envergure nationale doivent être centralisées et conservées au niveau de l'Institut de Statistiques et d'Études Économiques du Burundi (ISTEEBU). L'accès aux bases de données est régi par la Loi n°1/17 du 25 septembre 2007 portant organisation du Système Statistique au Burundi. Toutefois, cet accès aux bases est facilité, moyennant signature d'une convention, à toute personne physique ou morale désireuse d'en utiliser pour des fins purement statistiques, sans but lucratif et pour des besoins de planification et de prise de décisions.

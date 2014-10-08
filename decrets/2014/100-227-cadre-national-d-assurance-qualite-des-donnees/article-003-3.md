@@ -1,0 +1,3 @@
+# Article 3 3
+
+Le Comité de suivi est chargé d'accomplir les missions suivantes: -Participer au recrutement de l'expert d'appui si la candidature du Burundi est retenue; -Préparer, organiser et accompagner la mission d'appui de l'expert recruté; -Contribuer à l'élaboration de la politique nationale de l'évaluation; -Superviser le plan d'action des activités de la réalisation de la politique nationale de l'évaluation; -Mener ou proposer des études sur l'évaluation des acquis scolaires dans le système éducatif burundais; -Assurer l'exploitation et la diffusion des résultats des évaluations des acquis scolaires; -Suggérer aux Autorités ministérielles des propositions pertinentes d'amélioration des performances pédagogiques du système éducatif.
