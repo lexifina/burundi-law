@@ -1,0 +1,3 @@
+# Article 3
+
+Le Directeur Général de l’Administration de l’Enseignement de Base et Secondaire Général et Péda-gogique; le Directeur Général des Ressources Humaines et le Directeur Général des Bureaux Pédagogiques sont chargés chacun en ce qui le concerne de l’exécution de la GITEGA N° Nom de l’école Commune Province 1. Rutonganikwa II Bugendana Gitega 2. Nyakeru II Bugendana Gitega 3. Winteko II Bugendana Gitega 4. Gasongati II Bukirasazi Gitega 5. Ntobwe II Gitega Gitega 6. Mubuga III Gitega Gitega 7. Kwibuka II Gitega Gitega présente ordonnance qui entre en vigueur le jour de sa signature. Dr. Rose GAIHRU (sé).
