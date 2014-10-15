@@ -1,0 +1,3 @@
+# Article 20
+
+Les statuts du centre précisent les conditions de participation à la gestion du centre des personnes ou organismes qui ont pris l'initiative de sa création. Au sein du conseil d'administration ou de tout autre organe dirigeant, les adhérents doivent être représentés à hauteur d'un minimum d'un tiers des sièges. Les personnes ou organismes autres que les membres mentionnés au paragraphe 1 de l'article 15 de la présente ordonnance et autres que les adhérents peuvent être membres associés et participer au conseil d'administration ou à tout autre organe dirigeant, à hauteur d'un maximum d'un tiers des sièges.

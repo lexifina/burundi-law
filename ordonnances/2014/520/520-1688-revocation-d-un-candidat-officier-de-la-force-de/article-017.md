@@ -1,0 +1,3 @@
+# Article 17
+
+Procédure d'agrément 1. Les demandes d'agrément accompagnées des documents désignés à l'article 9 de la présente ordonnance sont remises au Commissaire général. 2. Après s'être assuré que le dossier est complet, le Commissaire Général en délivre récépissé. 3. La décision d'agrément est prise par le Commissaire général. 4. Le Commissaire général rend sa décision dans un délai de quatre (4) mois à compter de la date de délivrance du récépissé mentionné à l'alinéa 2 du présent article. 5. L'absence de décision dans le délai fixé vaut acceptation de la demande. Le refus d'agrément doit être motivé.

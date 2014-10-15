@@ -1,0 +1,3 @@
+# Article 13
+
+Des obligations envers l'Administration fiscale 1. Le Centre de gestion agréé s'engage à permettre l'accueil de l'agent de l'administration fiscale chargé de viser le registre des adhérents ainsi que de celui chargé du contrôle fiscal. 2. L'administration fiscale peut prendre connaissance des déclarations fiscales élaborées pour le compte des adhérents ainsi que des autres documents mentionnés aux articles 27 et 28 de la loi n°1/18 du 6 septembre 2013 relative aux procédures fiscales. 3. Toutefois, il est interdit à l'Administration fiscale de procéder à cette occasion à un contrôle sur place au sens de l'article 33 de la loi n°1/18 du 6 septembre 2013 relative aux procédures fiscales.
