@@ -1,0 +1,3 @@
+# Article 25
+
+Le Directeur Général est responsable de la gestion quotidienne de l'Office et exerce notamment les attributions suivantes : L'exécution des décisions du Conseil d'Administration ; L'engagement et l'exécution des • dépenses de l'Office dans les limites autorisées par le Conseil d'Administration et suivant les dispositions du règlement comptable ; L'organisation du travail et de la discipline au sein de l'Office ; La tenue correcte des dossiers; Superviser la production du rapport sur l'état de l'environnement. Il représente l'Office auprès de l'Administration, de la Justice et des tiers.
