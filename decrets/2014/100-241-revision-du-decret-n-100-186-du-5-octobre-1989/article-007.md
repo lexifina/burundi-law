@@ -1,0 +1,5 @@
+# Article 7
+
+Le Conseil d'Administration dispose d'un pouvoir général d'administration de l'Institut dans le cadre de la politique définie par le Gouvernement. Il est compétent pour : -Définir les orientations de l'activité de l'Institut et prendre toutes les décisions nécessaires à la réalisation de sa mission ;
+
+- Approuver après examen les comptes de l'exercice écoulé et voter le budget prévisionnel de l'année suivante ; -Adopter le Règlement d'Ordre Intérieur du Conseil d'Administration et de l'Institut ; -Approuver l'organigramme de l'Institut et le Statut du personnel ; -Fixer la rémunération du personnel de l'Institut et les avantages des Commissaires aux Comptes ainsi que des Administrateurs, en tenant compte des besoins et des ressources ; -Prendre les décisions importantes d'investissement, de dépenses ou de recettes dans les limites des dispositions légales et réglementaires y relatives ; -Adopter les contrats et projets importants qui engagent l'Institut ; -Veiller à l'exécution de ses décisions ; -Poser les actes de disposition concernant les biens appartenant à l'Institut.

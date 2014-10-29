@@ -1,0 +1,3 @@
+# Article 18
+
+Sans préjudice aux poursuites judiciaires, le Directeur Général est responsable envers l'Institut et envers les tiers, soit des infractions aux lois et règlements, soit de la violation des statuts, soit des fautes commises dans sa gestion. Si plusieurs responsables ont coopéré aux mêmes faits, le tribunal détermine la part contributive de chacun dans la réparation du dommage. En cas de faute lourde, de négligence ou d'incompétence notoire, il peut être mis fin au mandat du Directeur Général ou des Directeurs à tout moment par décret présidentiel sur rapport du Ministre de tutelle.

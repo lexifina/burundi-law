@@ -1,0 +1,3 @@
+# Article 38
+
+Les Commissaires aux comptes ont un droit illimité de contrôle de toutes les opérations comptables. Après chaque exercice, les Commissaires aux Comptes établissent un rapport de contrôle donnant leurs avis sur la régularité et la sincérité des inventaires et des bilans, ainsi que l'exactitude données sur les comptes de l'Institut dans le rapport de Direction et font toute suggestion utile pour une meilleure administration financière et comptable. Ce rapport est adressé au Ministre ayant l'Aménagement dans ses attributions, au Ministre des Finances, aux membres du Conseil d'Administration et au Directeur Général de l'Institut.
