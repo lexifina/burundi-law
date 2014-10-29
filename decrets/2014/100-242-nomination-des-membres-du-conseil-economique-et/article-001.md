@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Membres du Conseil Economique et Social : -Madame Fidela SINDAYIHEBURA -Monsieur Marius BUCUMI ; -Monsieur Godefroid HAKIZIMANA ; -Madame Josépha KANZAYIRE; Monsieur Antoine KABURA ; -Madame Janvière NDIRAHISHA ; -Monsieur Jean CIZA ; -Maitre Sixte SIZIMWE ; -Dr Pierre Claver KAZIHISE ; -Monsieur Michel NYABENDA ; -Monsieur Domitien NDIHOKUBWAYO ; -Madame Denise SINANKWA ; -Monsieur Donatien NIJIMBERE ; -Commissaire de Police Ménédore NTIRAMPEBA ; -Madame Perpétue BAMBANZE ; sel -Monsieur Martin NIVYABANDI ; -Monsieur Tharcisse RUSUMO ; -Maître Fabien SEGATWA ; -Dr Dionis NIZIGIYIMANA; -Dr Saïdi KIBEYA.
