@@ -1,0 +1,5 @@
+# Article 8
+
+Ingingo ya 8 Un Réseau national des tradipraticiens est chargé d'examiner entre autres, les dossiers de demande d’enregistrement de ces derniers à la nomenclature nationale des remèdes traditionnels, d'analyser et de gérer les conflits d'intérêts internes au Réseau et aux associations. Urunani rw'abavuza imiti y'ikirundi mu Burundi mu vyo rushinzwe kwihweza harimwo amadosiye y'ugusaba ko yandikwa ku rutonde y'ikirundi yemewe mu gihugu, ukwihweza amatati ashobora kwaduka mu runani no mu mashirahamwe hamwe no kuyatorera umuti. L'organisation, les missions et le fonctionnement du Réseau sont fixés par ordonnance du Ministre ayant la santé publique dans ses attributions. Ingene Urunani rutunganijwe, imirimo yarwo n'ingene rukora bishingwa n'itegeko nshikiranganji ry'Umushikiranganji ajejwe amagara y'abantu.
+
+Le Ministre ayant la santé publique dans ses attributions peut solliciter l'avis dudit Réseau en sa qualité d'organe consultatif sur d'autres aspects techniques concernant les remèdes traditionnels. Uwo Mushikiranganji arashobora gusaba urwo Runani ka Rwego mpanuzwajambo kugira rugire ico rushikirije ku bijanye n'ingene imiti y'ikirundi ikora.

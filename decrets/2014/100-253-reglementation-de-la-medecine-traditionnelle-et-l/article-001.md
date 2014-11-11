@@ -1,0 +1,3 @@
+# Article 1
+
+Le contribuable, personne physique, qui exerce une activité commerciale de vente des marchandises et qui réalise un chiffre d'affaires annuel inférieur à Dix millions de francs Burundais (10.000.000 BIF) mais supérieur à Cinq millions de Francs Burundais (5.000.000 BIF), est tenu de déclarer et de payer un forfait de l'Impôt sur les Revenus dont le montant est fixé à Trente-Cinq Mille Francs Burundais (35.000 BIF). Si le chiffre d'affaires annuel est inférieur à Cinq millions de Francs Burundais (5.000.000 BIF), le montant à déclarer et à payer au titre de l'impôt forfaitaire sera de Vingt Mille Francs Burundais (20.000 BIF).

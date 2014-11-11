@@ -1,0 +1,3 @@
+# Article 11
+
+Ingingo ya 11 La composition du dossier à constituer pour les demandes d'enregistrement, les modalités de dépôt et la procédure d'instruction du dossier, les conditions de délivrance de l'autorisation de la mise sur le marché ainsi que la durée de validité de cette autorisation sont fixées par ordonnance du Ministre ayant la santé publique dans ses attributions. Ibija mw'idosiye isaba kwandikisha umuti, ingene ishikirizwa n'ingene itohozwa, ingene hatangwa uruhusha rw'ukugurisha imiti y'ikirundi hamwe n'ikiringo urwo ruhusha rumara bishingwa n'itegeko nshikiranganjianji ry'Umushikiranganji ajejwe amagara y'abantu

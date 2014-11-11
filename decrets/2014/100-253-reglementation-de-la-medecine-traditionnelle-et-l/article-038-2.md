@@ -1,0 +1,3 @@
+# Article 38 2
+
+Dans le cas d'une suspicion fondée et basée sur des études réalisées et s'il s'avère que le remède traditionnel en cause est susceptible d'induire des effets indésirables graves, le Ministre ayant la santé publique dans ses attributions peut suspendre ou interdire le remède traditionnel sur le territoire national après avis du Réseau national des tradipraticiens. Mu gihe hari umwikeko wumvikana ushingiye ku vyigwa vyagizwe kandi iyo bibonekako umuti w'ikirundi uteye amakenga ushobora kugira ingaruka mbi zihambaye, Umushikiranganji ajejwe amagara y'abantu arashobora guhagarika, canke kubuza uwo muti ku gataka k'Uburundi urunani rw'abavuza imiti y'ikirundi rumaze kugira ico rubivuzeko.

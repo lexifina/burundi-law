@@ -1,0 +1,3 @@
+# Article 25
+
+Ingingo ya 25 L'ouverture d'un local de soins est soumise à la délivrance d'une autorisation par le Ministre ayant la santé publique dans ses attributions. Toute ouverture d'un nouveau local de soins et tout transfert d'un local de soins d'un lieu à un autre sont subordonnés à l'octroi d'une nouvelle autorisation. Celle-ci est personnelle et incessible. Ukwugurura ivuriro ry'imiti y'ikirundi bitegerezwa gutangirwa uruhusha n'Umushikiranganji ajejwe amagara y'abantu. Ukwugurura ivuriro rishasha iryo ari ryo ryose canke ukuryungururiza ahandi bitegerezwa gutangirwa urundi ruhusha. Urwo ruhusha ni urwa nyenerwo kandi nta wundi muntu ashobora kuruha.
