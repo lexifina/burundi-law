@@ -1,0 +1,3 @@
+# Article 3
+
+La Commission est placée sous l'autorité directe du Ministre ayant l'Enseignement Supérieur dans ses attributions à qui elle rend compte.

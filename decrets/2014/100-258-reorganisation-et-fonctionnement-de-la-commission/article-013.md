@@ -1,0 +1,3 @@
+# Article 13
+
+Peuvent être associés, à ces commissions ou à ces sous-commissions ad hoc, les personnels techniques du Secrétariat Exécutif Permanent de la Commission ainsi que ceux de l'Administration centrale du Ministère ayant l'Enseignement Supérieur dans ses attributions. Peuvent aussi être associés à ces commissions et à ses sous-commissions ad hoc les différentes personnalités œuvrant dans le secteur de l'éducation et reconnues pour leur expertise. Toutefois, les membres associés aux différentes commissions ou aux sous-commissions ad hoc ne participent pas aux délibérations en session ordinaire ou extraordinaire de la Commission.
