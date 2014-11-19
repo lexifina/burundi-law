@@ -1,0 +1,3 @@
+# Article 1 6
+
+Sont nommés membres de la commission chargée de finaliser l'harmonisation des statuts de l'Université du Burundi (U.B) et de l'Ecole Normale Supérieure (E.N.S): 1. Prof. Gaston HAKIZA, Secrétaire du Conseil d'Administration de l'Université du Burundi : Président ; 2. Dr Janvière NDIRAHISHA, Secrétaire du Conseil d'Administration Ecole Normale Supérieure : Secrétaire ; 3. Dr Onesphore BARORERAHO, Président du Conseil d’Administration de l'Université du Burundi : Membre ; 4. Prof Joseph NDAYISABA, Président du Conseil d'Administration de l'E. N. S : Membre ; 5. Dr Athanase NSENGIYUMVA, U.B : Membre ;
