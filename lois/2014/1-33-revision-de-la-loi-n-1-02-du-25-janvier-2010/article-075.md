@@ -1,0 +1,3 @@
+# Article 75
+
+Le budget ne peut être modifié en cours d'exécution que selon la procédure suivie pour son approbation et en respectant la nomenclature. L'Administrateur communal établit les projets de virement de crédits et de crédits supplémentaires. Il les soumet au vote du Conseil communal qui peut les amender. Tout amendement entraînant un accroissement des dépenses doit prévoir une augmentation correspondante des recettes. Tout amendement entraînant une diminution des recettes qui aurait pour effet de rompre l'équilibre du budget doit prévoir une diminution de dépenses correspondantes ou de nouvelles recettes.

@@ -1,0 +1,3 @@
+# Article 17
+
+Le Conseil communal ne peut valablement délibérer que si au moins deux tiers des membres assistent physiquement à la séance et uniquement sur les questions inscrites à l'ordre du jour. Si le quorum fixé à l'alinéa précédent n'est pas atteint, il est procédé à une deuxième convocation dans les cinq jours suivants. Le Conseil communal se réunit et délibère valablement si la moitié des membres ont assisté à la séance. Si la seconde convocation ne réunit pas la moitié des membres, il peut être convoqué, dans les délais prévus à l'alinéa précédent, un troisième Conseil dans lequel le Gouverneur de province ou le Maire participe obligatoirement. Ce Conseil prend des décisions appropriées sur les questions inscrites à l'ordre du jour.

@@ -1,0 +1,3 @@
+# Article 5
+
+La commune est chargée de la gestion des intérêts locaux de la population de son ressort. Elle assure les services publics répondant aux besoins de cette population et qui ne relèvent pas, par leur nature, leur importance ou par détermination de la loi, de la responsabilité directe de l'Etat. L'Etat peut lui déléguer la gestion ou l'exécution, sur le plan local, de certaines des missions qui lui incombent. Dans ce cas, il met à sa disposition les ressources humaines, matérielles et financières nécessaires. Les modalités de transfert de compétences aux Communes par l'Etat sont déterminées par une loi spécifique.

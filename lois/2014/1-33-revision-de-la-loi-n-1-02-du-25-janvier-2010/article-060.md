@@ -1,0 +1,3 @@
+# Article 60
+
+Le Chef de zone exerce les attributions suivantes : 1. animer et coordonner les activités de développement initiées par la commune dans la zone ou sur les collines de sa zone ; 2. assister les services compétents dans la gestion des questions de l'état civil dans la zone ; 3. transmettre à la population de la zone tout message, toute communication utile à la demande des autorités communales ; 4. transmettre à ces dernières les desiderata et les préoccupations de la population habitant sa circonscription ; 5. assurer toute mission ou tâche lui déléguée par l’Administrateur communal.
