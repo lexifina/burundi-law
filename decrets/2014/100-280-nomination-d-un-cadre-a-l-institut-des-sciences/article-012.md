@@ -1,0 +1,3 @@
+# Article 12
+
+Le service « Documentation et communication scientifique » a en charge la bibliothèque centrale, les bibliothèques des stations de recherche et le site internet de l'institut. Ce service a pour tâche de mettre à la disposition du personnel de l'institut et du public des informations scientifiques issues de la recherche agronomique. Il est également chargé de produire des supports de vulgarisation et des fiches techniques sur les innovations et technologies mises au point par les programmes et services d'appui à la recherche de l'ISABU. Il est domicilié au siège de l'ISABU et a des ramifications dans les stations de recherche.

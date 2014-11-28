@@ -1,0 +1,3 @@
+# Article 19
+
+Le service « Développement des ressources humaines » a comme tâches de planifier, promouvoir et suivre le développement des ressources humaines en relation avec et en fonction de l'évolution des besoins de l'institut. A ce titre, il assure : -la planification anticipative des besoins en ressources humaines ; -l'élaboration des plans de recrutement ; -le développement et la valorisation des ressources humaines ; -la meilleure adéquation possible entre les besoins évalués et les compétences disponibles ; -le renforcement des capacités du personnel Ce service est domicilié au siège de l'institut avec ses ramifications au niveau des structures déconcentrées au niveau des stations de recherche.

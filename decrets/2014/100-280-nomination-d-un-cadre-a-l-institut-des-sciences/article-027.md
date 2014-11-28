@@ -1,0 +1,3 @@
+# Article 27
+
+Le comité régional de gestion de la recherche compte dans ses membres le directeur de la station de recherche compétente, un autre chercheur de cette station ainsi qu'au minimum cinq autres membres choisis parmi les autres intervenants dans le secteur agricole au niveau de la zone agro- écologique concernée, par exemple les représentants des services de vulgarisation au niveau des directions provinciales de l'agriculture et de l'élevage, du secteur privé, notamment les organisations des producteurs, agri- éleveurs, institutions de micro- finance, d'organisations de la société civile, de l'administration locale ou d'autres institutions de recherche.
