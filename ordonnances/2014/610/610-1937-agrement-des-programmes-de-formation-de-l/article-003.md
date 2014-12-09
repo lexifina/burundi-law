@@ -1,0 +1,5 @@
+# Article 3
+
+La présente Ordonnance entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, 09/12/2014 Le Ministre de l’Enseignement Supérieur et de la Recherche Scientifique Dr. Joseph BUTORE (sé).
