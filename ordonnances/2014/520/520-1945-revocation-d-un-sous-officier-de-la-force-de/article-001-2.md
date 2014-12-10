@@ -1,0 +1,3 @@
+# Article 1 2
+
+Le personnel du Service Extérieur, en attente de regagner son poste d’attache, bénéficiera pendant une période de 6 mois à partir de la date de nomination d’un quart de salaire du Service Extérieur non indexé et en monnaie locale correspondant au poste pour lequel il a été nommé ou affecté à l’exception du personnel administra-tif et technique contractuel. Au terme de cette période et suivant la loi portant Intégra-tion Administrative des Mandataires Politiques n’ayant jamais presté dans l’Administration Publique Burun-daise, le personnel diplomatique qui n’aura pas regagné son poste d’attache sera mis à la disposition de son ser-vice d’origine ou affecté à la fonction publique.
