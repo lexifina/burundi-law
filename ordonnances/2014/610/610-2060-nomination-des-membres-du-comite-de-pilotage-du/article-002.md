@@ -1,0 +1,3 @@
+# Article 2
+
+Le comité a pour missions de: 1. Élaborer le règlement ainsi que le calendrier des ren-contres, 2. Organiser des réunions des préparatifs du champion-nat à l’intérieur du Comité et des réunions élargies pour associer les points focaux des Universités, 3. Faire des descentes dans les Universités de l’intérieur du pays comme de la Capitale pour la supervision des rencontres et le règlement des litiges y afférents, 4. Examiner l’opportunité d’intégrer les disciplines autres que le Football et le Basketball, 5. Organise des Tournois d’ouverture et de clôture ainsi que des Tournois transfrontaliers, 6. Rechercher les partenaires pour appuyer le cham-pionnat interuniversitaire.
