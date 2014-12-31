@@ -1,0 +1,3 @@
+# Article 50
+
+Sans préjudice des autres pénalités prévues par la loi, quiconque dirige, administre ou adhère à une confession religieuse dont la demande d’agrément a été définitivement rejetée encourt une peine de servitude pénale de six mois à cinq ans et d’une amende de cent mille (100.000) à cinq cent mille (500.000) francs, ou l’une de ces peines seulement. Est puni des mêmes peines quiconque dirige, administre ou fait partie d’une confession religieuse après sa dissolu-tion ou quiconque poursuit les activités d’une confession religieuse pendant sa suspension. Le corps de l’infraction est confisqué au bénéfice du Trésor.
