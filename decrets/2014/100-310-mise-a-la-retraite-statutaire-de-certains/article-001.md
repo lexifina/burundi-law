@@ -1,0 +1,3 @@
+# Article 1
+
+Les Officiers dont les noms et matricules suivent sont mis à la retraite statutaire à la date du 31 décembre 2014: Série Nom et Prénom Matricule 1 NIYONZIMA Désiré OPN 1422 2 NDIRABIKA Ernest OPN 1423 3 HAKIZIMANA Bernard OPN 1424 4 NIYUNGEKO Charles OPN 1425 5 MUCOWINTORE Jean Bosco OPN 1426 6 MASABARAKIZA Ephraïm OPN 1427 Matricule Grade Nom & Prénoms Date de naissance SS 0003 Général Major GAHIRO Samuel 1953 SS 0007 Général Major BIJONYA Bernard 1953 SS 0009 Général Major NIMUBONA Sylvestre 1953 SS 0010 Général Major NDAYISABA Célestin 1953 SS 0027 Colonel CISHAHAYO Dominique 1958 SS 0060 Colonel NAHAYO Anatole 1958 SS 0061 Colonel NTIRAMPEBA Audace 1958
