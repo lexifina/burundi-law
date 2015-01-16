@@ -1,0 +1,5 @@
+# Article 105
+
+Si le vendeur n'est pas payé, il peut également demander la résolution de la vente conformément au droit commun.
+
+• • • L'inscription du privilège conserve l'action résolutoire.

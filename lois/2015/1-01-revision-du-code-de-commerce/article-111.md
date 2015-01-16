@@ -1,0 +1,3 @@
+# Article 111
+
+A défaut par les coassociés ou l'un d'eux de former, dans les trente jours qui suivent la publication, une demande en annulation de la société ou de l'apport, ou si l'annulation n'est pas prononcée, la société est tenue solidairement avec le débiteur principal au paiement, dans le délai ci-t-dessus, du passif déclaré et dûment justifié. \._ En cas d'apport d'un fonds de commerce par une société à une autre société, notamment par suite d'une fusion ou d'une scission, les dispositions de l'alinéa précédent ne s'appliquent que sous réserve des dispositions relatives aux fusions et scissions de sociétés. Al q TITRE VIII : DU NANTISSEMENT ET DE L'INSCRIPTION CHAPITRE 1 : DU NANTISSEMENT

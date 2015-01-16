@@ -1,0 +1,3 @@
+# Article 492
+
+Est punie d'une amende de vingt-cinq mille francs burundais (25.000 FBu) à cent mille francs burundais (100.000 FBu), toute personne qui, soit dans une demande d'immatriculation ou dans ses annexes, soit dans une demande d'inscription complémentaire, a fait sciemment une déclaration inexacte ou incomplète. Elle est passible d'une amende de cinquante mille francs burundais (50.000 C FBu) à deux cent cinquante mille francs burundais (250.000 FBu) si l'omission ou l'inexactitude porte sur des faits susceptibles de motiver soit le refus d'immatriculation ou d'inscription complémentaire, soit la radiation du registre de commerce et des sociétés.

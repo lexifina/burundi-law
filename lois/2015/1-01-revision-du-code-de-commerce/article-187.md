@@ -1,0 +1,3 @@
+# Article 187
+
+Le locataire peut adjoindre à l'activité prévue au bail des activités connexes ou complémentaires. A cette fin, il doit faire connaître son intention au propriétaire en indiquant les activités dont l'exercice est envisagé. Cette formalité vaut mise en demeure du propriétaire de faire connaître dans un délai de deux mois, à peine de déchéance, s'il conteste le caractère connexe ou complémentaire de ces activités. En cas de contestation, le tribunal saisi par la partie la plus diligente se prononce en fonction notamment de l'évolution des usages commerciaux. Il peut être_tenu __ compte, __ p_aur_Ja ___ fixation_ du _ _loy~r, des activités commerciales adjointes si celles-ci ont entraîné par elles-mêmes une modification de la valeur locative des lieux loués.

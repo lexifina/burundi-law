@@ -1,0 +1,3 @@
+# Article 201
+
+Le bailleur peut refuser le renouvellement du bail. Toutefois, le bailleur qui refuse le renouvellement du bail sans motif grave et légitime ou dans l'intention manifeste et injustifiée d'entraver l'exploitation du fonds de commerce, doit payer au locataire évincé une indemnité d'éviction égale au préjudice causé par le défaut de renouvellement. A défaut d'accord sur le montant de cette indemnité, celle-ci est fixée par le tribunal de commerce en tenant compte notamment du montant du chiffre d'affaires, des investissements réalisés par le preneur et de la situation géographique du local.

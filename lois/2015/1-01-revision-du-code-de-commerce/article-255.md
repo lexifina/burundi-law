@@ -1,0 +1,3 @@
+# Article 255
+
+En matière de vente commerciale, ia volonté et ie comportement d'une partie doivent être interprétés selon l'intention de celle-ci lorsque l'autre partie connaissait ou ne pouvait ignorer cette intention. ~ \. / i La volonté et le comportement d'une partie doivent être interprétés selon le sens qu'une personne raisonnable, de même qualité que l'autre partie, placée dans la même situation, leur aurait donné. Pour déterminer !'intention d'une partie ou celle d'une personne raisonnable, il doit être tenu compte des circonstances de fait et notamment des négociations qui ont pu avoir lieu entre les parties, des pratiques qui se sont établies entre elles'ou des usages en vigueur dans la profession conce'.:~.ée.

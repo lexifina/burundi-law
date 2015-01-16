@@ -1,0 +1,5 @@
+# Article 91
+
+Pendant le délai de trente jours prévu à l'article 86, les créanciers du vendeur, que leur créance soit ou non exigible, peuvent former opposition au paiement du prix adressée au séquestre et au greffe du tribunal qui a reçu l'acte de vente. L'opposition doit énoncer, à peine de nullité, le montant et les causes de la créance. Nonobstant toute stipulation contraire, le bailleur ne peut former opposition pour loyers en cours ou à échoir. Aucun transport amiable ou judiciaire du prix ou de partie du prix n'est opposable aux créanciers qui se sont fait connaître dans le délai fixé au premier alinéa du présent article. Si au terme de ce délai, aucune opposition n'a été notifiée au séquestre et/ou au greffier, celui-ci doit tenir le prix de vente à la disposition du vendeur. Si une ou plusieurs oppositions leur sont notifiées pendant ce délai, le prix de vente n'est disponible pour le vendeur que sur justification de la mainlevée de toutes les oppositions.
+
+Section 6 : Des formalités de l'opposition

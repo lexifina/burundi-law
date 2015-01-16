@@ -1,0 +1,3 @@
+# Article 215
+
+Le contrat d'agence commerciale est un mandat par lequel une personne appelée agent commercial , sans être liée par un contrat de travail, s'engage à négocier ou à conclure d'une façon habituelle, des achats, des ventes ou, d'une manière générale, toute autre opération commerciale au nom et pour le compte d'une autre personne appelée « mandant», qui s'engage de son côté à la rémunérer. Cette dernière peut être un commerçant, un producteur ou un autre agent commercial. L'agent commercial peut représenter plusieurs mandants sans qu'aucun de ceux-ci n'ait à y consentir. Toutefois, il ne peut pas représenter des entreprises concurrentes.

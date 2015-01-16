@@ -1,0 +1,3 @@
+# Article 451
+
+Le tiers saisi est tenu de déclarer au créancier l'étendue de ses obligations à l'égard du débiteur ainsi que les modalités qui pourraient les affecter et, s'il ( C y a lieu, les cessions de créances, les délégations ou les saisies antérieures. Il doit communiquer copie des pièces justificatives.

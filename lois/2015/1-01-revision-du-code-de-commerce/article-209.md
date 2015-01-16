@@ -1,0 +1,3 @@
+# Article 209
+
+Le preneur est tenu de payer le loyer et de respecter les clauses et les conditions du bail. A défaut de paiement du loyer ou en cas d'inexécution d'une clause du bail, le bailleur peut demander au tribunal de commerce la résiliation du bail et l'expulsion du preneur et de tous les occupants de son chef après avoir fait délivrer, par écrit, une mise en demeure d'avoir à respecter les clauses et les conditions du bail. Cette mise en demeure doit informer le preneur qu'à défaut de paiement ou de respect des clauses et des conditions du bail dans un délai d'un mois, la résiliation sera poursuivie.

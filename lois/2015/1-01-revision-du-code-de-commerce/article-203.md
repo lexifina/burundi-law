@@ -1,0 +1,3 @@
+# Article 203
+
+En outre ,le bailleur peut, sans versement d'indemnité d'éviction, refuser le renouvellement du bail portant sur les locaux d'habitation accessoires des locaux principaux, pour les habiter lui-même ou les faire habiter par son conjoint ou ses ascendants, ses descendants ou ceux de son conjoint. Cette reprise ne peut être exercée lorsque le preneur établit que la privation de jouissance des locaux d'habitation accessoires apporte un trouble grave à _la jouissatnc 1 e d 1 u baild~hanbs.tlet~ lofcaux ptrincitpaut~ od~ _ l~brs 1 que les locaux (_ pnncIpaux e es ocaux a I a I0n ormen un ou In IvIsI e.

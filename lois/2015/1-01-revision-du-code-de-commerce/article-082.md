@@ -1,0 +1,3 @@
+# Article 82
+
+La vente du fonds de commerce obéit aux règles générales sur la vente, sous réserve des dispositions ci-après et des textes spécifiques à l'exercice de certaines activités commerciales.

@@ -1,0 +1,3 @@
+# Article 236
+
+La rémunération du courtier est due dès que le contrat a été conclu par son entremise ou par suite des indications qu'il a fournies aux parties. Lorsque le contrat est conclu sous condition suspensive, le courtier n'a droit à rémunération que si la condition se réalise. Si la rémunération promise est hors de proportion avec le service rendu, la réduction peut être demandée hormis le cas où cette rémunération a été stipulée ou payée après la conclusion du contrat. Lorsqu'il a été convenu que les dépenses du courtier lui seraient remboursées, elles lui sont dues alors même que le contrat n'aurait pas été conclu.

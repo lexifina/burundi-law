@@ -1,0 +1,3 @@
+# Article 108
+
+Tout créancier ayant inscrit un privilège ou un nantissement ou ayant régulièrement fait opposition peut, dans le mois de la publication de la vente dans un journal de large publication, former une surenchère du sixième du prix global du fonds de commerce figurant à l'acte de vente. Lorsque le fonds a fait l'objet d'une vente forcée, les créanciers nantis et opposants bénéficient du même droit de surenchère qui doit s'exercer dans le même délai à compter de l'adjudication. ( Dans tous les cas , le surenchérisseur doit consigner, dans le même délai, au greffe du tribunal le montant du prix augmenté du sixième.

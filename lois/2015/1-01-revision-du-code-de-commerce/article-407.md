@@ -1,0 +1,5 @@
+# Article 407
+
+Il est procédé à la saisie conservatoire des droits d'associés et des valeurs mobilières par la signification d'un acte soit à la société ou à la personne morale émettrice, soit au mandataire chargé de conserver ou de gérer les titres. Sous peine de nullité,!' acte contient les mentions suivantes : ~ I / 1 ° les noms, prénoms et domiciles du débiteur et du saisissant ou, s'il s'agit de personnes morales, leurs formes, dénomination et siège social;
+
+2° l'indication du titre exécutoiïe ou l'autorisation du tribunal de pratiquer la saisie conservatoire ; 3 ° le décompte des sommes réclamées en principal, les frais et les intérêts échus ainsi que l'indication du taux des intérêts ; 4 ° L'indication que la saisie rend indisponibles les droits pécuniaires attachés à l'intégralité des parts ou valeurs mobilières dont le débiteur est titulaire ; 5s: la somn~at\011 de faire connaître, dans un délai de huit jours, l'existence d'éventuels nantissements ou saisies et d'avoir à communiquer au saisissant copie des statuts.

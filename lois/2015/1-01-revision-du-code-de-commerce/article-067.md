@@ -1,0 +1,7 @@
+# Article 67
+
+Toute inscription complémentaire, sauf quand elle a lieu d'office, doit être requise dans les trois mois à partir du fait ou de l'acte à déclarer. Pour les actes à publier au Bulletin officiel du Burundi, le délai court à partir de la publication. Pour les jugements et arrêts, le délai court à partir du jour où ils sont coulés en force de chose jugée. 7 Les demandes d'inscription -mentionnent le nom du requérant, la raison sociale ou la dénomination de l'entreprise, le numéro et la date de l'immatriculation ainsi que l'objet de l'inscription. Elles sont introduites conformément aux articles 52 à 55. S'il s'agit de modifications aux statuts des sociétés, les demandes doivent en outre être accompagnées d'une copie des actes modificatifs ou d'un exemplaire du Bulletin Officiel du Burundi où ces actes ont été publiés.
+
+Les articles 57 à 61 sont applicables aux inscriptions complémentaires. Si la personne physique ou morale immatriculée possède un ou plusieurs sièges d'exploitation, succursales ou agences sis dans des ressorts différents, le bureau de !'Agence pour la Promotion des Investissements qui a procédé à l'inscription adresse au greffe des tribunaux de commerce dans le ressort desquels sont situés des établissements secondaires, une copie certifiée conforme de l'inscription effectuée. L'inscription complémentaire fait l'objet d'une annexe à l'acte d'immatriculation.
+
+Section 6 : De la rectification et la radiation

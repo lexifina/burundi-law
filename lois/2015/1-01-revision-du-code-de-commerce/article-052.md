@@ -1,0 +1,5 @@
+# Article 52
+
+La demande d'immatriculation des personnes physiques ou morales ayant leur principal établissement au Burundi doit être présentée à l'Agence pour la Promotion des Investissements ou à son bureau dans le ressort duquel est situé cet établissement.
+
+La demande d'immatriculation des personnes physiques ou morales ayant leur principal établissement hors du Burundi et y ouvrant un siège d'exploitation, une succursale ou une agence 1 doit être présentée à !'Agence pour la Promotion des Investissements ou à son bureau dans le ressort duquel se trouve ce siège d'exploitation, cette succursale ou cette agence. S'ils ont plusieurs établissements secondaires de ce genre, l'immatriculation sera, suivant leur convenance, effectuée au siège de l'un des bureaux de I' Agence pour la Promotion des Investissements dans le ressort duquel se trouvent ces établissements. ( ( La date de réception de la demande est constatée par la mention de celle-ci dans un registre ad hoc tenu par !'Agence pour la Promotion des Investissements.
