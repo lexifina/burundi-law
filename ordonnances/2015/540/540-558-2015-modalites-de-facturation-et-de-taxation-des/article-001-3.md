@@ -1,0 +1,3 @@
+# Article 1 3
+
+La présente ordonnance a pour objet de reporter les Crédits Budgétaires de l’exercice budgétaire 20.... à l’exercice budgétaire 20...

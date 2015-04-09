@@ -1,0 +1,3 @@
+# Article 3 2
+
+Les transferts de crédits sont effectués entre articles budgétaires d’un même titre ou de titres différents dans la limite des crédits disponibles et sous réserve que le montant cumulé de transfert ne dépasse pas 10 % du crédit voté en loi des finances initiale, à l’article d’origine du transfert comme à celui de destination. Toute demande de transfert de crédit doit être matérialisée par une lettre de demande de transfert de crédit du Ministre Gestionnaire concerné. Cette lettre doit justifier les raisons de ce transfert de crédits. Le dossier annexé à la lettre de demande de transfert de crédit doit être visé par le Contrôleur des Engagements des Dépenses.

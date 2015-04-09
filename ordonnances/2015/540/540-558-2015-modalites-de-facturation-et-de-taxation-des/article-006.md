@@ -1,0 +1,3 @@
+# Article 6
+
+Afin de valider en temps réel les données relevées, les CDR (Cali Details Records) nationaux de chaque opérateur devront être déposés sur des serveurs FTP sécurisés à une fréquence de trente minutes, accessibles en permanence par le partenaire technique de l’ARCT. Les CDR (Cali Details Records) transmis doivent comporter l’ensemble des paramètres nécessaires à l’analyse conformément au format indiqué par le partenaire technique de l’ARCT. Une pénalité de deux millions de francs burundais est appliquée par heure de retard dans la transmission des CDR tels que requis par l’ARCT ou par son partenaire technique à compter de huit heures après la réception des derniers CDR.

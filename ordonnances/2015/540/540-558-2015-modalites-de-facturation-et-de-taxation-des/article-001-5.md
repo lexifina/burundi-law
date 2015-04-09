@@ -1,0 +1,3 @@
+# Article 1 5
+
+La présente ordonnance a pour objet d’annuler les crédits budgétaires qui ne seront pas utilisés pour l’exercice 20 ……sur l’article budgétaire……………

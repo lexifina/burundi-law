@@ -1,0 +1,3 @@
+# Article 3
+
+Les opérateurs de la téléphonie mobile doivent faire homologuer à l’ARCT leur barème de facturation avant leur application. Ce barème doit obligatoirement respecter la taxe applicable aux communications téléphoniques nationales telle que définie par la loi budgétaire, les données de la comptabilité analytique ainsi que les prestations réellement offertes à l’abonné. La facturation s’effectue exclusivement par seconde, sans autres frais quel qu’en soit la nature. Toute facturation des secondes non consommées et/ou basée sur des fausses informations est considérée comme illicite et est passible d’une pénalité de un pour cent du chiffre d’affaire de l’année antérieure.

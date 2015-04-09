@@ -1,0 +1,3 @@
+# Article 5
+
+Un écart maximum de 0.5% du nombre de minutes entre les données en possession de l’opérateur et les données relevées par l’ARCT est considéré comme acceptable. En cas d’écart supérieur à 0.5%, l’opérateur a l’obligation de fournir à l’ARCT, dans les deux (2) jours ouvrables suivant la date de réception de la facture, l’ensemble des CDRs pour la période considérée aux fins de la réconciliation. L’ARCT a sept jours pour statuer et se prononcer sur le cas. Le recours n’est pas suspensif des paiements dans les délais de la totalité de la somme facturée, mais donne droit à une régularisation en cas d’obtention de gain de cause.
