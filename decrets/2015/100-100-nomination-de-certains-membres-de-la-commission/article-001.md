@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Membres de la Commission Nationale des Terres et autres Biens « CNTB »: - Monsieur Donatien NYAMBIRIGI, en remplacement de Monsieur Ferdinand NTAHONDUHUKIYE; - Monsieur Gérard NIYONZIMA, en remplacement de Monsieur Onesphore MANIRAKIZA; - Monsieur Sylvère NGENDABANYIKWA, en remplacement de Monsieur Léopold RUDAYA; - Monsieur Alexis NIYUBAHWE, en remplacement de Monsieur Gabriel NITEREKA; - Monsieur Richard HAVYARIMANA, en remplacement de Monsieur Pierre Claver SINZINKAYO; - Monsieur Pierre Claver NDABARUSHIMANA, en remplacement de Madame Alphonsine NDUWAYO; - Monsieur Claude GASHIMWE, en remplacement de Monsieur Sylvain NZIGAMYE; - Madame Jeanne Françoise NAHIMANA, en remplacement de Madame Jacqueline BANKUWUNGUKA.
