@@ -1,0 +1,7 @@
+# Article 3
+
+Le Ministre de la Santé Publique et de la Lutte contre le SIDA est chargé de l’exécution du présent Décret qui entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 21/4/2015, Pierre NKURUNZIZA (sé) Par le Président de la République, Le Deuxième vice-président de la République Dr Ir Gervais RUFYIKIRI (sé)
+
+Le Ministre de la Santé Publique et de la Lutte contre le SIDA, Dr Sabine NTAKARUTIMANA (sé)
