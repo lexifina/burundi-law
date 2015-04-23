@@ -1,0 +1,3 @@
+# Article 86
+
+L’électrification rurale se fait soit par raccordement aux réseaux interconnectés, soit par production décentralisée. Dans le cadre de l’électrification rurale décentralisée, et compte tenu des contraintes liées à la protection de l’environnement, la priorité est donnée à la production décentralisée à partir des sources d’énergies renouvelables, sauf en cas de carence, de coûts prohibitifs ou d’insuffisance de celles-ci. Les excédents d’énergie électrique des installations de production à partir des sources d’énergies renouvelables bénéficient de l’obligation d’achat par le gestionnaire du réseau de transport ou par tout distributeur de proximité, selon les conditions fixées par voie réglementaire.

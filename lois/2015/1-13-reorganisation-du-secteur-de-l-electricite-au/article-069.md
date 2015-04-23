@@ -1,0 +1,9 @@
+# Article 69
+
+La production, le transport et la distribution de l’énergie électrique constituent un service public industriel et commercial, sous la responsabilité de l’Etat. L’Etat peut confier la gestion du service public de l’électricité, sous forme de délégation de service public, à une ou plusieurs personnes morales de droit public ou de droit privé. Au sens de la présente loi, on entend par délégation de service public, notamment les conventions telles que l’affermage, la régie intéressée et la gérance et généralement, tout contrat qui a pour effet de confier tout ou une partie de l’exécution de la mission de service public aux personnes morales de droit public ou privé, visées ci-dessus. Ces diverses formes de délégation sont définies à l’article 3 de la présente loi.
+
+La délégation de service public de l’électricité procède d’un Contrat de délégation passé entre l’Etat et le délégataire de service public pour la gestion du réseau public de transport d’électricité, du réseau public de distribution d’électricité et pour la production d’électricité réalisée par l’exploitant principal dans les zones d’exploitation et les centres secondaires.
+
+Le Contrat comporte un Cahier de charges faisant partie intégrante du contrat de délégation.
+
+Le Cahier de charges détermine notamment: - Le statut juridique des biens de la concession; - La nature des obligations de service public imposées au délégataire, et en particulier le niveau et les modalités de production d’électricité; - Les zones à desservir, la qualité du service, les prestations minimales en cas de conflit social; - Les conditions de rémunération du délégataire; - Les obligations du délégataire en matière de production nationale d’électricité; - Les modalités de fixation du tarif d’achat de l’électricité par l’Etat ou par la personne publique gestionnaire du réseau de transport et de distribution; - Les droits et obligations de l’Etat à l’égard du délégataire.

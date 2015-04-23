@@ -1,0 +1,3 @@
+# Article 103
+
+Les servitudes accordées dans le cadre du présent paragraphe peuvent permettre à leur bénéficiaire de: - Etablir des supports à l’extérieur des murs ou des façades donnant sur la voie publique ou sur les toits ou les terrasses des bâtiments accessibles par l’extérieur, sans préjudice du droit pour l’occupant de démolir, de réparer ou de modifier ses bâtiments; - Faire passer des conducteurs d’électricité au-dessus des propriétés non bâties et d’établir des supports ou des conduits sur leur sol ou leur sous-sol - Couper les arbres et branches d’arbre qui, se trouvant à proximité des conducteurs aériens, gênent leur pose ou peuvent, par leur mouvement ou leur chute, nuire à leur bon fonctionnement.

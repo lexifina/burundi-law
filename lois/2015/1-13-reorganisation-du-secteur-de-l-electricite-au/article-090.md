@@ -1,0 +1,5 @@
+# Article 90
+
+Les biens de retour peuvent être mis à disposition du délégataire pour une durée n’excédant pas celle du contrat de délégation. Aucune mise à disposition ne peut être consentie sans que le délégataire ait préalablement souscrit dans le contrat de délégation des engagements de nature à garantir le bon entretien des biens. Le délégataire ne peut conférer un droit réel ou sûreté de nature que ce soit à un tiers sur les biens mis à sa disposition dans le cadre du précédent alinéa. Pendant la durée de la mise à disposition, les biens de retour demeurent la propriété de l’Etat. Les biens de retour non mis à disposition du délégataire par le délégant mais réalisés par le délégataire sont incorporés dès leur achèvement dans le domaine public.
+
+Le Cahier de charges annexé au contrat de délégation détermine les biens visés aux alinéas précédents et peut imposer au délégataire de réhabiliter certains biens mis à sa disposition. Paragraphe 3 Du régime des biens de reprise et des biens propres

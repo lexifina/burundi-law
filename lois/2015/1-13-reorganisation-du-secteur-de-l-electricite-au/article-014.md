@@ -1,0 +1,3 @@
+# Article 14
+
+L’autorisation d’exploiter une installation de production d’électricité est délivrée par le Ministre ayant l’électricité dans ses attributions en tenant compte des critères suivants: - La sécurité des personnes et des biens, la sûreté des réseaux publics d’électricité; - Le choix des sites, l’occupation des sols et l’utilisation du domaine public; - L’efficacité énergétique; - La compatibilité avec les principes et les missions de service public; - La compatibilité avec les prescriptions techniques relatives à l’électricité produite par les exploitants indépendants. D’autres conditions d’octroi de l’autorisation d’exploiter une installation de production électrique peuvent être définies par ordonnance le cas échéant.
