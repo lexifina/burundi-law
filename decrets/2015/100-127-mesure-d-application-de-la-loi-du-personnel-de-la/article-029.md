@@ -1,0 +1,3 @@
+# Article 29
+
+Le Personnel d’Appui du Ministère de la Sécurité Publique est responsable de la bonne exécution des tâches qui lui sont confiées. Il doit les remplir consciencieusement, avec diligence et intégrité. Il doit respecter les règles générales du travail, de discipline qui découlent des textes en vigueur ou qui résultent de la tradition de travail du lieu d’affectation. Il doit faire preuve de respect envers ses supérieurs, ses égaux et ses subalternes. Il doit se garder de tous actes susceptibles de troubler l’ordre public. Il doit également, au service et dans sa vie privée se garder de tout acte susceptible d’ébranler la confiance du public à l’égard des services du Ministère de la Sécurité Publique.
