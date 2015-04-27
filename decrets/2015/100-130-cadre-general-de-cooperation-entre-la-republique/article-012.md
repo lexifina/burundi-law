@@ -1,0 +1,3 @@
+# Article 12
+
+Les ONGE agréées ne peuvent pas recourir aux ressources financières déjà allouées au Burundi par les organismes de coopération bilatérale ou multilatérale en vertu d’une convention entre ces derniers et le Gouvernement du Burundi sans l’accord préalable de mise en œuvre du Ministre ayant les Relations Extérieures et la Coopération Internationale dans ses attributions sauf dans les cas spécifiques d’appel à proposition. Toutefois, une ONGE peut appuyer l’action d’une autre ONGE moyennant l’accord du Ministère technique et l’ONGE bénéficiaire de l’appui et en informer le Ministère des Relations Extérieures et de la Coopération Internationale.

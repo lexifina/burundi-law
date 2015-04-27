@@ -1,0 +1,3 @@
+# Article 33
+
+La coordination des activités des ONGE est assurée par le Ministère ayant l’administration du territoire dans ses attributions en étroite collaboration avec le Ministère des Relations Extérieures et la Coopération Internationale. Cette coordination des deux Ministères bénéficie de l’appui technique du Comité interministériel de suivi-évaluation des ONGE. Chaque Ministère bénéficiaire des interventions des ONGE, devra mettre en place une cellule de suivi des activités des ONGE opérant dans son secteur. Cette cellule sera en relation régulière avec le comité interministériel de suivi-évaluation des ONGE et assurera le suivi sur terrain.
