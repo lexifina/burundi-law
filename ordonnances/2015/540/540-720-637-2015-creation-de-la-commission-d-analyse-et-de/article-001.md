@@ -1,0 +1,3 @@
+# Article 1
+
+Il est créé une commission interministérielle qui a pour but de déterminer la valeur des biens de l’Ex-EPB, dans l’objectif de valoriser les apports de l’Etat du Burundi dans la société Global Port Services Burundi(GPSB). Cette commission est chargée: - de recruter le Bureau (maison) qui va déterminer la valeur des biens de l’EX-EPB, et par conséquent les apports de l’Etat dans la société Global Port Services Burundi (GPSB); - de valider le rapport produit par le consultant, suivant les termes de références; - de produire le rapport de validation à soumettre au Ministre ayant en charge les Finances et au Ministre ayant en charge les Transports.
