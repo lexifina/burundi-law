@@ -1,0 +1,3 @@
+# Article 16
+
+Durant toute la période de recherche, les matériels et les équipements de la Société «NTEGA HOLDING BURUNDI»S.A destinés à la recherche seront placés sous le Régime Douanier d’Admission Temporaire sans paiement de caution et exonérés de la TVA, des Droits de douane et Taxes. De même, les consommables destinés à la recherche non disponibles localement seront exonérés de la TVA, des Droits et Taxes. Ces matériels et équipements sont énumérés de manière indicative dans l’annexe 3 et la liste pourra être complétée chaque fois que de besoin après adoption par le Ministre ayant les Mines dans ses attributions.

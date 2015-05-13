@@ -1,0 +1,3 @@
+# Article 20
+
+Sur base d’un rapport présentant clairement les résultats obtenus, si la Société «NTEGA HOLDING BURUNDI»S.A estime que les résultats obtenus ne justifient pas la poursuite des travaux, la Société «NTEGA HOLDING BURUNDI»S.A pourra arrêter tous les travaux de recherche sur une partie ou la totalité du périmètre de recherche. Toutefois, si la Société «NTEGA HOLDING BURUNDI»S.A arrête les travaux de recherche sur la totalité du périmètre, cet arrêt mettra automatiquement un terme à la durée du Permis de recherche sans qu’il donne droit à une quelconque indemnité à charge de l’État du Burundi.
