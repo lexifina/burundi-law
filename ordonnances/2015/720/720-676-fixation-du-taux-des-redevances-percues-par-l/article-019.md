@@ -1,0 +1,3 @@
+# Article 19
+
+L’inspection de partance est faite contre paiement de 20 USD pour les bâtiments de jauge brute inférieure ou égale à 20 tonnes majorés de 0,1 USD par tonne supplémentaire. Cette redevance est majorée de 0,5 USD par tonne pour les bâtiments transportant des matières dangereuses ou combustibles. L’inspection d’arrivée est faite contre paiement d’une redevance de 30 USD pour les bâtiments de jauge brute inférieure ou égale à 20 tonnes majorée de 0,1 USD pour toute tonne supplémentaire. Cette redevance est majorée de 0,5 USD par tonne pour les bâtiments transportant des matières dangereuses ou combustibles.
