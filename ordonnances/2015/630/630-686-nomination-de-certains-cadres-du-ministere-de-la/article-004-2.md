@@ -1,0 +1,3 @@
+# Article 4 2
+
+La commission est composée comme suit: 1. Madame Fabiola NKUNDIZANYE, Conseillère au Ministère des Finances et de la Planification du Développement Economique, Président; 2. Monsieur Salvator NITEREKA, Chef de Service Fiscalité de porte 3. Monsieur Julius BUCUMI, Directeur des Affaires Juridiques et Gestion du Contentieux à l'OBR, Secrétaire; 4. Monsieur Aloys HARERIMANA, Inspecteur au Département de la Politique Fiscale, Membre; 5. Madame Félicité NIBIGIRA, Chef de Service des Opérations Région Ouest à l'OBR, Membre; 6. Monsieur Jean Damascène BIZIMANA, Chef de Service Commerce et E-business à l'OBR, Membre; 7. Madame Yvette NIJIMBERE, Chef du Personnel au Ministère des Finances et de la Planification du Développement Economique, Membre.
