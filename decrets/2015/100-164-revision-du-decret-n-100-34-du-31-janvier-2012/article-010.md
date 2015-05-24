@@ -1,0 +1,5 @@
+# Article 10
+
+Le Secrétariat Permanent a pour attributions: - Participer à l’élaboration des textes régissant les questions foncières; - Elaborer les plans annuels et les rapports annuels de mise en œuvre de la réforme foncière; - Assurer le suivi et contrôle qualité des services fonciers communaux, sous la tutelle administrative et financière des communes; - faciliter et coordonner la collecte des données pour constituer une base de données foncières fiables pouvant permettre un débat politique éclairé et constructif; - Préparer les réunions de la Commission; - assurer le suivi technique des dossiers présentés à la Commission pour avis, en collaboration avec les services techniques des Ministères concernés; - veiller à la mise en application des missions et des décisions de la Commission; - fournir les éléments permettant à rendre régulièrement compte à la Commission de l’état d’avancement de la mise en œuvre de la politique foncière au Burundi; - Rédiger les rapports trimestriels et annuels à l’intention de la Commission.
+
+Section 3:De la Composition et du Fonctionnement
