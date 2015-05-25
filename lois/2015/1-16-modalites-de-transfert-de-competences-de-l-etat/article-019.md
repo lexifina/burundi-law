@@ -1,0 +1,3 @@
+# Article 19
+
+La commune dispose d'un domaine foncier propre constitué par son domaine public et son domaine privé dont le régime est fixé par le Code foncier. Toutefois, l'Etat peut lui transférer la gestion et l'utilisation de son domaine public ou privé situé dans son ressort territorial pour lui permettre d'exécuter ses missions. L'Etat doit procéder, de concert avec les communes, à l'identification et à l'inventaire des terres domaniales ainsi que d'autres biens meubles et immeubles devant revenir à chaque commune et veillera, sans retard indu, à ce que les communes bénéficiaires en assurent la prise en charge dans le cadre des compétences leur dévolues.
