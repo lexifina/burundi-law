@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés: - Directeur du Département de la Promotion Sociale à la Direction Générale des Ressources Humaines: Colonel Gérard KAGEZA, SS0265 de la matricule - Directeur de la Planification à la Direction Générale de la Planification et des Etudes Stratégiques: Colonel Symphorien KARIKUNZIRA, SS0398 de la matricule - Directeur des Transports à la Direction Générale des Approvisionnement et de la Gestion: Colonel Audace NTAHOMVUKIYE, SS0192 de la matricule - Directeur de la Planification et de la Réinsertion à la Direction Générale des Anciens Combattants Colonel Sébastien NSABIYUMVA, SS0249 de la matricule
