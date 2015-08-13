@@ -2,7 +2,7 @@
 
 La présente ordonnance entre en vigueur le jour de sa signature.
 
-Fait à Bujumbura, le 13/08/2015 Le Ministre de la Santé Publique et de la Lutte Contre le SIDA, Hon. Dr Sabine NTAKARUTIMANA (sé) . ORDONNANCE MINISTERIELLE N°620/1076 DE LA 14/08/2015 PORTANTE NOMINATION D’UN DIRECTEUR DU CENTRE D’ENSEIGNEMENT DES METIERS EN DIRECTION PROVINCIALE DE L’ENSEIGNEMENT DE BUJUMBURA Le Ministre de l’Enseignement de Base et Secondaire, de l’Enseignement des Métiers, de la Formation Professionnelle et de l’Alphabétisation,
+Fait à Bujumbura, le 13/08/2015 Le Ministre de la Santé Publique et de la Lutte Contre le SIDA, Hon. Dr Sabine NTAKARUTIMANA (sé) . ORDONNANCE MINISTERIELLE NOMINATION D’UN DIRECTEUR DU CENTRE D’ENSEIGNEMENT DES METIERS EN DIRECTION PROVINCIALE DE L’ENSEIGNEMENT DE BUJUMBURA Le Ministre de l’Enseignement de Base et Secondaire, de l’Enseignement des Métiers, de la Formation Professionnelle et de l’Alphabétisation,
 
 Vu la Loi n°1/010 du 18 Mars 2005 portant promulgation de la Constitution de la République du Burundi;
 
