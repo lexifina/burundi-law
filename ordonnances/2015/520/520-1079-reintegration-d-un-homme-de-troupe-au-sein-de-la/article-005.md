@@ -2,7 +2,7 @@
 
 Le Chef d’Etat-Major Général de la Force de Défense Nationale et le Directeur Général des Ressources Humaines sont chargés chacun en ce qui le concerne de l’application de cette ordonnance.
 
-Fait à Bujumbura, le 14/08/ 2015 Le Ministre de la Défense Nationale et des Anciens Combattants, Emmanuel NTAHOMVUKIYE. (sé). ORDONNANCE MINISTERIELLE N°215/1080/CAB/ 2015 DU 14/08/2015PORTANT AGREMENT D’UNE ASSOCIATION PRIVEE DE GARDIENNAGE ET DE SURVEILLANCE Le Ministre de la Sécurité Publique,
+Fait à Bujumbura, le 14/08/ 2015 Le Ministre de la Défense Nationale et des Anciens Combattants, Emmanuel NTAHOMVUKIYE. (sé). ORDONNANCE MINISTERIELLE 14/08/2015PORTANT AGREMENT D’UNE ASSOCIATION PRIVEE DE GARDIENNAGE ET DE SURVEILLANCE Le Ministre de la Sécurité Publique,
 
 Vu la Constitution de la République du Burundi;
 
