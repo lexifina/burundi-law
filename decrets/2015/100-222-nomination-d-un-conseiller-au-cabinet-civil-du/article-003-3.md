@@ -2,7 +2,7 @@
 
 La présente Ordonnance entre en vigueur le jour de sa signature.
 
-Fait à Bujumbura, le 17/8/2015 Le Ministre de la Justice et Garde des Sceaux, Pascal BARANDAGIYE (sé) ORDONNANCE MINISTERIELLE N°550/1084 DU 17/8/2015 PORTANT AFFECTATION D’UN MAGISTRAT DES JURIDICTIONS SUPERIEURES Le Ministre de la Justice et Garde des Sceaux,
+Fait à Bujumbura, le 17/8/2015 Le Ministre de la Justice et Garde des Sceaux, Pascal BARANDAGIYE (sé) ORDONNANCE MINISTERIELLE AFFECTATION D’UN MAGISTRAT DES JURIDICTIONS SUPERIEURES Le Ministre de la Justice et Garde des Sceaux,
 
 Vu la Constitution de la République du Burundi;
 
