@@ -4,7 +4,7 @@ Le Directeur du CEDJ est chargé de l’application de la présente Ordonnance q
 
 Le Ministre de la Justice et Garde des Sceaux; Pascal BARANDAGIYE (sé)
 
-Le Ministre des Finances et de la Planification du Développement Economique; Hon. Tabu Abdallah MANIRAKIZA (sé). ANNEXE A L’ORDONNANCE MINISTERIELLE CONJOINTE N°550/540/1090/2015 DU 18/08/2015 PORTANT MODIFICATION ET FIXATION DES NOUVEAUX TARIFS DES DROITS APPLIQUES AU CENTRE D’ETUDES ET DE DOCUMENTATIONS JURIDIQUES, Droits et taxes appliqués au CEDJ. I. De la publication au BOB.
+Le Ministre des Finances et de la Planification du Développement Economique; Hon. Tabu Abdallah MANIRAKIZA (sé). ANNEXE A L’ORDONNANCE MINISTERIELLE CONJOINTE PORTANT MODIFICATION ET FIXATION DES NOUVEAUX TARIFS DES DROITS APPLIQUES AU CENTRE D’ETUDES ET DE DOCUMENTATIONS JURIDIQUES, Droits et taxes appliqués au CEDJ. I. De la publication au BOB.
 
 - Publication des statuts des ASBL: vingt mille Francs Burundais (20000fbu);
 
@@ -60,4 +60,22 @@ Le Ministre des Finances et de la Planification du Développement Economique; Ho
 
 Fait à Bujumbura, le 18/08/2015 Le Ministre de la Justice et garde des Sceaux Pascal barandagiye (sé).
 
-Le Ministre des Finances et de la Planification Economique Hon. Tabu Abdallah (sé).
+Le Ministre des Finances et de la Planification Economique Hon. Tabu Abdallah (sé). ORDONNANCE MINISTERIELLE NOMINATION DE CERTAINS CADRES DU MINISTERE DE LA DEFENSE NATIONALE ET DES ANCIENS COMBATTANTS ET DE L’ETAT-MAJOR GENERAL DE LA FORCE DE DEFENSE NATIONALE Le Ministre de la Défense Nationale et des Anciens Combattants,
+
+Vu la Constitution de la République du Burundi;
+
+Vu la loi N° 1/22 du 31 Décembre 2004 portant Création, Organisation, Missions, Composition et Fonctionnement de la Force de Défense Nationale;
+
+Vu la loi N° 1/21 du 31 Décembre 2010 portant modification de la loi N° 1/15 du 29 Avril 2006 portant statut des officiers de la Force de Défense Nationale du Burundi;
+
+Vu le décret N° 100/26 du 16 Janvier 2006 portant réorganisation du Ministère de la Défense Nationale et des Anciens Combattants;
+
+Vu le décret N° 100/126 du 23 Avril 2012 portant révision du décret N° 100/136 du 16 Mai 2011 portant Missions, Organisation, et Fonctionnement d’une Coordination d’un Cabinet Ministériel;
+
+Vu le décret N° 100/127 du 23 Avril 2012 portant révision du décret N° 100/137 du 16 Mai 2011 portant Missions, Organisation, et Fonctionnement d’un Secrétariat Permanent.
+
+Vu les dossiers administratifs des intéressés;
+
+Sur proposition du Chef d’Etat-major Général de la Force de Défense Nationale;
+
+Ordonne
