@@ -1,0 +1,3 @@
+# Article 3 7
+
+La commission est composée comme suit: Madame Fabiola NKUNDIZANYE, Conseiller au Cabinet du Ministère des Finances et de la Planification du Développement Economique, Président; Monsieur Jean HARAHAGAZWE, Directeur de la Politique Fiscale; Vice-président Monsieur Julius BUCUMI, Directeur des Affaires Juridiques et Gestion du Contentieux à l’OBR, Secrétaire; Monsieur Salvator NITEREKA, Chef de service Fiscalité de Porte, Membre; Madame Félicité NIBIGIRA, Chef de service des Opérations Région Ouest à l’OBR, Membre; Monsieur Jean Damascène BIZIMANA, Chef de Service Commerce et E-business à l’OBR, Membre; Monsieur Alexis NIYONDEZI, Conseiller Economique à la Direction de la Politique Fiscale, Membre;
