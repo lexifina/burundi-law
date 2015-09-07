@@ -1,0 +1,7 @@
+# Article 9
+
+L’intégrité, la discipline et le professionnalisme constituent les valeurs fondamentales de la sélection et la composition des effectifs de la B.A.E.
+
+CHAPITRE IV MISSIONS Articles 10 La BAE est instituée pour prévenir et gérer les grands événements et les actes de terrorismes graves conformément aux principes et standards internationaux en matière d’application des lois. A cet effet, elle a, entre autres, les missions de: - Mener des actions préventives par la recherche et l’exploitation du renseignement relatif aux grands évènements et aux menaces terroristes; - Planifier et exécuter les interventions de deuxième ligne en appui aux autres unités déjà engagées dans la gestion des foules et dans la lutte contre les actes de terrorisme; - Rétablir l’ordre et assurer la sécurité lors des grands évènements; - Lutter contre l’insurrection et la rébellion urbaines; - Participer aux opérations de lutte contre la criminalité internationale; - Sécuriser les matchs et autres évènements internationaux; - Assurer la sécurité des convois et transports spéciaux, - Procéder, conformément aux principes et règles de procédure pénale aux interpellations des forcenés et autres criminels; - Intervenir au profit des autres unités d’intervention dans l’exécution de leurs missions; - Accomplir d’autres missions assignées par les autorités habilitées et qui rentrent dans le cadre des missions de la Police Nationale ; - Rendre compte à la hiérarchie.
+
+CHAPITRE V DU FONCTIONNEMENT

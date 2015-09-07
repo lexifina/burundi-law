@@ -1,0 +1,3 @@
+# Article 15
+
+Le personnel devant intégrer la B.A.E suit, dans la mesure du possible et en cours d’opérationnalisation, une formation approfondie dans les matières relatives au Maintien et Rétablissement de l’Ordre public, à la Maîtrise de la violence et à la lutte contre le terrorisme. Il s’agit, entre autres, des techniques d’interpellation et d’arrestation, des Droits de l’Homme et libertés publiques, du MROP, des Techniques de communication et de Négociation, Usage légal et graduel de la contrainte, les Techniques de Self Défense, les Renseignements généraux, la Lutte contre le terrorisme et d’autres thématiques pertinentes liées aux missions de la Brigade.
