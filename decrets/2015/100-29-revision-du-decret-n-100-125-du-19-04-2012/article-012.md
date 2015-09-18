@@ -1,0 +1,5 @@
+# Article 12
+
+Les membres du Gouvernement sont responsables devant le Président de la République dans les conditions et suivant les procédures prévues par la Constitution de la République du Burundi et par le présent décret. Ils prennent, par ordonnances, toutes les mesures de mise en application des décrets du Président de la République et des arrêtés d'un Vice-Président de la République.
+
+CHAPITRE III DES MISSIONS SPECIFIQUES DES MINISTERES Section 1 Du Ministère de l'Intérieur et de la Formation Patriotique
