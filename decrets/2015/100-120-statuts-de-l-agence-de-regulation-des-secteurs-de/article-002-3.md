@@ -1,0 +1,3 @@
+# Article 2 3
+
+Mission de l’UFCP PRODEFI I&II L’UCFCP du PRODEFI I&II sera chargée de la mise en œuvre du Programme, de la gestion quotidienne des ressources financières, du patrimoine, du personnel et des contrats de partenariat et d’exécution. Elle garantira également les bonnes relations avec le Bailleur de Fonds-FIDA, le Ministère de tutelle et les autres partenaires impliqués dans la mise en œuvre du Programme. Elle organisera les missions d’appui, de supervision et de revue, d’achèvement et de clôture du Programme. Elle veillera aux bonnes synergies et complémentarités avec les autres projets du portefeuille FIDA au Burundi et d’autres Partenaires Techniques et Financiers (PTF).

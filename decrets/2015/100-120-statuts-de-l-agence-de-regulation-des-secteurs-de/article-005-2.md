@@ -1,0 +1,3 @@
+# Article 5 2
+
+Unité de gestion du PROPA-0 Pour désengorger I’UFCP du PRODEFI I&II qui aura à gérer plusieurs comptes et activités et compte tenu de la similitude de la zone d’action entre le PROPA-0 et le PNSADR-IM, l’Unité de gestion pour le Projet pour accélérer l’atteinte de l’Objectif du Millénaire pour le Développement OMD lc (PROPA-0) sera placée dès janvier 2016, sous la coordination du PNSADR-IM. Les Fonctions qui étaient assurées par le Coordonnateur du PRODEFI et de son RAF seront désormais confiées au Coordonnateur du PNSADR et de son RAF. Les UFCR du PNSADR seront chargées de la mise en œuvre des activités du PROPA-0 dans les provinces et régions qui les concernent.
