@@ -1,0 +1,3 @@
+# Article 1 3
+
+Sont nommés membres de la Cellule de Gestion des Marchés Publics au Ministère de la Jeunesse, des Sports et de la Culture, les personnes dont les noms suivent: 1. Monsieur NSHAGIRIJE Sylvère: Président; 2. Madame NIYONKURU Claire Adeline: Secrétaire; 3. Monsieur NISHIRIMBERE Denis: Secrétaire-Adjoint; 4. Monsieur NAHIMANA Ernest: Membre; 5. Monsieur HABONIMANA Solyvent: Membre; 6. Monsieur NKUNZIMANA Moise: Membre; 7. Monsieur HORIRABONA Salvator: Membre; 8. Madame HAKIZIYAREMYE Gloria: Membre; 9. Madame MPFUKAMENSABE Annociate: Membre; 10. Madame KAMANZI Chantal: Membre; 11. Monsieur NDAYIRAGIJE Léonidas: Membre; 12. Monsieur BUCUMI Gordien: Membre.
