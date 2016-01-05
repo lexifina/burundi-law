@@ -1,0 +1,3 @@
+# Article 28
+
+Publicité sur le Registre national des sûretés mobilières A la requête du crédit-bailleur, les contrats de crédit-bail portant sur un bien meuble peuvent être, en plus de leur enregistrement, soumis à l’inscription au Registre national des sûretés mobilières prévu par la législation sur les sûretés réelles mobilières. Outre tous les droits attachés à l’opération de crédit-bail, l’inscription au Registre confère au crédit-bailleur les droits qu’il aurait tenus du fait d’un gage sans dépossession ou de tout autre droit attaché par la loi à la formalité d’inscription et de publicité.
