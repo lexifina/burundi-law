@@ -1,0 +1,3 @@
+# Article 7
+
+Sont nommés : - Médecin Directeur de la Province Sanitaire de BUBANZA: Dr Joëlle BIGIRIMANA; - Médecin Directeur de la Province Sanitaire de BUJUMBURA: Dr Vianney NDAYISENGA; - Médecin Directeur de la Province Sanitaire de CANKUZO: Dr Zacharie KUBWIMANA; - Médecin Directeur de la Province Sanitaire de KARUSI: Dr Léonidas NZISABIRA; - Médecin Directeur de la Province Sanitaire de MURAMVYA: Dr Anaclet NAHAYO; - Médecin Directeur de la Province Sanitaire de NGOZI: Dr Philbert SENDEGEYA; - Médecin Directeur de la Province Sanitaire de RUTANA: Dr Marc NDAYIRAGIJE; - Médecin Directeur de la Province Sanitaire de RUYIGI: Dr Pierre MINANI.
