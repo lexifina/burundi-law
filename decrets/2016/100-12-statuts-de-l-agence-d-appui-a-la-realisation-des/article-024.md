@@ -1,0 +1,3 @@
+# Article 24
+
+A la fin de chaque trimestre, le Coordinateur National adresse au Comité National un rapport qui rend compte de la situation générale de l’Agence, de l’exécution des décisions prises lors des réunions précédentes, des initiatives prises et de l’état d’exécution du budget par rapport aux prévisions. Deux mois avant la fin de l’exercice budgétaire, il présente au Comité National son projet de budget prévisionnel pour l’exercice suivant. Après la clôture de l’exercice, il présente au Comité National un rapport annuel de gestion faisant ressortir les comptes et le bilan de l’exercice écoulé. 7. Du rapport d’exécution budgétaire

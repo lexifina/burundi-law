@@ -1,0 +1,3 @@
+# Article 27
+
+Les comptes de l’agence sont placés sous le contrôle permanent de deux commissaires aux comptes désignés par le Ministre ayant les finances dans ses attributions pour un mandat de trois (3) ans, renouvelable une fois. Après chaque exercice, les commissaires aux comptes établissent un rapport de contrôle donnant leurs avis sur la régularité et la sincérité des inventaires et des bilans, ainsi que l’exactitude des données sur les comptes de l’Agence et font toute suggestion utile pour une meilleure administration financière et comptable. Ce rapport est adressé au Ministre de tutelle, au Comité National et au Coordinateur national. 10. Des autres contrôles

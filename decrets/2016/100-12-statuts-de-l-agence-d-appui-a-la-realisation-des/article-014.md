@@ -1,0 +1,3 @@
+# Article 14
+
+Le Comité National, dans le cadre de l’administration de l’Agence:  Dispose des pouvoirs les plus étendus pour administrer l’Agence, définir et orienter sa politique générale et évaluer sa gestion dans les limites fixées par son objet;  Fixe, dans le cadre des directives données par le Ministre de tutelle, l’action de l’Agence. Il adopte le statut du personnel, le règlement d’ordre intérieur, le budget, le bilan, le manuel des procédures administratives et financières ainsi que le règlement comptable. Il statue sur tout projet d’aliénation du patrimoine. Il se prononce sur toutes les questions lui soumises par l’Unité de Gestion ou le Ministre de tutelle.
