@@ -1,0 +1,3 @@
+# Article 1 3
+
+Les Magistrats dont les noms suivent sont nommés Conseillers siégeant dans la Chambre Commerciale de la Cour d’Appel de Bujumbura. Il s’agit de: - Madame BARAGENGANA Modeste, Matricule 13303952 (220.216), Président de la Chambre; - Monsieur MATESO Jean Bosco, Matricule 16906692 (226.762), Vice-président; - Madame NKORERIMANA Rose, Matricule 16347833 (220.342), Membre; - Monsieur BIHUMUGANI Bonus, Matricule 12388617 (217.856), Membre; - Madame MUKESHIMANA Marie Chantal, Matricule 11583315 (215.259), Membre; - Madame HAKIZIMANA Marlène Bella, Matricule 15741783 (224.703), Membre; - Madame NKESHIMANA Anne Marie, Matricule 16915584 (225.601); - Monsieur KIMAMBA Septime, Matricule 13064078 (219.837).
