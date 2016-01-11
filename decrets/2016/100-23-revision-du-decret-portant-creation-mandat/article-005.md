@@ -1,0 +1,3 @@
+# Article 5
+
+Le mandat d’un membre prend fin dans les conditions ci-après : 1. Indisponibilité; 2. Absence prolongée aux travaux de la Commission dans les conditions prévues par le règlement d’ordre intérieur; 3. Démission; 4. Incapacité physique ou mentale constatée par une commission médicale; 5. Déchéance proposée par la Commission statuant à la majorité de 2/3 suite à une défaillance constatée après audition de l’intéressé; 6. Décès. Est considérée comme défaillance, tout acte pouvant être considéré comme entrave aux travaux de la Commission et dont l’auteur s’expose aux sanctions énumérées à l’article 21, alinéa 2.
