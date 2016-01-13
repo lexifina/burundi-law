@@ -1,0 +1,3 @@
+# Article 14
+
+Chaque fois que va débuter une opération d’identification et de délimitation, le Président de la Commission d’identification et de délimitation s’assure que: 1. Les autorités communales et collinaires sont informées et mobilisées; 2. Les membres de la Commission d’identification et de délimitation sont informés et mobilisés; 3. Les riverains sont informés; 4. Les moyens logistiques sont disponibles. En cas d’empêchement de l’une ou l’autre des personnalités visées à l’article 14, le Président de la Commission d’identification et de délimitation prend toutes les dispositions nécessaires pour la bonne marche de l’opération d’inventaire. Dans ce cas, mention en est faite au procès-verbal d’identification et de délimitation.
