@@ -1,0 +1,3 @@
+# Article 14
+
+Chaque fois que va debuter une operation d'identification et de delimitation, Ie President de la Commission d'identification et de delimitation s'assure que: 1. Les autorites communales et collinaires sont informees et mobilisees ; 2. Les membres de la Commission d'identification et de delimitation sont informes et mobilises ; 3. Les riverains sont in formes ; 4. Les moyens logistiques sont disponibles. En cas d'empechement de I'une ou l'autre des personnalites visees it I'article 14, Ie President de la Commission d'identification et de delimitation prend toutes les dispositions necessaires pour la bonne marche de I'operation d'inventaire. Dans ce cas, mention en est faite au prod~s-verbal d'identification et de delimitation.
