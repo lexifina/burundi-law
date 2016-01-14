@@ -1,0 +1,5 @@
+# Article 1 3
+
+Sont nommés membres de la Cellule de Gestion des Marchés Publics à l’Administration Centrale du Ministère des Transports, des Travaux Publics et de l’Equipement: 1. RUHIMBI NDABANIWE Thérence, Président; 2. BARUTWANAYO Norbert, Membre; 3. NKURIKIYE Ramadhan, Membre; 4. MPAWENIMANA Jean Claude, Membre; 5. NDAYISABA Pascal, Membre; 6. NKURANGA Apollinaire, Membre; 7. RUKUNDO Eric, membre; 8. TABU Aline, Membre; 9. NDAYIRAGIJE Athanase, Membre; 10. NDIKUMAGENGE Josiane, Membre; 11. NIYONSABA Moïse, Membre; 12. BAVUMIRAGIYE Célestin, Membre; 13. NTAKARUTIMANA Adèle, membre; 14. JUMA Hussein, Membre; 15. NTASHAVU Emmanuel, Membre; 16. KIGABO Marijani Saïdi, Membre; 17. NKURUNZIZA Alexis, Membre; 18. NKUNZIMANA Jean Marie, Membre; 19. NJEJIMANA Fidèle, Membre; 20. CAHUNJA Emmanuel, Membre; 21. NTAMAGENDERO Silas, Membre; 22. NSAVYIMANA Gaspard, Membre.
+
+La Personne Responsable des Marchés Publics (PRMP) à l’Administration Centrale du Ministère Transports, des Travaux Publics et de l’Equipement est Monsieur MBABAREMPORE Déogratias, Secrétaire Permanent.
