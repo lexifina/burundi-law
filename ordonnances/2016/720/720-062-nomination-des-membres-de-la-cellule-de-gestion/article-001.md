@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Cellule de gestion des marchés publics auprès de l’Autorité maritime, portuaire et ferroviaire (AMPF) les personnes ci-après : 1. M. Alexandre NKESHIMANA, Président; 2. Mme Espérance NIYINYIBUTSE, Secrétaire; 3. M. Joseph BARUHAWE, Membre; 4. M. Jean Claude HABIMANA, Membre; 5. M. Petit-Christin HABONIMANA, Membre; 6. M. Emile NDAYIKENGURUKIYE, Membre; 7. M. Côme Guillaume NDIKUMAGENGE, Membre; 8. M. Jean Bosco NDIKUNKIKO, Membre; 9. Mme Josette NDUWAMAHORO, Membre; 10. M. Félix NIMBONA, Membre; 11. M. Fidèle NIYUNGEKO, Membre; 12. M. Célestin NSAVYIMANA, Membre; 13. Mme Cyrilla SHIMIRIMANA, Membre; 14. Mme Léocadie NTAHORUBUZE, Membre; 15. M. Manassé NZAMBIMANA, Membre.
