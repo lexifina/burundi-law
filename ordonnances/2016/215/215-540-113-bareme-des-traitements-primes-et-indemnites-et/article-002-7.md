@@ -1,0 +1,3 @@
+# Article 2 7
+
+Sont nommés Inspecteurs Régionaux des Finances Communales: 1. Monsieur NTEZAHORIBA Fidèle, Inspecteur de la Région Centre-Ouest couvrant les provinces de Mwaro, Muramvya, Kayanza; 2. Monsieur NIYOKINDI Liévin, Inspecteur de la Région Nord couvrant les Provinces de Kirundo, Muyinga, Ngozi; 3. Madame NINDORERA Lisette, Inspectrice de la Région Centre-Est couvrant les Provinces de Gitega, Ruyigi, Karusi, Cankuzo; 4. Monsieur NDAYISHIMIYE Emile, Inspecteur de la Région Sud couvrant les Provinces de Rutana, Makamba, Rumonge et Bururi; 5. Madame NTERIMBERE Christine, Inspectrice de la Région Ouest couvrant les Provinces de Bujumbura Mairie, Bubanza, Cibitoke et Bujumbura rural.

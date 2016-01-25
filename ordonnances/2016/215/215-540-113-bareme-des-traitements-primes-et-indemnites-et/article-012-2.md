@@ -1,0 +1,3 @@
+# Article 12 2
+
+Le service chargé de la logistique a pour missions de:  Gérer rationnellement les moyens matériels mis à la disposition du Centre;  Maintenir les équipements en bon état;  Procéder aux inventaires et commandes de tout le matériel nécessaire pour le bon fonctionnement du Centre;  Gérer les provisions en bois, vivres secs, vivres frais et ration conditionnée;  Gérer le matériel d’habillement, de bureau, l’armement, les munitions et le matériel de tir;  Veiller à l’état et aux réparations éventuelles du charroi du Centre;  Veiller à la maintenance et entretien des infrastructures du Centre.

@@ -1,0 +1,3 @@
+# Article 10 2
+
+Le service chargé des programmes et cours de formation aux missions de maintien de la paix a pour missions de :  Elaborer les programmes et les calendriers de cours;  Assurer le suivi et l’évaluation des programmes et calendriers de cours;  Coordonner les recyclages et les entraînements des stagiaires;  Recruter les formateurs;  Evaluer les formations;  Procéder à l’évaluation des formateurs  Identifier les thématiques transversales et spécialisées pertinentes notamment la Réforme du Secteur de la Sécurité, la dimension « Genre » et les aspects connexes en se conformant aux standards internationaux et autres.
