@@ -1,0 +1,5 @@
+# Article 3
+
+La Présente ordonnance entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 03/02/2016 Aimée Laurentine KANYANA (sé).
