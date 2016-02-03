@@ -1,0 +1,7 @@
+# Article 3
+
+La Commission est composée de quatorze membres nommés par Arrêté du Deuxième Vice-président de la République.
+
+Les institutions de provenance des membres de la Commission sont les suivantes: 1. Un Représentant de la Deuxième Vice-présidence de la République; 2. Un Représentant du Ministère ayant les Finances dans ses attributions; 3. Un Représentant du Ministère ayant le Plan dans ses attributions; 4. Un Représentant du Ministère ayant l’Aménagement du Territoire et l’Urbanisme dans ses attributions; 5. Un Représentant du Ministère ayant les Transports et les Travaux Publics dans ses attributions; 6. Un Représentant du Ministère ayant le Commerce et l’Industrie dans ses attributions; 7. Un Représentant du Ministère ayant l’Energie dans ses attributions; 8. Un Représentant du Bureau d’Etudes Stratégiques et du Développement (BESD) de la Présidence de la République; 9. Un Représentant de l’Agence de Promotion des Investissements (API); 10. Un Représentant de l’Office Burundais des Recettes (O.B.R.); 11. Un Représentant de la Chambre Fédérale de Commerce et d’Industrie du Burundi (CFCIB); 12. Un Représentant du Bureau Burundais de Normalisation et Contrôle de la Qualité (B.B.N.); 13. Un Représentant du Ministère ayant la Justice dans ses attributions; 14. Un Représentant du Ministère ayant en charge les Techniques de l’Information et de la Communication.
+
+Chapitre IV De l’organisation
