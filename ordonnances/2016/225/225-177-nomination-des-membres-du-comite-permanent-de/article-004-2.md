@@ -1,0 +1,3 @@
+# Article 4 2
+
+Le retrait de l’agrément peut intervenir dans les cas suivants:  La pratique de l’activité contraire à l’objet de la mutuelle de santé;  Le non-démarrage des activités dans les six mois qui suit la date de l’agrément;  La cessation d’activités pendant un an, sans raison justifiée et approuvée par le Ministre ayant la protection sociale dans ses attributions;  La non-production des états financiers pendant deux exercices annuels consécutifs;  Le non respect des règles prudentielles sur deux exercices consécutifs;  La fusion ou scission intervienne en violation des dispositions statutaires;  La faillite constatée par qui de droit.

@@ -1,0 +1,3 @@
+# Article 3 5
+
+Le Comité de Coordination des Politiques Monétaire et Budgétaire est doté d’un Secrétariat Technique qui est composé comme suit:  Le Directeur Général des Finances Publiques: Secrétaire technique du CCPMB;  Le Chef du Service Etudes et Statistiques à la BRB: Secrétaire technique suppléant;  Le Directeur Général du Budget et de la Politique Fiscale, Membre;  Le Coordonnateur de la Cellule d’Appui chargée du Suivi des Réformes et du Cadre de Partenariat entre le Gouvernement et les Bailleurs de Fonds, Membre;  Le Chef du Service Opérations Bancaires Internes à la BRB: Membre;  Le Chef du Service Opérations bancaires avec l’Etranger à la BRB: Membre.

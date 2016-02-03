@@ -1,0 +1,3 @@
+# Article 4 6
+
+La cellule de Gestion des Marchés Publics (CGMP) au sein du Centre National de Transfusion Sanguine est composée par:  Dr Félicien NZOTUNGWANAYO;  Madame Consolate MINANI;  Monsieur Prosper NDAYISHIMIYE;  Madame Emelyne EMERIMANA;  Monsieur Norbert NDAYISHIMIYE;  Madame Caritas BUCIMBONA;  Madame Nicole KARERO;  Madame Angélique KAMIKAZI;  Madame Aimée Lydia NDABAGOYE;  Madame Théremie BUZIYA;  Monsieur Pascal BIZIMANA;  Monsieur Athanase NIYONGABO;  Monsieur Jean Marie NSHIMIRIMANA;  Monsieur Félix NDAYISHIMIYE;  Monsieur Audifax NDAYIRAGIJE;  Monsieur Vincent HAVYARIMANA;  Monsieur Marie NZISABIRA;  Monsieur Nestor RIRAGENDANWA.
