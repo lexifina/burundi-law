@@ -1,0 +1,3 @@
+# Article 2 4
+
+La Commission a pour missions d’organiser toutes les activités en rapport avec la tenue de cette conférence conformément aux termes de référence y relatifs. Plus particulièrement, elle sera chargée de:  La Production d’une note conceptuelle de la conférence assortie d’une budgétisation objective;  L’Organisation technique et scientifique de la Conférence, ainsi que le choix des thèmes directeurs;  L’Identification des personnes ressources ainsi que le mécanisme de leur implication;  L’identification des participants tant nationaux qu’internationaux;  La Mobilisation des ressources auprès des sponsors potentiels;  L’Organisation logistique de la Conférence;  La Communication autour de l’événement.

@@ -1,0 +1,3 @@
+# Article 2 2
+
+Sont nommés Membres de la Cellule de Gestion des Marchés Publics (CGMP) au sein de l’O.H.P les cadres et agents ci-après: 1. GAHUNGU Richard; 2. NTIRAMPEBA Claver; 3. NTAMAGARA Willy; 4. NIMUBONA Christian; 5. NDAYISHIMIYE Augustin; 6. NDIKUMANA Daniel; 7. NTIRANYIBAGIRA Thérence; 8. BUCEKABIRI Déo; 9. ‘NIYONKURU Albert; 10. HICUBURUNDI David; 11. NGENDAKURIYO Emmanuel; 12. NININAHAZWE Gloriose; 13. NIYONKURU J.-Marie; 14. DUSABE Ange; 15. KATOTO Edouard; 16. NIZIGIYIMANA Stany; 17. NZOHABONAYO Marie-Goreth; 18. HATEGEKIMANA Théophile; 19. BITANGIMANA Gaston; 20. KANTUNGEKO Caritas; 21. NDINDIMA Ismaël; 22. HASHAZINKA Ernestine; 23. NAHIMANA Magnifique; 24. BARAMPANZE Venant; 25. NDIKUMASABO Daniel; 26. NTAZINA Languide.
