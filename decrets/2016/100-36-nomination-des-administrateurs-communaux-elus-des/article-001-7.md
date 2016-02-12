@@ -1,0 +1,3 @@
+# Article 1 7
+
+La détermination du revenu imposable pour le personnel du Parlement est définit conformément à l’article 2 de l’Ordonnance Ministérielle n°540/117 du 29/01/2013 portant modalités de calcul de l’impôt sur les revenus professionnels. La base de l’imposition est constituée par les éléments suivants:  Salaire de base;  Loyer ou indemnité compensatoire qui excède 60% du salaire de base;  Cotisation sur le salaire aux fonds de pensions qualifiées et aux organismes complémentaires de sécurité sociale qui excède 20% du revenu brut de l’employé;  La primé de rendement;  La prime de technicité;  L’indemnité de charge spéciale;  L’indemnité de fonction.

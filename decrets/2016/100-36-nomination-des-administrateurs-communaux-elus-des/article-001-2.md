@@ -1,0 +1,3 @@
+# Article 1 2
+
+Le Conseil Municipal de la Mairie de Bujumbura est composé comme suit: 1. Hon. MBONIMPA Freddy: Président; 2. MANIRATANGA Zéphirin: Vice Président; 3. NYABENDA Christophe: Secrétaire; 4. Hon. AHISHAKIYE Emérence: Membre; 5. Hon. BASHINGWA Evole Pierre: Membre; 6. NSABIMANA Chanel: Membre; 7. CIZA Sadiki: Membre; 8. GAHOMERA Alexandre Kiki: Membre; 9. MPAWENAYO Espérance: Membre; 10. RURAKAMVYE Pierre Claver: Membre; 11. MAZIMPAKA Issa Désiré: Membre; 12. RUFURUGUTA Jeanne Paula: Membre; 13. MUTONI Nancy Ninette: Membre; 14. KABURA Daniel: Membre; 15. HAKIZIMANA Eddy Paul: Membre; 16. NSHIMAYEZU Maximilien: Membre; 17. NDIKUMANA Déo: Membre; 18. NIYONDEZI Alexis: Membre; 19. NGERAGEZE Espérance: Membre.
