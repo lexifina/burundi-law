@@ -1,0 +1,3 @@
+# Article 21
+
+La Direction Nationale des Cantines Scolaires est chargée de:  Assurer la responsabilité de planification, du suivi, du pilotage et de l’évaluation des activités de son département;  Inventorier les besoins en équipements et fournitures pour toutes les cantines scolaires;  Assurer le suivi des activités en rapport avec les cantines scolaires;  Effectuer le contrôle de distribution et de l’utilisation des vivres dans les cantines scolaires;  Assurer la mise en œuvre des actions prévues dans le plan sectoriel de développement de l’éducation et de la formation pour la bonne gestion des cantines scolaires.

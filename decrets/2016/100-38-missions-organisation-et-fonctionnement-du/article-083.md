@@ -1,0 +1,3 @@
+# Article 83
+
+La Direction de la Recherche Scientifique est chargée de:  Promouvoir des publications de haute qualité scientifique;  Organiser les archives et une bibliothèque scientifique;  Tenir et renouveler l’annuaire des capacités en recherche;  Constituer un inventaire du système national de la recherche, de la science et la technologie;  Diffuser les informations sur la recherche;  Mettre en place et entretenir un réseau d’échanges de résultats et d’information en matière de recherche entre les institutions de recherche;  Organiser des colloques et forums réguliers dans les axes prioritaires de la recherche.

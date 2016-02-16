@@ -1,0 +1,3 @@
+# Article 80
+
+La Direction de l’Enseignement Supérieur est chargée de:  Participer à l’élaboration et à l’exécution de la Politique gouvernementale dans le domaine de l’enseignement supérieur;  Participer au suivi des activités liées à l’ouverture d’établissements scolaires, à l’équivalence et la reconnaissance des diplômes, des titres scolaires et universitaires, à l’accréditation et l’agrément des programmes d’études en collaboration avec les commissions ad-hoc concernées;  Participer à la définition des critères d’admission à l’enseignement supérieur et à l’orientation des étudiants;  Assurer le contrôle régulier du respect des normes d’admission des étudiants à l’enseignement supérieur.

@@ -1,0 +1,3 @@
+# Article 65
+
+ Dans le domaine pédagogique, le Directeur Communal de l’Enseignement est chargé de:  Promouvoir quantitativement et qualitativement l’Enseignement Fondamental et Post-Fondamental dans la commune;  Mener des actions de sensibilisation et de conscientisation des communautés pour l’inscription à l’école de tous les enfants en âge;  Mener des actions de sensibilisation et de conscientisation des communautés des enseignants pour la réduction du redoublement;  Remédier rapidement aux mauvaises situations constatées par l’inspection scolaire;  Monter des projets d’acquisition du matériel didactique;  Exploiter les résultats scolaires de sa commune pour améliorer le rendement scolaire.

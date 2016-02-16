@@ -1,0 +1,3 @@
+# Article 74
+
+L’Ecole Normale Supérieure est un établissement public à caractère administratif doté de la personnalité juridique et de l’autonomie de gestion. Elle est régie par le décret qui en fixe l’organisation. Elle est chargée de:  Assurer la formation des enseignants des cycles inférieur et supérieur à l’enseignement post-fondamental général, technique et professionnel;  Promouvoir la recherche scientifique particulièrement en matière de l’éducation;  Participer activement au développement social, économique et culturel;  Participer au perfectionnement des enseignants ayant déjà reçu la formation initiale.

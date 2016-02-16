@@ -1,0 +1,3 @@
+# Article 71
+
+Le Conseil Communal de l’Enseignement exerce des compétences qui s’étendent à tous les aspects de la vie scolaire. En particulier le Conseil:  Donne des orientations générales en matière d’éducation dans la commune, dans le respect de la Politique Nationale de l’Education: il est promoteur de l’édification d’une école communautaire;  Analyse les différents projets de réhabilitation et de mise en place de nouvelles infrastructures scolaires;  Donne un avis sur la gestion administrative des écoles et des centres implantés dans la Commune;  Répercute les doléances des parents, des élèves et des enseignants dans le domaine de l’éducation;  S’exprime sur toute question lui soumise par le Directeur Communal de l’Enseignement.

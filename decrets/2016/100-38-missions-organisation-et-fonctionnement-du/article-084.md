@@ -1,0 +1,5 @@
+# Article 84
+
+La Direction de la Promotion de la Science, la Technologie et l’Innovation est chargée de:  Promouvoir la valorisation et la diffusion des résultats de la recherche scientifique et technologique;  Organiser et gérer une vitrine permanente des résultats de la recherche scientifique et technologique;  Aider les chercheurs à créer des entreprises à partir des innovations qu’ils mettent au point;  Mettre en œuvre des actions de transfert de technologie;  Assurer le suivi des activités soutenues par le fonds de la recherche et l’innovation;  Organiser des rencontres ou des forums de diffusion et de vulgarisation des résultats de la recherche;  Mettre les résultats de la recherche à la disposition du public;  Animer le dialogue et instaurer la concertation entre différents intervenants de la recherche: scientifiques, politiques, organisations internationales d’appui à la recherche, bénéficiaires;  Organiser les voies par lesquelles les utilisateurs et le public interpellent et responsabilisent les chercheurs.
+
+Chapitre III Des dispositions finales

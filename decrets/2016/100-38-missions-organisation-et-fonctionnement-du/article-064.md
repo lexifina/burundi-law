@@ -1,0 +1,3 @@
+# Article 64
+
+Dans le domaine de la « gestion financière », le Directeur Communal de l’Enseignement est habilité à:  Centraliser la prévision budgétaire Communale des écoles et des centres au niveau communal;  Superviser l’exécution conforme du budget alloué aux écoles de sa commune;  Gérer le budget alloué à sa Direction;  Superviser l’utilisation des ressources financières et matérielles et la gestion des produits de l’autofinancement des Ecoles Fondamentales et Post-Fondamental Général, Pédagogique et Technique;  Organiser les campagnes de mobilisation des financements du réseau scolaire de la commune.

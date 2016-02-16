@@ -1,0 +1,3 @@
+# Article 43
+
+La Direction de l’Education Préscolaire et de la Petite Enfance est chargée de:  Organiser et coordonner les activités de l’Enseignement Préscolaire tant public que privé;  Participer à l’élaboration et suivre l’exécution de la Politique Nationale en matière d’Enseignement Préscolaire:  Participer en collaboration avec les services concernés à la production des matériels des Ecoles Maternelles;  Diffuser et assurer le suivi des instructions du Ministère dans les Ecoles Maternelles;  Proposer des programmes des actions et des activités visant la protection et l’éveil de la Petite Enfance.

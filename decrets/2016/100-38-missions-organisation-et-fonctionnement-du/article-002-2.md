@@ -1,0 +1,3 @@
+# Article 2 2
+
+Les biens et services importés par les organismes et les projets spécifiés à l’article premier, de la présente Ordonnance n’acquittent pas la TVA au titre d’acompte à l’importation. Il en est de même des achats locaux de biens et services effectués par ces organismes dans le cadre des accords et conventions signés avec le Gouvernement. A ce titre, ils sont dispensés de l’acquittement de la TVA au titre d’acompte, qui leur est remboursée conformément aux dispositions de l’article 20 de la loi n°1/12 du 29 juillet 2013 portant révision de la loi n°1/02 du 17 février 2009 portant institution de la Taxe sur la Valeur Ajoutée « TVA ».
