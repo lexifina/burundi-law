@@ -1,0 +1,5 @@
+# Article 3
+
+L’Hôpital de la Police Nationale du Burundi a pour missions de:  Assurer les soins médico chirurgicaux pour les membres de la Police Nationale du Burundi et leurs ayant droits, ainsi qu’à toute la population demanderesse;  Effectuer des examens et analyses médicaux de toute nature;  Acheter et vendre les produits pharmaceutiques selon les normes pharmaceutiques en vigueur, les matériels et autres fournitures nécessaires à la réalisation de sa mission;  Veiller à la mise en application des politiques en matière de la santé publique;  Collaborer avec le Ministère ayant la Santé Publique et la Lutte contre le SIDA dans ses attributions, notamment en matière de contrôle et d’inspection technique des prestations des soins réalisées au sein de l’hôpital et des statistiques sanitaires;  Transmettre les statistiques sanitaires au District Sanitaire de la circonscription dans laquelle il est établi;  Exercer toute autre activité permettant la réalisation de sa mission.
+
+Chapitre II De l’organisation administrative Section 1 Du Conseil d’Administration

@@ -1,0 +1,3 @@
+# Article 7
+
+Le Conseil d’Administration exerce ses pouvoirs conformément au cadre légal régissant les Administrations Personnalisées de l’Etat. Il oriente, dans le cadre des directives données par le Ministre ayant la Sécurité Publique dans ses attributions et la politique sanitaire en vigueur, le plan d’action de l’Hôpital de la Police Nationale du Burundi. Il adopte le Règlement d’Ordre Intérieur de l’hôpital, le projet du statut du personnel et le règlement comptable; il statue sur tout projet d’aliénation et se prononce sur toute question lui soumise par la Direction ou par l’autorité ministérielle.
