@@ -1,0 +1,3 @@
+# Article 1 4
+
+Sont désignés Membres de la Cellule de Gestion des Marchés Publics à la Régie des Productions Pédagogiques: 1. Monsieur Gezgez KASESA, Directeur Commercial, Administratif et Financier; 2. Madame FARIDA Mohamed, Conseillère attachée à la Direction Générale; 3. Madame Yolande BIGIRWANAYO, Service Magasin; 4. Madame Lucie MAN1RAMBONA, Service Administration; 5. Mademoiselle Anitha NIYOMWUNGERE, Service Comptabilité; 6. Madame Christine NIBAMPA, Service Comptabilité; 7. Monsieur Thomas BUNAMUKE, Service Production; 8. Monsieur Désiré BIGIRINDAVYI, Service Maintenance; 9. Monsieur Anicet BINDARIYE, Service Production; 10. Monsieur Ezéchiel HAKIZIMANA, Service Magasin; 11. Monsieur Clovis NAHIMANA, Service Production.
