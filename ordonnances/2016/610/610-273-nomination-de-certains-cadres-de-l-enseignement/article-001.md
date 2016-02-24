@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés : - Directeur du Lycée Communal MUYANGE: Monsieur NIYONIZIGIYE Adrien, Matricule, 15863338 - Directeur du Lycée Communal BUGARAMA: Monsieur NGENDAKUMANA François, Matricule, 20258549 - Directeur du Lycée Communal MAGARA: Monsieur MANIRAKIZA Désiré, Matricule, 19387872 - Directeur du Collège KAVUMU: Monsieur HAGABIMANA Cyrille, Matricule, 21403351 - Directeur du Lycée Communal RUTWENZI: Monsieur NDIKURIYO Elie, Matricule, 18838915 - Conseiller Chargé des Ressources Humaines à la DCE BUYENGERO, Monsieur NDIKUMWENAYO François, matricule, 21405977 - Préfet des études au Lycée Christ Roi de BUYENGERO, Monsieur NDAYISHIMIYE Serges, matricule 21101944
