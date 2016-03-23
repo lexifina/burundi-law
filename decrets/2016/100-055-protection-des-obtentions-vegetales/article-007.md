@@ -1,0 +1,3 @@
+# Article 7
+
+Le benefice de la date de depot de la demande est acquis au jour ou la demande parvient a l'Office national de controle et de certification des semences a condition qu 'aient ete produites toutes les pieces prevues a I'm·ticle 5 et que la taxe pour Ie depot prevue a I'article 26 ait ete versee. Lorsque Ie depot ne comporte pas I'ensemble des pieces susvisees, l'Office national de controle et de certification des semences invite Ie deposant a completer son dossier et accorde, en tant que date de depot, la date de la reception du dossier complet. Si Ie dossier n'est pas complete dans Ie delai impalii, la demande est consideree comme n'ayant pas ete deposee.

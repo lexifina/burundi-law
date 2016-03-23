@@ -1,0 +1,3 @@
+# Article 31
+
+Le droit d'obtenteur est reconnu a la personne ayant cree, decouvert ou developpe une variete, ou son ayant droit ou ayant cause. Au cas OU la protection est accordee, sa duree est reduite du nombre d'annees qui se sont ecoulees entre Ie moment OU la variete a ete offetie a la commercialisation, cOl11l11ercialisee ou diffusee pour la premiere fois et celui ou la demande a ete presente. Lorsqu'un droit d'obtenteur est reconnu en application du present at1icle, Ie titulaire ne peut interdire I 'exploitation a tout tiers qui, de bonne foi , exploitait la variete avant Ie depot de la del11ande.

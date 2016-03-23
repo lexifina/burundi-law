@@ -1,0 +1,3 @@
+# Article 27
+
+L'Office national de controle et de celiification des semences tient des registres des demandes de droit d'obtenteur et des droits d'obtenteur reconnus avec mention du taxon botanique, de la designation provisoire de la variete, de la date de depot ainsi que des noms et des adresses du demandeur, de I'obtenteur et de tout mandataire concerne, la procedure de demande du droit d'obtenteur, les propositions de denomination varietale, Ie transfert notifie d'une demande, avec mention des ayants droit ou ayants cause, la contestation sur des droits civils ainsi que la decision coulee en force de chose jugee concernant cette action en justice ou tout abandon de celle-ci.
