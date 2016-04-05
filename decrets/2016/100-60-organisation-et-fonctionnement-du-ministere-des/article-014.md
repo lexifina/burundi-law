@@ -1,0 +1,3 @@
+# Article 14
+
+La Direction des Infrastructures des TIC est chargée notamment de: - Participer à l’élaboration des politiques sectorielles de développement des infrastructures des TIC et des ressources humaines nécessaires pour leur mise en œuvre; - Participer à la mise à jour régulière du cadre institutionnel et réglementaire favorable au développement des TIC en collaboration avec le Régulateur du Secteur; - Participer à l’établissement des cadres de politique générale pour un accès au service universel des TIC; - Suivre la mise en œuvre des projets de Modernisation et d’Extension des Réseaux des TIC; - Organiser et encadrer les Opérateurs Privés et Publics du Secteur des TIC.
