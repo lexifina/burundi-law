@@ -1,0 +1,3 @@
+# Article 22
+
+La Direction du Fonctionnement des Structures du Programme d’Education et de Formation Patriotique est chargé notamment de: - Faire respecter le règlement d’ordre intérieur des structures du Programme d’Education et de Formation Patriotique; - Réaliser des études sur les forces sociopolitiques et économiques de chaque structure du Programme d’Education et de Formation Patriotique; - Suivre le respect par les communes de la dotation allouée au Programme d’Education et de Formation Patriotique (Formation et perfectionnement); - Renforcer les relations entre les structures du Programme d’Education et de Formation Patriotique.

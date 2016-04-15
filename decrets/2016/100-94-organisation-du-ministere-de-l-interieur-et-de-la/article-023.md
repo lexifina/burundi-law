@@ -1,0 +1,3 @@
+# Article 23
+
+La Direction de la Formation et du Perfectionnement est chargé notamment de: - Préparer les modules de formation; - Renforcer les relations entre les structures du Programme d’Education et de Formation Patriotique; - Préparer les dossiers techniques de mobilisation et de coordination des structures du Programme d’Education et de Formation Patriotique; - Assurer l’assistance-conseil aux structures du Programme d’Education et de Formation Patriotique; - Identifier et préparer les projets de collaboration avec les partenaires techniques et financiers; - Concevoir une méthode d’alphabétisation fonctionnelle d’appropriation du Programme d’Education et de Formation Patriotique;
