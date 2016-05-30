@@ -1,0 +1,3 @@
+# Article 22
+
+Le Ministre de l'Eau, de l'Environnement, de l'Amenagement du Territoire et de l'Urbanisme et Ie Ministre de la Justice et Garde des Sceaux, sont charges, chacun en ce qui Ie coneerne, de I'execution du present Deeret qui entre en vigueur Ie jour de sa signature. PAR LE PRESIDENT DE LA REPUBLIQUE, LE PREMIER VICE·PRESIDENT DE LA REPUBLIQUE, Gaston SINDIMWO LE DEUXIEME VICE·PRESIDENT DE LA REPUBLIQUE, Dr Joseph BUTORE p;r LE MIN ISTRE DE LA JUSTICE Aimee L; ... m." LE MINISTRE DE L'EAU, DE L'ENVIRONNEMENT, DE L'AMENAGEMENT DU TERRITOIRE E TA'JEt!lJJHl Hon. mma RU. Fait a Bujumbura, Ie 30 mai 2016 Pierre NKURUN"F-ZI=.ZA:.,::.:....-__ _
