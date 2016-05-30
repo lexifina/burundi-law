@@ -1,0 +1,3 @@
+# Article 36
+
+Les comptes de l'Office sont places sous Ie contr61e permanent de deux Commissaires aux Comptes designes par Ie Conseil d'Administration pour un mandat de quatre (4) ans renouvelable une fois. Apres chaque exercice, les Commissaires aux Comptes etablissent un rapport de contr61e donnant leurs avis sur la regularite et la sincerite des inventaires et des bilans, ainsi que I'exactitude des donnees sur les comptes de I'Office et font toute suggestion utile pour une meilleure administration financiere et comptable. Ce rapport est adresse au Ministre de tutelle, au Ministre des Finances, au Directeur General de I'Office et au Conseil d'Administration.

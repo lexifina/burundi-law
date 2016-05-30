@@ -1,0 +1,3 @@
+# Article 23
+
+La Direction des Operations est chargee: - De I'appui au recouvrement des recelles issues du secteur minier, carrier et petrolier ; - Du suivi technique et administratif des activites d'exploitations minieres industrielles et artisanales ; - Du suivi technique et administratif des activites d'exploitation des produits carners ; - De la certification des sites miniers d'exploitation et des minerais ; - Du suivi et du contr61e des activites des comptoirs d'achat et d'exportations des minerais ; De la lulle contre la fraude et les exploitations illegales des mines et des carrieres ; - De I'execution de toute autre activite repondant aux missions de I'office.
