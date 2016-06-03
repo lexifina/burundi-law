@@ -1,0 +1,3 @@
+# Article 1 5
+
+Sont nommés nouveaux membres de la Cellule de Gestion des Marchés Publics à 1’Autorité de Régulation de la Filière Café du Burundi: 1. Monsieur NDABAKENGA Victor: Chef de Service Finance et Comptabilité de l’ARFIC, en remplacement de Monsieur NTIRUHWAMA Simon; 2. Monsieur BWENGE Glaüs: Comptable de l’ARFIC, en remplacement de Madame NTAGAHORAHO Jeanne; 3. Monsieur BAVUGUKURI Barnabé: Responsable de la Section Approvisionnement de l’ARFIC, en remplacement de Monsieur KARENZO Jérémie; 4. Madame UWINEZA Délice: Secrétaire à la Direction Administrative et Financière de l’ARFIC, en remplacement de Madame MPOZENZI Marie Claire.
