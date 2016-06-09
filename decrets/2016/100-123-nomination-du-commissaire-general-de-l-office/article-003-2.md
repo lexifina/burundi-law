@@ -1,0 +1,3 @@
+# Article 3 2
+
+Ces Statisticiens et/ou démographes produisent des rapports trimestriels de leurs activités au Ministère d’accueil avec copie à l’ISTEEBU et continuent à dépendre administrativement et pécuniairement de ce dernier. Elles sont notées par l’ISTEEBU sur rapport du Ministère d’accueil sur les aspects suivants: ponctualité, assiduité, relations professionnelles, sens de responsabilité, sens d’organisation, connaissances professionnelles, rendement et capacité de prise de décision. Leurs congés sont octroyés selon le régime applicable à l’ISTEEBU et moyennant un sous-couvert obligatoire de leurs structures d’accueil.
