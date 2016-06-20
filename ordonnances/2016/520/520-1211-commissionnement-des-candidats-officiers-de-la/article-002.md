@@ -1,0 +1,3 @@
+# Article 2
+
+Sont commissionnés au grade d’Adjudant Candidat officier à la date du 1er Octobre 2015, les Sergents Candidats Officiers ci-après: 79529 NKURUNZIZA Kelly 79487 KASABA Adélard 79478 IRAKOZE Augustin 79492 MISAGO Eddy 79537 NTUKAMAZINA Ernest 79489 KWIGIZE Armand de Monfort 79462 ARAKAZA Lionel 79513 NIMUBONA Avit 79458 ABIZERIMANA Prosper 79533 NSHIMIRIMANA Paul 79544 TWIHANURE Blaise MUNEZERO Alain-Bruce 79507 NDUWIMANA René 79463 BARAJEGETERA Jean-Bertrand 79470 CIZA Floribert 79539 SHAKARYUMUKAMA Jean-Claude 79540 SINDAYIGAYA Callixte 79526 NIYONGABO Jean-Jacques 79481 IRAKOZE Olégue 79473 HABARUGIRA Venuste 79505 NDUWAYEZU Désiré
