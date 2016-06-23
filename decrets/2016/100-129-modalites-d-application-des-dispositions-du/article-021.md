@@ -1,0 +1,3 @@
+# Article 21
+
+La Commission procède à l’examen de la situation; elle vérifie les limites et la contenance du terrain telles que décrites dans la demande; elle entend les arguments du demandeur et des personnes attestant de la conformité du droit revendiqué aux usages du lieu unanimement reconnus; elle examine les oppositions déposées, entend les opposants présents, et recherche le règlement sur place de ces oppositions; elle se prononce, à défaut d’opposition non réglée, sur le bien fondé de la demande, en appréciant l’existence du droit revendiqué, en tenant compte des usages et règles en vigueur sur la colline à la date de l’opération de reconnaissance.

@@ -1,0 +1,3 @@
+# Article 50
+
+En cas de fusion de deux ou plusieurs parcelles certifiées, le Service Foncier Communal procède, s’il le juge nécessaire, à une reconnaissance collinaire pour confirmer la délimitation de la nouvelle parcelle ainsi créée. A l’issue de celle-ci, il procède à l’annulation des anciens certificats parcellaires et établit le nouveau certificat. La remise de celui-ci est soumise aux dispositions de l’article 40 ci-dessus. Dans le cas où la demande de fusion porte sur des parcelles certifiées et non certifiées, la reconnaissance collinaire est obligatoire et elle doit permettre l’identification de la nouvelle parcelle unique, selon les modalités prévues par le Code Foncier et le présent décret pour l’instruction d’une demande de certificat foncier.

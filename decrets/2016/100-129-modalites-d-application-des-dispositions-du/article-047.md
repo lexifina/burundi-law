@@ -1,0 +1,3 @@
+# Article 47
+
+Tous les actes établis en application de l’article précédent, pour être opposables aux tiers en vertu de l’article 408 alinéa 2 de la Loi n°1/13 du 09 août 2011 portant Révision du Code Foncier du Burundi, doivent être inscrits au registre foncier communal selon les modalités ci-après: - Le bénéficiaire de l’acte doit demander au Service Foncier Communal l’inscription dudit acte, en présentant au Service l’original de l’acte ou une copie attestée conforme; - Le Service Foncier Communal inscrit l’acte au registre foncier, à la page concernant la parcelle certifiée, ainsi qu’au certificat foncier, en précisant les caractéristiques de l’acte (nature, conditions particulières, date); une copie certifiée de l’acte est insérée au dossier foncier de la parcelle.

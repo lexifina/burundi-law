@@ -1,0 +1,5 @@
+# Article 37
+
+Si le Service Foncier Communal prend connaissance d’une procédure pénale pendante portant sur le déplacement, l’enlèvement ou le dépassement de bornes judiciaires délimitant ou affectant la délimitation de l’immeuble concerné, la procédure d’émission du certificat est suspendue jusqu’à la clôture du dossier judiciaire. Le Service Foncier Communal inscrit l’existence de cette procédure pénale, avec le numéro de l’affaire, au registre chronologique, à la date de cette prise de connaissance. Il en informe le demandeur, par écrit, dans les meilleurs délais et dans un délai maximal de huit jours à compter du jour où il a pris connaissance de la procédure. Dans le cas où la convocation pour la reconnaissance collinaire a déjà été initiée, le Service Foncier Communal prend toutes dispositions utiles pour suspendre celle-ci et notamment, il en informe par écrit les personnes convoquées, dans le même délai que celui mentionné à l’alinéa précédent.
+
+Section 4 De la délivrance du certificat foncier

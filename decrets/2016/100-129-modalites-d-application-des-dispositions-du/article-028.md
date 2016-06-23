@@ -1,0 +1,5 @@
+# Article 28
+
+L’agent foncier communal inscrit les oppositions reçues au registre chronologique, et inclut les documents déposés dans le dossier foncier. Récépissé de l’opposition déposée est donné au requérant de celle-ci. Ces oppositions reçues avant la reconnaissance collinaire sont mentionnées au dossier de la reconnaissance pour que la Commission collinaire puisse, sur place, en apprécier le bien fondé ou non.
+
+Le Service Foncier Communal notifie au demandeur de la certification les oppositions reçues, dès réception de celles-ci. Cette notification doit préciser que les oppositions seront soumises à l’avis de la Commission lors de la reconnaissance collinaire, en invitant le demandeur à indiquer au Service s’il entend maintenir sa demande, avec ou sans modification, ou s’il y renonce. Si le demandeur de la certification souhaite renoncer à sa demande ou modifier celle-ci, il doit en informer le service qui enregistre sa requête avec émargement à date de celle-ci. § 1 Des oppositions reçues pendant la reconnaissance collinaire

@@ -1,0 +1,3 @@
+# Article 2
+
+Ne peut faire l’objet d’une certification que le seul droit réel de propriété. Les autres droits réels peuvent être inscrits au registre foncier communal et reportés au certificat constatant la propriété foncière. Ils sont établis selon des modalités fixées par la Loi n°1/13 du 09 août 2011 portant Révision du Code Foncier du Burundi et par le présent décret, permettant de constater de manière certaine: - Qu’ils sont bien exercés personnellement par leur détenteur; - Qu’ils sont conformes aux normes locales, réputées de droit coutumier, telles que reconnues selon les usages, de la communauté collinaire, au moment de leur constatation par la commission collinaire.

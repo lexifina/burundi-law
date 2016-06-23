@@ -1,0 +1,3 @@
+# Article 31
+
+Les oppositions réglées lors de la reconnaissance collinaire sont enregistrées comme telles au procès-verbal de celle-ci. Le règlement de l’opposition consiste dans la décision de la Commission approuvée tant par le demandeur du certificat que par l’opposant. Cette décision est inscrite par le Service Foncier Communal au registre chronologique ou sur le registre des oppositions s’il en existe un. Si la décision consiste dans le rejet de l’opposition, le Service Foncier Communal peut alors poursuivre la procédure d’émission du certificat. Si la décision est favorable à l’opposant, le Service Foncier Communal clôt ou suspend la procédure d’émission du certificat selon le cas.

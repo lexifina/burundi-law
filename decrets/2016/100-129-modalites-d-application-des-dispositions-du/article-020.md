@@ -1,0 +1,3 @@
+# Article 20
+
+A la date et à l’heure fixée, la Commission collinaire se réunit sur le lieu de situation du terrain objet de la demande de certification. L’agent foncier assure le secrétariat de l’opération de reconnaissance sur le terrain et il ne dispose d’aucun pouvoir de participer à la délibération de la commission. Il dresse la liste des personnes présentes, outre les membres de la Commission, notamment celles dont la présence est requise, à savoir le demandeur, les voisins, mais aussi des autres participants, dont les témoins invoqués et les opposants éventuels. Il fait part à la Commission du contenu de la demande qui est soumise à son évaluation.
