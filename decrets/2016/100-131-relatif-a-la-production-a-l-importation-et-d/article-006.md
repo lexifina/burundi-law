@@ -1,0 +1,3 @@
+# Article 6
+
+L’Agence de contrôle et de régulation est consultée par le Ministre ayant en charge l’électricité préalablement à toute décision de limitation ou interdiction de la production, des importations ou des exportations en matière d’électricité. A compter de sa saisine par le Ministre ayant l’électricité dans ses attributions, l’Agence de contrôle et de régulation rend un avis dans un délai maximum de dix (10) jours. Dans son avis, l’Agence veille au respect et à la protection des droits des usagers et des opérateurs économiques du secteur de l’énergie électrique ainsi qu’au respect des conditions d’une concurrence juste et loyale ainsi que de l’égalité de traitement entre opérateurs.
