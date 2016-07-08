@@ -1,0 +1,5 @@
+# Article 2
+
+La commission chargée de superviser la passation et la correction de l'examen d'Etat de l'enseignement secondaire, session 2016 a pour mission de: -Organiser toutes les opérations en rapport avec la préparation logistique de l'examen d'Etat; -Assurer le suivi de la passation de l'examen d'Etat en étroite collaboration avec les Présidents des centres de passation; -Codifier toutes variables qui sont susceptibles d'une tricherie éventuelle; -Suivre toutes les opérations de l'impression des épreuves; -Organiser les différentes étapes de correction, notamment:  la validation des grilles de correction  La correction de l'examen d'Etat  Le traitement des réclamations avant l'affichage des résultats  Le traitement des recours éventuels -Publier les résultats provisoires -Procéder à la délibération -Publier les résultats définitifs
+
+- Transmettre les résultats définitifs aux différents services concernés, notamment: Le Bureau des Bourses et Stages La Direction Générale de l'Enseignement Supérieur et Post-secondaire Professionnel
