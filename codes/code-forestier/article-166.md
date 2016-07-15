@@ -1,0 +1,3 @@
+# Article 166
+
+Toute personne détentrice d'une parcelle à bâtir en milieu urbain plante et entretient des arbres dont les essences et le nombre sont déterminés par un règlement de reboisement y relatif fixé conjointement par les ministres ayant respectivement les forêts et l'urbanisme dans leurs attributions. L'administration locale a le devoir de planter et d'entretenir des arbres sur le périmètre des places publiques et le long des cours d'eau, des rivières et des routes traversant les centres urbains dont les essences et le nombre sont déterminés par le règlement de reboisement en milieu urbain.

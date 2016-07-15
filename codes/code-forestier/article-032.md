@@ -1,0 +1,3 @@
+# Article 32
+
+La séparation entre les forêts, les boisements et les terrains à boiser de l'Etat et les propriétés riveraines peut faire l'objet, soit d'une délimitation partielle, soit d'une délimitation générale après consultations des populations concernées. L'action en délimitation partielle est intentée soit par l'Etat, soit par les propriétaires riverains suivant la procédure de droit commun en matière de délimitation des propriétés riveraines. Il est sursis à statuer sur l'action en délimitation partielle si l'administration forestière offre, dans un délai de quatre mois, d'ouvrir la procédure de délimitation générale. La délimitation générale d'une forêt, d'un boisement ou d'un terrain à boiser est effectuée selon une procédure fixée par décret.

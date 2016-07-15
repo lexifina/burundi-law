@@ -1,0 +1,3 @@
+# Article 124
+
+Pour apprécier l'opportunité d'une coupe, les autorités compétentes tiennent dûment compte, notamment des nécessités de la conservation des sols, de la régénération naturelle des couverts forestiers, de la préservation de la faune et de la flore sauvages et du maintien de leurs biotopes, de la régulation des systèmes hydrologiques ainsi que, le cas échéant, des clauses du contrat de gestion forestière. Une ordonnance du ministre ayant les forêts dans ses attributions détermine les modalités d'exploitation des essences forestières qui ne régénèrent pas comme le pinus ou autres essences.
