@@ -1,0 +1,3 @@
+# Article 2 11
+
+La section « INFORMATIQUE DE MAINTENANCE » des écoles suivantes est agréée et délivre, à l’issue de la formation y dispensée, le diplôme de niveau A2. Il s’agit de : 1. Ecole la Boussole 2. Lycée Technique saint Basile 3. Lycée Technique Etoile du Matin 4. Etoile Redeemed School de Kibenga 5. Ecole Shining School de Makamba 6. Ecole Secondaire des Techniques de l’Information et de la Communication 7. Lycée Technique Bukirasazi 8. Lycée Technique Saint Henri 9. Lycée Technique de Mwaro 10. Lycée Technique Paul VI de Nyabiharage 11. Ecole Secondaire des Sciences Informatiques et des Télécommunications de Gitega
