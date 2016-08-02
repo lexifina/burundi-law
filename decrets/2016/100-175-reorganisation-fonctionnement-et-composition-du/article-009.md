@@ -1,0 +1,3 @@
+# Article 9
+
+Le Comité Exécutif a pour missions: - Veiller à la mise en exécution des décisions de l’Assemblée Générale; - Donner des orientations au Secrétariat Exécutif Permanent en matière de gestion multisectorielle de lutte contre le sida; - Analyser et approuver des projets multisectoriels consolidés par le Secrétariat Exécutif Permanent avant leur soumission à l’Assemblée Générale du CNLS conformément au manuel des procédures et d’exécution du CNLS; - Analyser et approuver les plans d’action annuels multisectoriels de lutte contre le VIH/SIDA; - Analyser et approuver les rapports d’activités du Secrétariat Exécutif Permanent du CNLS; - Assurer le contrôle des activités du Secrétariat Exécutif Permanent.

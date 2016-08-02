@@ -1,0 +1,3 @@
+# Article 6
+
+L’Assemblée Générale a pour missions de: - Donner les grandes orientations et coordonner la politique nationale de lutte contre le VIH/Sida; - Aider et appuyer le Gouvernement dans la conduite des actions de lutte contre le VIH/SIDA; - Susciter et encourager sur toute l’étendue du territoire national des actions susceptibles de soutenir la politique de lutte contre le VIH/SIDA et les stratégies déterminées par cette politique; - Approuver son règlement d’ordre intérieur et celui du comité exécutif; - Adopter les rapports et les plans d’action annuels multisectoriels de lutte contre le VIH/SIDA; - Délibérer sur toutes les questions relatives à la lutte contre le VIH/SIDA au Burundi.
