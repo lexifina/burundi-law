@@ -1,0 +1,3 @@
+# Article 3 3
+
+Toutes dispositions antérieures contraires à la présente sont abrogées.
