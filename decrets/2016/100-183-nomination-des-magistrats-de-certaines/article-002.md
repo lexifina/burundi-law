@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés: - Conseillers à la Cour Suprême: Monsieur Oscar BARANKARIZA, en remplacement de Monsieur Clément NKURIKIYE; Monsieur Léonard MANIRAKIZA, en remplacement de Madame Modestinne NTAKIRUTIMANA; - Président de la Cour d’Appel de BURURI: Monsieur Dieudonné NIYUNGEKO; - Président de la Cour d’Appel de GITEGA: Monsieur Thomas NTIMPIRANGEZA; - Président de la Cour Administrative de GITEGA: Monsieur Fulgence RUBERINTWARI; - Président du Tribunal de Grande Instance de MUKAZA: Madame Nadine NSABIMANA; - Président du Tribunal de Grande Instance de MUHA: Madame Nelly NTAHOBATASHITSE; - Président du Tribunal de Grande Instance de NTAHANGWA: Madame Pélagie NDAGIJIMANA; - Président du Tribunal de Grande Instance de MAKAMBA: Monsieur Melchior NKURUNZIZA.
