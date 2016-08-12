@@ -1,0 +1,3 @@
+# Article 83
+
+La réserve de propriété n’est opposable aux tiers que si elle a été régulièrement publiée au Registre national des sûretés mobilières. Dès lors qu’elle a été régulièrement publiée dans un délai de trente jours après que le constituant ait pris possession des biens vendus, la réserve de propriété a priorité sur toute autre sûreté concurrente même rendue opposable antérieurement. A défaut de publication dans le délai prévu, la propriété du bien est transférée à l’acheteur et le vendeur devient alors de plein droit titulaire d’un gage sur le bien qui ne prend rang qu’au jour de son inscription.

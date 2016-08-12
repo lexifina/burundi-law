@@ -1,0 +1,3 @@
+# Article 70
+
+Lorsque la créance gagée vient à échéance avant la créance garantie, le créancier gagiste conserve les sommes payées en capital, à titre de garantie, sur un compte ouvert auprès d’un établissement habilité à les recevoir à charge pour lui de les restituer si l’obligation garantie est exécutée. En cas de défaillance du débiteur de la créance garantie et huit jours après une mise en demeure restée sans effet, le créancier affecte les fonds au remboursement de sa créance dans la limite des sommes impayées. Si la créance donnée en gage porte intérêts, le créancier impute ces intérêts sur ceux qui peuvent lui être dus.

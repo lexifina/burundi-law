@@ -1,0 +1,3 @@
+# Article 63
+
+Tout détenteur des biens gagés qui, sans le consentement préalable du créancier, les détruit ou tente de les détruire, les détourne ou tente de les détourner, les altère ou tente de les altérer, d’une manière quelconque, s’expose aux peines prévues à l’article 263 du Code Pénal. Sera de même puni de deux ans à cinq ans de servitude pénale et de cinquante à cent mille franc ou d’une de ces peines seulement, tout détenteur des biens gagés qui, avant le paiement complet de l’obligation garantie par ces biens, loue ou cède tout ou partie de ces biens à d’un tiers sans le consentement préalable du créancier. Sera puni des mêmes peines, tout auteur de manœuvres frauduleuses destinées à priver le créancier de son droit sur le bien grevé ou à le diminuer.
