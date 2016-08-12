@@ -1,0 +1,3 @@
+# Article 86
+
+La modification partielle ou totale d’un lotissement déjà approuvé peut être autorisée, sur demande du lotisseur et préalablement à la vente ou à la location des lots qui en sont issus à condition que la modification proposée soit compatible avec le plan local d’aménagement et ne contredise pas les règles sanitaires générales. Peuvent être également autorisées les demandes de modifications faites par un ou plusieurs propriétaires de lots faisant partie d’un lotissement déjà approuvé à condition qu’elles soient compatibles avec les règlements d’urbanisme applicables à la zone où se situe le lotissement et qu’elles ne portent pas atteinte aux intérêts d’autres propriétaires.

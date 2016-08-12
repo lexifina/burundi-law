@@ -1,0 +1,3 @@
+# Article 68
+
+A compter de la date de délivrance d’une autorisation d’exécution du projet de plan. de rénovation urbaine, la Commune ou le Ministère ayant l’urbanisme dans ses attributions fait dresser la liste exhaustive situés dans les périmètres à rénover en précisant ceux des bâtiments qui doivent être démolis ou qu’il convient de restaurer, ainsi que l’identité des occupants et ayants-droit. Pour d’éventuelles réclamations des occupants ou ayants-droit, les différentes listes sont affichées pendant un délai de trente jours calendaires aux bureaux de la Commune du ressort et du service chargé de l’urbanisme au niveau communal, provincial et sur le terrain concerné, de manière visible.

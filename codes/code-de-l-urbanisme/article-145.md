@@ -1,0 +1,3 @@
+# Article 145
+
+Sans préjudice des sanctions pénales prévues par le présent chapitre, l’autorité administrative compétente pour la délivrance du permis de construire ordonne la démolition d’une partie ou de la totalité des constructions édifiées en violation des dispositions applicables aux frais du contrevenant. Lorsque la partie incriminée porte préjudice à l’environnement ou à la sécurité publique et en violation des dispositions du présent Code, la remise en état des lieux est effectuée aux frais du contrevenant. La démolition n’est effectuée par lesdites autorités qu’en cas de manquement des contrevenants après une mise en demeure d’une durée de trente jours demeurée infructueuse.

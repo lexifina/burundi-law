@@ -1,0 +1,3 @@
+# Article 45
+
+Sont classés comme espaces verts notamment: - les jardins publics; - les espaces récréatifs; - les pelouses, les aires de jeux et les stades; - les jardins des équipements publics et des monuments historiques; - les parcs urbains; - les plantations d’accompagnement des boulevards, des avenues et des rues classées en grande voirie urbaine; - les jardins des palais nationaux et des hôtels de gouvernance. Les schémas directeurs d’aménagement et d’urbanisme, les plans locaux et particuliers d’aménagement classent comme espaces verts à conserver ou à créer les boisements, les forêts et les sites naturels, les abords des ravins, des cours et des plans d’eau situés dans les agglomérations ou aux alentours.

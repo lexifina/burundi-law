@@ -1,0 +1,3 @@
+# Article 124
+
+Lorsque la démolition peut affecter une structure adjacente ou perturber le fonctionnement normal des activités publiques ou poser un danger public, elle se déroule sous le contrôle des services habilités. Dans tous les cas, la demande du permis de démolir est accompagnée d’une note descriptive établie par un architecte agréé ou un ingénieur agréé, un bureau d’études agréé sur les dispositions pratiques à observer compte tenu du caractère de l’ouvrage, de sa situation et de l’impact des travaux de démolition sur l’environnement. Paragraphe 4 De la promotion immobilière, du contrôle technique et du contrat d’assurance

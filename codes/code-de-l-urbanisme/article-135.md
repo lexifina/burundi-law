@@ -1,0 +1,3 @@
+# Article 135
+
+Sur base des matériaux disponibles localement et sans préjudice à l’environnement, les autorités de la Commune assistées par le maître d’œuvre déterminent les matériaux de construction et les types de maisons à construire. Cette action se fait dans le respect des instructions prescrites en matière de dimensionnement des parcelles, de construction et d’alignement des habitations dans l’habitat groupé, par ordonnance du Ministre ayant l’habitat dans ses attributions. Ces autorités déterminent la superficie minimale et maximale du plancher ainsi que le mode d’implantation de la construction à l’intérieur de la parcelle.
