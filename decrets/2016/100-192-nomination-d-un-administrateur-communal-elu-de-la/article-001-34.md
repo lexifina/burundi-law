@@ -1,0 +1,3 @@
+# Article 1 34
+
+Sont nommés membres de la cellule de Gestion des Marchés Publics de la Commune BUTAGANZWA les personnes dont les noms suivent: 1. NTIRAMPEBA Anicet: Président; 2. Honorable NDUWIMANA Sennel: Vice - Président; 3. NDAYISENGA Epitas: Membre; 4. NDUWIMANA Vénuste: Membre; 5. BANYANKINDAGIYE Japhet: Membre; 6. NIYONZIMA Alfred: Membre; 7. BUTOYI Zacharie: Membre; 8. NKUNDINDANGA Ménédore: Membre; 9. NIYITUNGA Selemani: Membre; 10. BITANGIMANA Félicien: Membre; 11. NININAHAZWE Dieudonné: Membre; 12. NIYINDOKOYE Oléa: Membre; 13. BIGIRIMANA Jean Marie: Membre; 14. TANGISHAKA Augustin: Membre; 15. BAZOMPORA Aloys: Membre.

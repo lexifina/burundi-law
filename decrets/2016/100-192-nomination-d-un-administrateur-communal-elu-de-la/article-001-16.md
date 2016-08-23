@@ -1,0 +1,3 @@
+# Article 1 16
+
+Les Magistrats dont les noms suivent sont affectés comme suit: - Monsieur MURENGERANTWARI Prudence, Matricule: 12516939 (218.230), Juge du Tribunal de Grande Instance de KIRUNDO; - Madame BANYIMISHAKO Vumilia, Matricule 16987326 (223.401), Juge du Tribunal de Grande Instance de BUBANZA; - Madame DUSHAKUMUBANO Alice, Matricule 16927712 (225.393), Juge du Tribunal de Grande Instance de GITEGA; - Madame NTIRANDEKURA Chantal, Matricule 15843736 (226.350), Juge du Tribunal de Grande Instance de CIBITOKE; - Madame UMURISA Nadine, Matricule 21672830, Juge du Tribunal de Grande Instance de Bujumbura-Rural.
