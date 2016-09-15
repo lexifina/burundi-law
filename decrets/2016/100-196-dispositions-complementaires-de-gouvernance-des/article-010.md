@@ -1,0 +1,3 @@
+# Article 10
+
+Sans préjudice des outils exigés par les cadres légaux existants tels que le statut du personnel, le règlement d’ordre intérieur de l’entité, le règlement d’ordre intérieur du conseil d’administration, les organes de direction et d’administration sont tenus de doter leurs entités respectives des outils de gestion dont notamment: - un plan stratégique; - un plan d’action pluriannuel/ annuel; - un manuel de procédures; - un cahier des charges de chaque membre de l’organe de direction et du reste du personnel; - un acte d’engagement aux objectifs simples, mesurables, acceptés et réalisables dans le temps; et signé entre l’employeur et le travailleur tenant compte du cahier des charges de chaque entité.

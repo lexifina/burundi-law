@@ -1,0 +1,3 @@
+# Article 1 5
+
+Les programmes de formation de Baccalauréat de l’Université Polytechnique de Gitega sont agréés. Il s’agit de: 1. Faculté des Hautes Etudes Commerciales: - Finance-Banque-Assurance; - Comptabilité- Contrôle- Audit; - Marketing- Management. 2. Faculté des Technologies de l’Information et de la Communication: - Information et Technologie; - Réseaux et Télécommunications; 3. Faculté des Sciences de l’Environnement: - Sol et Environnement; - Climat et Biodiversité; - Eau-Pollution-Assainissement; 4. Faculté des Sciences Juridiques, Administratives et Politiques: - Droit des Affaires; - Criminologie.
