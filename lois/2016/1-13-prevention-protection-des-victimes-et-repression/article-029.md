@@ -1,0 +1,3 @@
+# Article 29
+
+Toute association régulièrement déclarée depuis deux ans à la date des faits se proposant par des statuts la lutte contre les Violences Basées sur le Genre ou toute autre atteinte volontaire à la vie et à l’intégrité de la personne ou destructions, dégradations réprimées par les dispositions pertinentes du Code pénal y relatives, peut se joindre à la victime des faits ou porter plainte en lieu et place de cette dernière. Néanmoins, l’association ne sera recevable dans sa plainte que si elle justifie avoir reçu l’accord de la victime ou, si celle-ci est mineur ou un interdit, celui du tuteur ou de son curateur.

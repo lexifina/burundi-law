@@ -1,0 +1,3 @@
+# Article 1 18
+
+Sont nommés: - Directeur du Lycée Communal Mayemba, DCE NYABIRABA: Monsieur NTIBAMPAMATE Isaac, matricule, 21 388 784 - Directeur du Lycée Communal Kizunga, DCE NYABIRABA: Monsieur NDUWIMANA Enos, matricule, 17 834 559 - Directeur du Lycée Communal Nyabibondo, DCE NYABIRABA: Monsieur NTAHONKIRIYE Jérémie, matricule, 17 832 236 - Directeur du Lycée Communal Rukina, DCE MUKIKE: Monsieur BANYIYEZAKO Prosper, matricule, 21 410 324 - Directeur du Lycée Communal Kankima, DCE MUGONGOMANGA: Monsieur NDIKUMANA Jean Claude, matricule, 21 325 246 - Directeur du Lycée Communal Mutambu, DCE MUTAMBU: Monsieur NDAYIKEZE Olivier, matricule, 19 042 918.

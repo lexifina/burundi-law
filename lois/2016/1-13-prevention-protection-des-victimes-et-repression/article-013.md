@@ -1,0 +1,3 @@
+# Article 13
+
+Le Gouvernement promeut à travers les structures sociales, sanitaires, juridiques et éducatives, la détection précoce des cas de Violences Basées sur le Genre et la prise en charge intégrée des victimes. Dans tous les cas de violences basées sur le genre, les instances judiciaires sont tenues de requérir, auprès des structures sanitaires compétentes, une expertise médicale, des tests de dépistage de VIH/SIDA et toute autre infection sexuellement transmissible sur la victime et son auteur, afin de pouvoir évaluer avec exactitude l’étendue du préjudice subi. Néanmoins, toutes les dépenses engagées par l’Etat seront remboursées par le coupable une fois le jugement rendu.
