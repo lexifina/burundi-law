@@ -1,0 +1,3 @@
+# Article 9 2
+
+Chaque service, école ou institution est tenu(e) de mettre en place une équipe interne -de suivi et de contrôle chargée de: - Faire un contrôle régulier des installations hydro-électriques; - Signaler toute panne et/ou fuite dans les meilleurs délais; - Faire le suivi des réparations et/ou de la maintenance des installations; - Faire un rappel permanent aux usagers pour la surveillance, la bonne utilisation des équipements et du matériel qui consomment l’eau et l’électricité, notamment les toilettes, les ordinateurs, les appareils électroménagers, les lampes et les robinets; - Faire le suivi des relevés des consommations et du paiement des factures; - Proposer toute mesure susceptible de contribuer à minimiser les dépenses des consommations.
