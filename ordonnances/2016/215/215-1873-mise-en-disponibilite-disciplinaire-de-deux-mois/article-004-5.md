@@ -1,0 +1,3 @@
+# Article 4 5
+
+La Commission de liquidation de la Banque Populaire en liquidation a pour mission de: - Recevoir les doléances des anciens clients de la Banque qu’ils soient débiteurs ou créanciers; - Identifier les débiteurs défaillants; - Faire le recouvrement des montants dus au trésor public; - Fournir des renseignements nécessaires à l’Avocat Conseil représentant la Banque auprès des Cours et Tribunaux sur les dossiers pendants; - Délivrer des attestations de non redevabilité; - Délivrer des attestations de non possession de compte; - Désintéresser les créanciers de la banque; - Vérifier les titres de propriétés en cas de transfert au niveau de la Direction des Titres Fonciers.

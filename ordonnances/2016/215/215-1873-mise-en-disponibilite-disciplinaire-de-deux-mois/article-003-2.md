@@ -1,0 +1,3 @@
+# Article 3 2
+
+Les étudiants ayant obtenu le Diplôme d’Etat session 2013-2014 avec une note comprise entre 59,9% à 56% reçoivent un appui de 200.000BIF par étudiant pour l’année académique 2015-2016. S’ils sont inscrits dans l’une des Institutions d’Enseignement Supérieur Privées légalement autorisées dont les listes sont déjà transmises au Ministère de l’Education de l’Enseignement Supérieur et de la Recherche Scientifique. Ce montant est versé en totalité sur le compte de l’Institution auprès de laquelle l’étudiant a pris son inscription au moins trois mois à compter de la date du début proprement dit des cours.
