@@ -1,0 +1,3 @@
+# Article 1 18
+
+Sont nommés membres de la Commission: 1. Dr STEVE DE CLIFF, DGSTR: Président; 2. Mme BAJINYURA Chantal, DGBP: Vice-président; 3. Mr NDIMURIRWO Venant, Cellule Communication: Secrétaire; 4. Mr JUMA Edouard, Porte Parole: Secrétaire-adjoint; 5. Prof. GASOGO Anastasie, DGES: Membre; 6. Dr HATUNGIMANA Sylvie, Secrétaire Exécutif Permanent de la CNES: Membre; 7. Mr NTABINDI Jean, Conseiller au MEESRS: Membre; 8. Mr TUNGAMWESE Emmanuel, Conseiller au MEESRS: Membre; 9. Mr BARUTWANAYO Aaron, Conseiller au MEESRS: Membre; 10. NIYONKURU Anatole, DGEFPF: Membre; 11. Mr NTUNGUKA Déo, DGRH ai: Membre.
