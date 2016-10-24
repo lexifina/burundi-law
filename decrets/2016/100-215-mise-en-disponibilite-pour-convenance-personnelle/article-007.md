@@ -1,0 +1,3 @@
+# Article 7
+
+Le dossier de demande d’autorisation d’ouverture d’une école doit contenir: - le nom de l’association ou de la fondation organisatrice de l’école; - le règlement d’ordre intérieur de l’école authentifié par le notaire; - la liste des membres effectifs de l’association ou de la fondation; - le nom du Représentant Légal et celui de son Suppléant; - la dénomination de l’école différente de celle de l’association ou de la fondation; - le siège de l’école; - le plan d’évolution de l’école; - les niveaux d’enseignement organisés; - le budget initial de démarrage; - les programmes d’enseignement à suivre.

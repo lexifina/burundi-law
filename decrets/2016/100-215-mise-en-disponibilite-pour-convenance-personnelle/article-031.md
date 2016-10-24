@@ -1,0 +1,3 @@
+# Article 31
+
+Le Ministre ayant l’enseignement fondamental et post-fondamental dans ses attributions décide de la fermeture d’une école, d’un cycle ou d’une filière de formation dans les cas suivants: - non-respect des normes d’ouverture et de fonctionnement précisées à la section 2; - ouverture illicite de cycle(s) ou de section(s); - déménagement non autorisé; - dégradation avérée des conditions d’études; - changement des programmes de formation; - taux de réussite inférieur à 30% pendant trois années consécutives aux évaluations nationales; - conflits au sein de l’association entraînant la perturbation des activités scolaires.

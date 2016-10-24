@@ -1,0 +1,3 @@
+# Article 18
+
+Les salles de classe doivent avoir au moins comme dimensions 7m de largeur sur 8m de longueur, soit une superficie de 56 m2. Elles doivent également avoir au moins les caractéristiques suivantes: - hauteur sous plafond de 3,20m, toiture en tôles neuves, murs en matériaux durables et respectant l’étanchéité entre les salles de classe, pavement cimenté; - éclairage naturel respectant l’orientation des salles pignon Est-ouest et absence d’ombrage dans l’environnement immédiat; - tableau à craies noir ou vert, placé à 1 m du sol et ayant comme dimensions 1,20m de largeur et 6m de longueur; - un pupitre pour 2 élèves avec une distance de 3m entre le tableau et le premier pupitre de chaque rangée, une table et une chaise pour l’enseignant,
