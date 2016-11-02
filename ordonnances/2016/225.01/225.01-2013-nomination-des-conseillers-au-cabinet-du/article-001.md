@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Conseillers au Cabinet du Ministère des Droits de la Personne Humaine, des Affaires Sociales et du Genre: - Chargé des questions de protocole: Monsieur NKUNDABAGENZI Christophe ; - Chargés des questions liées au genre et droits de l’Homme: Monsieur Rénovat NTAKARUTIMANA; Madame Laetitia TWAGIRIMANA; - Chargée du suivi des institutions sous tutelle: Madame Nadine SINKIYAJAKO; - Chargée des questions Administratives et Secrétariat: Madame Janvière KANYANA; - Chargé de Réintégration et Réhabilitation des sinistrés: Monsieur Pierre NGABONZIZA; - Chargée de l’Assistance sociale et solidarité Nationale: Madame Espérance KWIZERA.
