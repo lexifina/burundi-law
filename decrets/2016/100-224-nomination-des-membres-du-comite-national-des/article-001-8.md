@@ -1,0 +1,3 @@
+# Article 1 8
+
+Sont nommés membres du Comité Paritaire de Suivi et d’Evaluation de la convention cadre de partenariat public-privé pour une meilleure adéquation formation d’emploi les personnes dont les noms suivent: 1. Monsieur Didace NZAMBIMANA; 2. Monsieur NSHIMIRIMANA Pascal; 3. Madame NIJIMBERE Yvette; 4. Monsieur NDAYIRORE Emile; 5. Monsieur NDAYISENGA Isaac; 6. Monsieur NDEREYIMANA Serge; 7. Madame MINIANI Denise; 8. Madame NIMBABAZI Nadine; 9. Monsieur NDIKUMAZAMBO Aloys; 10. Monsieur NISHIMWE Authentique; 11. Monsieur GAHUNGU Tharcisse; 12. Monsieur NZISABIRA Gaspard; 13. Monsieur NDAYISHIMIYE Cyriaque; 14. Monsieur NYAWAKIRA Gilbert; 15. Monsieur NIYITUNGA Salvator; 16 Monsieur JUMAPILI Radjabu.
