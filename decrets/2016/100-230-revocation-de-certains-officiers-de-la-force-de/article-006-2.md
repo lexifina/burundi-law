@@ -1,0 +1,3 @@
+# Article 6 2
+
+Toutes dispositions antérieures contraires à la présente ordonnance sont abrogées
