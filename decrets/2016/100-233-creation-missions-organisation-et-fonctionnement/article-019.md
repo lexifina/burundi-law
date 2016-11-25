@@ -1,0 +1,3 @@
+# Article 19
+
+Des conditions de prolongation des certificats d’éligibilité aux avantages du Code des Investissements La prolongation de la durée d’un certificat peut être accordée par le Directeur de l’API à quiconque en fait une demande et ce, uniquement, pour achever les activités de construction et d’équipement. Toutefois, pour les projets en phase d’exploitation, le groupe API-OBR peut statuer sur l’octroi de la matière première. Toute demande de prolongation doit être accompagnée d’un rapport détaillé sur les activités d’investissement et sur les emplois créés si le projet a déjà commencé la phase d’exploitation.

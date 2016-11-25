@@ -1,0 +1,3 @@
+# Article 18
+
+Du traitement des listes additionnelles Les biens d’investissements importés par l’investisseur en vue d’un réajustement des quantités oubliées, d’une mise à jour ou d’une modernisation du projet mais ne se trouvant pas sur la liste originale présentée dans son plan d’affaires peuvent être traités sous forme de liste additionnelle. L’Agence de Promotion des Investissements peut prendre cette mesure dérogatoire, après vérification technique de leur pertinence sur site, et les accorder en quantité correspondant aux besoins. Il n’y a pas de limites quantitatives imposées dans la mesure où ces articles servent réellement à l’amélioration de l’une ou l’autre activité du projet.

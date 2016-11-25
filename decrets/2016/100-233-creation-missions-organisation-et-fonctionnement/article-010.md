@@ -1,0 +1,3 @@
+# Article 10
+
+La Commission Technique REDD+ est l’organe d’exécution du processus REDD+. A ce titre, elle a pour mission de : 1. préparer tous les dossiers techniques devant être traités par le Comité National REDD+; 2. suivre, au plan technique, la mise en œuvre du processus REDD+; 3. élaborer des modèles de projets REDD+ à soumettre aux partenaires financiers; 4. analyser les projets et initiatives REDD+; 5. élaborer les critères de sélection des projets en vue de les soumettre à la validation du Ministère en charge l’environnement; 6. exécuter les plans d’actions lui soumis par le Comité National REDD+; 7. assurer le contact entre les différentes parties prenantes au processus et les plateformes de consultations.

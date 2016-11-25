@@ -1,0 +1,5 @@
+# Article 4
+
+Le Comité National REDD+ a pour objectif principal d’assurer la conduite du processus REDD+. A ce titre, il a pour missions de : 1. décider de la vision et des options stratégiques en matière d’initiative REDD+; 2. assurer la cohérence des cadres légaux et institutionnels du processus REDD+; 3. coordonner les appuis extérieurs affectés au processus REDD+; 4. s’assurer qu’au niveau du Gouvernement, les dispositifs nécessaires sont mis en place et que toute décision requise est prise dans les délais prévus; 5. arbitrer les conflits éventuels entre parties prenantes impliquées dans le processus REDD+ burundais; 6. approuver le programme de travail et le budget de la commission Technique REDD+; 7. coordonner des propositions de politiques et de stratégies de mise en œuvre du processus REDD+; 8. 8. Emettre des avis motivés sur les stratégies de mise en œuvre du processus REDD+; 9. Evaluer et soumettre à l’approbation du Ministre en charge de l’environnement les projets proposés par les promoteurs; 10. Valider les travaux et approuver le plan d’action de la commission Technique.
+
+Chapitre III De l’organisation et du fonctionnement

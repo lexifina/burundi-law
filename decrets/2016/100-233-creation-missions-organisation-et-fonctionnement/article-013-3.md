@@ -1,0 +1,3 @@
+# Article 13 3
+
+Procédures d’annulation du certificat d’investissement Avant d’annuler le certificat d’investissement, l’Agence de Promotion des Investissements doit délivrer un avis écrit à l’investisseur faisant état de détails sur les motifs d’annulation. L’investisseur certifié est tenu de fournir des explications écrites, dans un délai de dix (10) jours ouvrables à compter de la date de réception de la demande de l’Agence de Promotion des Investissements. Lorsque l’investisseur ne fournit pas les explications dans les délais prévus ou lorsque l’Agence de Promotion des Investissements n’est pas satisfait des explications données, l’Agence de Promotion des Investissements annule le certificat d’investissement.

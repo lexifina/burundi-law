@@ -1,0 +1,3 @@
+# Article 9
+
+Le Secrétariat du Comité National REDD+ est l’organe qui assure la liaison entre le Comité National REDD+ et la Commission Technique REDD+ Le Secrétariat a pour missions de : 1. organiser les travaux et réunions du Comité National REDD+; 2. veiller à la mise en application des décisions du Comité National REDD+; 3. fournir les éléments permettant à rendre régulièrement compte au Président du Comité de l’état d’avancement du processus REDD+ au Burundi; 4. rédiger les rapports trimestriels et annuels à l’intention du Comité National REDD+; 5. prendre les procès-verbaux du Comité National REDD+.

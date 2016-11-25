@@ -1,0 +1,3 @@
+# Article 22
+
+Mesures prises par l’Agence de Promotion des Investissements après notification de changement d’activités d’investissement Lorsque la notification des changements est faite conformément aux dispositions de la présente ordonnance et que cela n’est pas préjudiciable à l’investissement et aux critères d’éligibilité pour les mesures incitatives à l’investissement, l’Agence de Promotion des Investissements révise le certificat d’investissement tout en indiquant les changements notifiés affectant substantiellement les engagements de l’investisseur. Lorsque les changements de la nature d’investissement n’affectent pas substantiellement les engagements de l’investisseur, ces changements sont certifiés dans le dossier de l’investisseur.
