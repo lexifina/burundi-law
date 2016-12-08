@@ -1,0 +1,3 @@
+# Article 15
+
+Chaque année, au plus tard au mois de mars, chaque confession religieuse ou organisation religieuse est tenue d’adresser au Ministre ayant la gestion des confessions religieuses dans ses attributions, un rapport contenant les éléments suivants: - Un bilan détaillé d’activités réalisées dans les domaines spirituel et du développement; - Les changements intervenus au niveau des membres et des organes (effectif total, nouveaux, départs); - Le nombre des succursales ou paroisses et leurs lieux d’implantation (Provinces, Commune, Colline/Quartier); - Les références des comptes bancaires; - Les fonds reçus et leurs principales utilisations; - La liste des meubles et immeubles détenus en propriété ou à d’autres titres; - Les principales difficultés rencontrées.
