@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membre de la commission chargée de traiter la question des lauréats refusés aux Diplômes d'Etat suite aux triplements, les personnes suivantes: 1. Anatole NIYONKURU: Directeur Général de l'Enseignement Fondamental et Post Fondamental, Président 2. Corinthe NZOHABONAYO : Inspecteur Général de l'Enseignement Fondamental et Post Fondamental: Vice- Président 3.Patrice MANENGERI :Directeur du Bureau des Evaluations : Secrétaire 4.Anastasie GASOGO : Directeur Général de l’Enseignement supérieur : membre 5 BAZIKAMWE Oscar : Directeur du Bureau de la planification et des statistiques de l’Education : membre 6. JUMA Edouard : Porte parole du Ministère 7. NSHIMIRIMANA Philippe: Conseiller Juridique au Cabinet: membre
