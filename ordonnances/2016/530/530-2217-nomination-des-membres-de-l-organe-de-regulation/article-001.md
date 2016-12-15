@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de l'organe de régulation et de conciliation des confessions religieuses pour le suivi, le contrôle, l'agrément et le fonctionnement des confessions religieuses, les personnes dont les noms suivent: -Bishop NKESHIMANA Sept : Président -Pasteur NZISABIRA Jean Bosco : Vice-Président -Madame NSENGIYUMVA Evelyne : Secrétaire -Bishop INDEPENDANCE Calixte : membre -Révérend Pasteur RUVUGANA Joseph Ferdinand: membre -Pasteur AKIMANA Charles: membre -Révérend Pasteur BAVUMIRAGIYE Espérance: membre -Sheikh Sadick KAJANDI : membre -Apôtre NDUWIMANA Charles : membre -Madame BIZOZA Clémentine : membre -Monsieur HATUNGIMANA Ferdinand : membre
