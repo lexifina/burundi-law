@@ -1,0 +1,3 @@
+# Article 2 18
+
+Le Comité de Pilotage est notamment chargé de: - La prise de décisions de gestion pour le projet en particulier lorsque des instructions sont souhaitées par le Coordinateur National du projet; - Suivi et évaluation du projet par la qualité assurant ses procédés et produits; - L’engagement de ressources nécessaires; - L’arbitrage des conflits internes au projet; - La négociation des solutions à tous les problèmes avec les organes internes; - L’Examen et l’approbation des plans de travail annuel, rapports trimestriels, semestriels et annuel et; - L’approbation de toute modification substantielle pertinente par rapport au document de projet.
