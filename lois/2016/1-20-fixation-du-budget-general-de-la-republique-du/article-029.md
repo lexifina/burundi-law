@@ -1,0 +1,5 @@
+# Article 29
+
+Toute adjudication est précédée d'une publicité en rapport avec l'importance des biens à mettre en vente aux enchères. L'appel d'offre est ouvert au public national ou international suivant le cas et conformément aux seuils fixés par la loi sur les marchés publics. L'OBR pourra, pour disposer des biens, recourir soit aux ventes aux enchères à la criée, gré à gré ou faire à l'appel d'offre pour maximiser les recettes et réduire les spéculations. Pour les denrées périssables ou les biens dont l'enlèvement immédiat s'impose, l'adjudication est annoncée trente jours avant la date de vente dans un journal habilité à recevoir les annonces légales ou dans un journal de large diffusion. Ce délai peut être raccourci jusqu'à deux jours selon la nature dispendieuse ou périssable ou le risque imminent à encourir.
+
+Les adjudications sont portées à la connaissance du public par voie d'affichages et d'annonces dans la presse toutes les fois que l'Office Burundais des Recettes le juge utile. Elle peut faire l'objet de communiqués radiodiffusés pour plus de publicité.
