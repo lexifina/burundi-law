@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Conseillers au Secrétariat Permanent du Ministère des Droits de la Personne Humaine, des Affaires Sociales et du Genre: - Chargés des cellules de la Planification, suivi-évaluation et des Statistiques des activités du Ministère et des Projets et des centres sous tutelle: 1. Monsieur Salvator NDAYEGAMIYE; 2. Monsieur Frédéric KAZUNGU; 3. Monsieur Léonidas NIYONZIMA; 4. Madame Louise HABONIMANA. - Chargés de la Cellule de la Coordination des Centres de Développement Familial et Communautaires (CDFC): 1. Madame Dévote NDAYIRAGIJE; 2. Monsieur Dieudonné HAKIZIMANA. - Chargés de la Cellule la logistique, charroi et équipement informatique: 1. Monsieur Boniface NDAYIRAGIJE. - Chargée des Ressources Humaines: 1. Madame Léa BUNOTI.
