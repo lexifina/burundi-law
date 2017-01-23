@@ -1,0 +1,3 @@
+# Article 1 3
+
+Sont nommés membres de la Cellule de Gestion des Marchés Publics au sein du Ministère de l’Intérieur et de la Formation Patriotique: 1. Monsieur RUBERINTWARI Déo: Président; 2. Madame BERAHINO Gloriose: Vice-Président; 3. Monsieur NYABENDA Christophe: Secrétaire; 4. Monsieur MANENO Jean Bosco: Membre; 5. Madame HATUNGIMANA Marie Chantal: Membre; 6. Monsieur NGOMIRAKIZA Tharcisse: Membre; 7. Madame NININAHAZWE Claudine: Membre; 8. Monsieur NDIKUMANA Déogratias: Membre; 9. Madame BIZOZA Clémentine: Membre; 10. Monsieur KABURA Prudence: Membre; 11. Madame KAMARIZA Odette: Membre; 12. Monsieur HATUNGIMANA Ferdinand: Membre; 13. Monsieur NYABENDA Pasteur: Membre; 14. Madame KAMIKAZI Joselyne: Membre.
