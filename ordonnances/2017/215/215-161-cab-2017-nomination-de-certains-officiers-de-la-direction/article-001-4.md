@@ -1,0 +1,3 @@
+# Article 1 4
+
+Sont nommés membres de la cellule de Gestion des Marchés Publics de la Commune RUYIGI les personnes dont les noms suivent: 1. CITEGETSE Dieudonné: Administrateur Communal; 2. NIMPARIRA Adam: Service déconcentré; 3. MABONEZA Alexis: Service déconcentré; 4. GENDABANKA Jaffar: Service déconcentré; 5. NTIRAMPEBA Dancile: Service déconcentré; 6. BAZAHICA Frédéric: Service déconcentré; 7. NDEYIDEYI Frédéric: Service déconcentré; 8. NIYOKINDI Gloriose: Service déconcentré; 9. NIYONZIMA Sylvestre: Conseil communal de RUYIGI; 10. NDAYISHIMIYE Justine: Conseil communal; 11. NIRAGIRA Félicien: Conseil communal; 12. SABUBWA Acquiline: Société civile; 13. MINANI Jean-Berchmans: Président du CCDC; 14. MBONIMPAYE Claver: CTD; 15. KWIZERA Ancile: Comptabilité communal.
