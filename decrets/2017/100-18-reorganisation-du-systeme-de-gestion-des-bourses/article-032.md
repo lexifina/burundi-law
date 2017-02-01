@@ -1,0 +1,3 @@
+# Article 32
+
+La bourse d’études octroyée aux étudiants du premier cycle et du deuxième cycle est retirée: - à tout étudiant qui échoue. Elle est rétablie quand il réussit à passer dans la classe suivante. L’étudiant en situation d’échec peut postuler pour un prêt-bourse, - à tout étudiant en formation à l’étranger qui a changé de filière sans autorisation préalable du Gouvernement du Burundi via le Ministère ayant en charge l’Enseignement dans ses attributions, - en cas de non respect des termes du contrat de boursier, - sur rapport motivé de l’Ambassade du Burundi dans le pays d’accueil faisant état de manquements de l’étudiant à ses obligations.

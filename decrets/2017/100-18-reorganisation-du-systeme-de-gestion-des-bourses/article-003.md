@@ -1,0 +1,5 @@
+# Article 3
+
+La Commission est composée de quinze membres choisis pour leur honnêteté et leur intégrité morale. Ils sont nommés par le Ministre ayant l’Enseignement Supérieur dans ses attributions et sont choisis dans les institutions suivantes: - Un membre représentant la Deuxième Vice-Présidence de la République; - Deux membres représentant le Ministère ayant les Finances dans ses attributions; - Deux membres représentant le Ministère des Relations Extérieures et de la Coopération Internationale; - Quatre membres représentant le Ministère de l’Education, de l’Enseignement Supérieur et de la Recherche Scientifique; - Un membre représentant le Ministère de la Fonction Publique, du Travail et de l’emploi; - Deux représentants dont un pour les Banques et un autre pour les Assurances; - Un membre représentant du Ministère de la Santé Publique et de Lutte contre le SIDA; - Un membre représentant le Ministère de la Sécurité Publique; - Un membre représentant le Ministère de la Justice et Garde des Sceaux.
+
+Le service d’appui est assuré par le personnel du Bureau des Bourses d’Etudes et de Stages.

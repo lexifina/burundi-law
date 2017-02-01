@@ -1,0 +1,3 @@
+# Article 8
+
+La bourse d’études est accordée sous forme de contrat passé entre le Gouvernement du Burundi et le bénéficiaire. Celui-ci s’engage à respecter les termes du contrat.
