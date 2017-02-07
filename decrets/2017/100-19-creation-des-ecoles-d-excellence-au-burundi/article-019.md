@@ -1,0 +1,3 @@
+# Article 19
+
+L’environnement social et culturel, de nature à permettre un bon épanouissement, est caractérisé par ce qui suit: - conditions de travail favorables pour les enseignants; visites et excursions interscolaires; - mobilisation des ressources: projets de développement de l’école, projets de subvention, projets sur les activités génératrices de revenus; - activités parascolaires variées comme clubs scientifiques et culturels: danses, poésie, environnement, santé, genre et équité, etc.; - participation de la communauté aux activités scolaires; - activités sportives et récréatives; - conseils d’école et associations des parents d’élèves; - journées culturelles, fêtes scolaires, kermesses, journées portes ouvertes, etc.; - boîte à suggestions.

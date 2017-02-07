@@ -1,0 +1,3 @@
+# Article 16
+
+Pour un environnement physique viable, les éléments ci-après sont requis : - salles de classes aux normes standards internationales exigées pour les élèves (largeur: 7 m, longueur: 8 m, hauteur sous plafond: 4m, spacieuse, aérée et éclairée) et corridors; laboratoires appropriés pour des disciplines relatives aux sciences, à la technologie et aux TIC; - commodités, eau, téléphone, transport, électricité et installations sanitaires; - logements réservés aux enseignants; - installations nécessaires à la pratique des sports et installations récréatives; - environnement écologique, économie d’eau et système de collecte des eaux de pluies; - voies d’accès faciles et panneaux d’indications.

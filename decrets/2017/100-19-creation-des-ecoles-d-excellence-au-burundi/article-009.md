@@ -1,0 +1,5 @@
+# Article 9
+
+Les objectifs d’une école d’excellence sont les suivants: - promouvoir un enseignement de qualité par la création d’un environnement favorable d’enseignement-apprentissage en mathématiques, sciences, technologie, ingénierie, lettres et art; - favoriser l’égalité des chances, l’éclosion des potentialités, dans les mêmes conditions d’enseignement, selon le mérite, dans une juste compétition pour accéder aux filières de formation définies; - développer chez les élèves des compétences variées par une formation scientifique solide en mathématiques, sciences physiques et chimiques, sciences de la vie et de la terre, TIC et informatique en vue de résoudre des situations-problèmes significatives; - faire acquérir aux élèves des attitudes de citoyenneté responsable et du vivre ensemble en référence aux valeurs de paix, de justice et au travers de bonnes pratiques de gouvernance scolaire; - développer chez les élèves l’esprit de créativité, d’innovation et de compétition positive.
+
+Section 2 Des Missions
