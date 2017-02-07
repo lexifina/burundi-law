@@ -1,0 +1,3 @@
+# Article 11
+
+Dans la section Economique, l’élève acquiert des compétences linguistiques, scientifiques et technologiques lui permettant de: - utiliser les concepts de base dans le calcul, l’analyse et l’interprétation des résultats économiques afin d’opérer un choix rationnel dans la prise de décisions entre plusieurs options; - comprendre et expliquer les faits économiques; - participer activement à la gestion des phénomènes économiques par des anticipations et/ou des remédiassions pour servir sa famille, sa communauté et son pays; - initier, planifier et exécuter un projet de développement; - poursuivre les études supérieures dans les filières en rapport avec les sciences économiques.
