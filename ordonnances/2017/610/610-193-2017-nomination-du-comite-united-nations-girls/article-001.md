@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres du comité UNGEI les personnes suivantes: 1. Madame Mélanie NIYONZIMA, Conseillère au Cabinet: Présidente; 2. Monsieur Jean RUKANURA, Conseillère à la Direction Générale des Bureaux Pédagogiques: Vice- Président; 3. Madame Césarie HABONIMANA, Conseillère au Cabinet: Secrétaire; 4. Madame Godeberthe NDUWIMANA, Conseillère au Cabinet: Membre; 5. Monsieur Athanase NDAYIZEYE, Conseiller à la Direction de l’Enseignement Post Fondamental: Membre; 6. Madame Floride TUYISHEMEZE, Conseillère au Cabinet: Membre; 7. Monsieur Louis NSAVYIMANA, Conseiller au Cabinet: Membre.

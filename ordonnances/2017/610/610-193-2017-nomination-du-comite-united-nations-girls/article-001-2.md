@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommés membres de la Commission de Passation des Marchés (CPM) pour le projet: Gestion Communautaire de Risques de Catastrophes liés au Changement Climatique au Burundi (GCRCCCBu) : 1. Monsieur BARWIHIGIRE Thomas, Directeur de la Cartographie et de la Topographie: Président; 2. Monsieur NKURIKIYE Anicet, Conseiller du MEEATU: Vice-Président; 3. Monsieur NTAHONDEREYE Marc, Expert en Suivi Evaluation du Projet: Secrétaire; 4. Monsieur NZIGUHEBA Edouard, Directeur Administratif et Financier à l’IGEBU: Membre; 5. Monsieur NIMUBONA Alexis, Coordonnateur National: Membre; 6. Madame KANYANGE Eliane, membre du staff de l’IGEBU : Membre; 7. Un Représentant du PNUD Bureau national: Membre.
