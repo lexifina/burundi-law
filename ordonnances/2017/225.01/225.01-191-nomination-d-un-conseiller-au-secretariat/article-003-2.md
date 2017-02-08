@@ -1,0 +1,3 @@
+# Article 3 2
+
+La Cellule de Gestion des Marchés Publics (CGMP) est chargée notamment de : 1. la planification des Marchés Publics et des délégations des services publics à la CAMEBU; 2. l’élaboration des dossiers d’appel d’offres et de consultations; 3. la préparation des spécifications techniques; 4. la détermination de la procédure et du type de marché; 5. le lancement des appels à concurrence; 6. l’ouverture, le dépouillement, l’évaluation des offres; 7. l’attribution provisoire du marché; 8. la rédaction des contrats et avenants; 9. le visa des marchés inférieurs au seuil de passation défini par voie réglementaire; 10. le suivi de l’exécution des marchés; 11. la réception des prestations.
