@@ -1,0 +1,3 @@
+# Article 10
+
+Sous l’autorité de la Présidence de la République, le Coordonnateur National a notamment comme tâches de : 1. Coordonner au niveau national les missions confiées à la Commission Nationale; 2. Représenter l’autorité compétente aux conférences nationale et/ou internationales sur la Sécurité Routière ; 3. Préparer les points à l’ordre du jour des réunions ordinaires ou extraordinaires de la Commission Nationale; 4. Transmettre les procès-verbaux des réunions à la Présidence de la République avec copie au Ministre ayant les transports dans ses attributions; 5. Assurer le rôle de porte-parole de la Commission Nationale.
