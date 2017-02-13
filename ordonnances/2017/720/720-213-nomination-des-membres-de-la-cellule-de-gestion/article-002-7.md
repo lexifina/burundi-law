@@ -1,0 +1,3 @@
+# Article 2 7
+
+Missions spécifiques - déterminer l’année et/ou la période où il faut considérer la résolution des situations d’intégration comme faisant partie intégrante de l’évaluation; - faire les propositions concrètes sur la pondération des Travaux journaliers, des Examens et des situations d’intégration à chaque année et à chaque palier; - proposer les règles de délibération qui spécifient clairement les conditions de passage de classe et de redoublement pour chaque année et pour chaque section tout en restant dans la logique de développement des compétences; - élaborer un plan de communication sur le système d’évaluation dans le cadre de la pédagogie de l’intégration.

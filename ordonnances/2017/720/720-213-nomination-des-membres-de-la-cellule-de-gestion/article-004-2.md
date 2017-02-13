@@ -1,0 +1,3 @@
+# Article 4 2
+
+Calendrier des réunions, durée du mandat du comité et rapportage. Alinéa 1: La périodicité des réunions est fixée le mardi de chaque semaine de 9h00 à 11 h00 sachant que des séances extraordinaires peuvent être tenues à n’importe quel autre jour pour des questions nécessitant un traitement urgent. Alinéa 2: Le travail effectif du comité sera assuré de février à décembre 2017. Alinéa 3: La coordination du comité s’assurera de produire des rapports mensuels qu’elle transmettra à l’autorité du ministère de tutelle pour lui fournir des informations utiles ou pour susciter d’éclairer la prise des décisions.

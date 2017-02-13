@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommés : - Directeur du Lycée Communal BISORO, Monsieur NISUBIRE Claver, Matricule, 21088817; - Directeur du Lycée Communal NYAKABINGO, Monsieur NAHISHAKIYE Pascal, Matricule: 19996346; - Préfet des Etudes au Lycée Sainte Marie Consolatrice des Affligés de KIBUMBU, Monsieur NSENGIYUMVA Mélance, Matricule, 20389093; - Préfet des Etudes au Lycée Technique Sainte Marie Consolatrice des Affligés de SASWE, Monsieur KARIWABO Pierre Claver, Matricule, 17932165; - Préfet des Etudes au Lycée Communal GASAVE II, Monsieur MANIRAMBONA Fidèle, Matricule, 21432956; - Préfet des Etudes au Lycée Communal MWARO I : Monsieur MANIRAKIZA Vénérand, Matricule, 12341632; - Préfet des Etudes au Lycée Communal KIBIMBA II: Monsieur BIGIRIMANA Jérôme, Matricule, 18485671.
