@@ -1,0 +1,3 @@
+# Article 8
+
+Le promoteur ou les promoteurs chargé (s) d’aménager la ZES de Warubondo bénéficie(nt) d’exonération des droits et taxes à l’importation, y compris les prélèvements forfaitaires pendant la phase d’aménagement de la zone. Les redevances administratives ne sont pas comprises dans les exonérations. Par phase d’aménagement de la ZES de Warubondo, on entend toute la phase relative à l’installation des constructions et équipements nécessaires au fonctionnement effectif de la zone. Elle est fixée à une période maximum de trois ans. L’attestation d’exonération est accordée par le Commissaire Général de l’OBR pour les importations ou les achats locaux’ relatifs aux constructions et équipements nécessaires au fonctionnement effectif de la zone.

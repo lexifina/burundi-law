@@ -1,0 +1,5 @@
+# Article 11
+
+Tout investisseur de la ZES Warubondo qui détourne la destination des biens exonérés en vertu des avantages liés à la promotion de la Zone s’expose aux sanctions administratives suivantes: - retrait de tous les avantages douaniers et fiscaux; - les biens ainsi vendus, transférés, cédés ou détournés de leur destination dans la Zone seront assujettis au double des droits à l’importation prévus par les législations en vigueur; - le recouvrement de ces droits sera effectué par voie de contrainte administrative conformément aux lois et règlements en vigueur. De même, toutes manœuvres pouvant avoir ou ayant eu pour effet des exonérations indues telles que fausses déclarations portant notamment sur le nombre, les caractéristiques, le coût et la destination des biens exonérés, falsification des pièces justificatives, trafic et détournement de matériels, feront l’objet des mêmes poursuites et sanctions que ci-dessus.
+
+Chapitre III Des entreprises de la ZES et activités économiques autorisées Section 1 Des entreprises et activités autorisées
