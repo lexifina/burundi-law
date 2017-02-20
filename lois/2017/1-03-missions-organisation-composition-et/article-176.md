@@ -1,0 +1,3 @@
+# Article 176
+
+Le Chef du Secrétariat est chargé de : - assurer le bon fonctionnement du Secrétariat; - organiser la réception et la transmission du courrier; - tenir les registres du Secrétariat; - rédiger des correspondances et saisir les différents rapports produits au niveau du Bureau Spécial; - accueillir et orienter les personnes désireuses d’être reçues en audience par l’Inspecteur Général ou les cadres du Bureau Spécial; - recevoir et orienter les appels téléphoniques de l’extérieur; - s’assurer du suivi et de l’orientation du courrier entrant et sortant de l’Inspection Générale de la PNB.

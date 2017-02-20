@@ -1,0 +1,3 @@
+# Article 172
+
+Le Bureau Spécial a les missions suivantes: - organiser et coordonner la mise en œuvre des instructions relatives à l’administration générale de l’Inspection Générale de la PNB; - assurer le suivi et l’évaluation des activités des services centraux et déconcentrés de l’Inspection Générale de la PNB; - préparer les décisions réglementaires et administratives, ainsi que les projets de textes législatifs et réglementaires à soumettre au Ministre ayant la sécurité publique dans ses attributions; - procéder au Suivi-évaluation, analyses et études, et émettre des propositions visant à l’amélioration du fonctionnement de la PNB.

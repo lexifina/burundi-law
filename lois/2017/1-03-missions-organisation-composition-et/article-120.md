@@ -1,0 +1,3 @@
+# Article 120
+
+Le Commissariat Central chargé des frontières a pour missions de: - analyser et exploiter les informations émanant des postes frontières, aéroports et ports; - suivre et contrôler le fonctionnement des postes frontières, aéroports et ports; - établir les statistiques des mouvements transfrontaliers sur les postes frontières, aéroports et ports; - rechercher et suivre le mouvement des étrangers suspects ou en situation irrégulière; - instruire les dossiers relatifs aux infractions commises contre la loi sur les migrations et transmettre à la Police Judiciaire les dossiers des suspects.

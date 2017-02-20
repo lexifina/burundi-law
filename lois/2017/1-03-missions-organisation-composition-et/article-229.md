@@ -1,0 +1,3 @@
+# Article 229
+
+Le Bureau des Etudes et de la Planification a pour missions de: - élaborer la stratégie de mise en œuvre des missions de la PNB; - élaborer les manuels de procédure du fonctionnement des différents domaines de la PNB; - identifier les défis et menaces auxquels la PNB fait face dans son environnement de travail et proposer des voies de solution; - concevoir, faire le suivi et évaluer le plan stratégique et des plans d’actions des différents domaines de la PNB; - planifier, en collaboration avec le Commissariat Général de la Formation, les formations dans le domaine de la planification.

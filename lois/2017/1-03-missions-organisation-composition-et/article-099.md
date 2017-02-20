@@ -1,0 +1,3 @@
+# Article 99
+
+L’Unité de Protection des Mineurs et des Mœurs a pour missions de : - lutter contre les violences basées sur le genre et le trafic des êtres humains; - lutter contre toute forme de délinquance et de vagabondage sexuel; - lutter contre la prostitution et l’attentat à la pudeur; - lutter contre le proxénétisme; - lutter contre le racolage sur la voie publique; - assurer la protection des mineurs victimes; témoins et en conflit avec la loi; - lutter contre toute forme d’exploitation des mineurs; - protéger les victimes des violences contre d’éventuels menaces des auteurs; - confectionner les dossiers à charge des auteurs présumés; - accueillir et écouter les victimes.

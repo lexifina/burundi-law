@@ -1,0 +1,3 @@
+# Article 189
+
+Le Service des Opérations a pour missions de: - organiser et mettre à jour les tableaux organiques de la PNB; - concevoir les stratégies de lutte contre la criminalité en collaboration avec le Bureau Renseignement et d’autres partenaires; - planifier et faire le suivi des ordres opérationnels de la PNB; - concevoir les mesures de sécurité intérieure et préparer des opérations; - contrôler la mise en application des mesures de sûreté et l’exécution des plans opérationnels; - organiser le déploiement et la relève des unités constituées de police pour les missions de maintien de la paix.

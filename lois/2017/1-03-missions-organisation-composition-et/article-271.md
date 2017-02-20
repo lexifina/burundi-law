@@ -1,0 +1,3 @@
+# Article 271
+
+Le Service chargé des Renseignements et Opérations a pour missions de: - exploiter les comptes rendus des situations en provenance des Commissariats Communaux; - prévenir et suivre toute forme de déstabilisation et de subversion dans la Province; - proposer au Commissaire Provincial des mesures de sécurité du personnel et des installations névralgiques et stratégiques; - organiser et mettre à jour les tableaux organiques de la Province; - mettre en œuvre les plans de lutte contre la criminalité au niveau provincial; - contrôler la mise en application des mesures de sûreté et l’exécution des plans opérationnels.

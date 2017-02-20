@@ -1,0 +1,3 @@
+# Article 256
+
+Le Service chargé des Renseignements et Opérations a pour missions de: - exploiter les comptes rendus des situations en provenance des Commissariats Provinciaux; - prévenir et suivre toute forme de déstabilisation et de subversion dans la région; - proposer au Commissaire Régional des mesures de sécurité du personnel et des installations névralgiques et stratégiques; - organiser et mettre à jour les tableaux organiques de la région; - mettre en œuvre les plans de lutte contre la criminalité au niveau régional; - contrôler la mise en application des mesures de sûreté et l’exécution des plans opérationnels.
