@@ -1,0 +1,3 @@
+# Article 108
+
+Ingingo ya 108 Tout membre de la FDNB doit, en plus des obligations statutaires, s’abstenir de toute tentation ou acte de corruption, de toute activité contraire à l’éthique et à la morale, tels que le détournement des deniers publics, le favoritisme, le népotisme, la discrimination, le trafic d’influence et l’indiscrétion professionnelle. Uwuri mu Rwego FDNB wese ategerezwa, uretse ivyo ategerejwe n’amategeko ngenderwako amugenga, kwirinda kugerageza canke kurya igiturire, igikorwa cose giteye kubiri n’akarangamutima n’imico myiza; nk’ukunyuruza amafaranga ya Reta, ukugira nkunzi, aka mwana wa marna, ugukumira, ukwitwaza ububasha afise n’ukutagumya amabanga y’akazi.

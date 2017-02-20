@@ -1,0 +1,3 @@
+# Article 28
+
+Ingingo ya 28 Le Service chargé de l’instruction, de l’entraînement et des opérations comprend notamment: Igisata kijejwe ivyerekeye inyigisho z’igisirikare, imyimenyerezo n’ibikorwa bijanye n’ukurwana kirimwo: - le Bureau des plans et opérations; - ibiro bijejwe indinganizo y’ibikorwa bijanye n’ukurwana hamwe n’ishirwa mu ngiro yavyo; - le Bureau de l’entraînement physique et sport; - ibiro bijejwe ukwinonora imitsi n’inkino; - le Bureau de l’instruction, l’entraînement et du suivi des réservistes; - ibiro bijejwe inyigisho z’igisirikare, imyimenyerezo n’ugukurikirana abashobora gutumwako gufasha mu vya gisirikare; - le Bureau des missions de maintien de la paix. - ibiro bijejwe ivyerekeye abarungikwa kugarukana amahoro.

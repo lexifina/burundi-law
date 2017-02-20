@@ -1,0 +1,3 @@
+# Article 69
+
+Ingingo ya 69 Les membres de la FDNB reçoivent une formation professionnelle et technique appropriée à leurs missions. Abagize Urwego FDNB bararonswa inyigisho zerekeye umwuga n’ubuhinga zijanye n’imirimo bajejwe. Ils reçoivent également une formation portant notamment sur la morale, l’éducation patriotique, l’éthique militaire, la culture de la paix, le respect des droits de la personne humaine, du droit international humanitaire, du genre et les OMP. Bararonswa kandi inyigisho nk’izerekeye inyifato ibereye mu gisirikare, ugukunda igihugu, akarangamutima k’igisirikare, ingendo y’amahoro, ukwubahiriza Uburengazira mpuzamakungu bwa kiremwa muntu mu bihe vy’intambara, ukudakumira hafatiwe ku gitsina hamwe n’ivyerekeye ibikorwa vy’ukugarukana amahoro.

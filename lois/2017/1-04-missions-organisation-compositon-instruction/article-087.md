@@ -1,0 +1,3 @@
+# Article 87
+
+Ingingo ya 87 La FDNB est placée sous la plus haute autorité du Président de la République qui en est le Commandant Suprême. Il déclare la guerre et signe l’armistice après consultation du Gouvernement, des Bureaux de l’Assemblée Nationale et du Sénat et du Conseil National de Sécurité. Umukuru w’Igihugu ni we mutegetsi mukuru w’Urwego FDNB ari na we Kizigenza mu ntwaramiheto. Ni we afata ingingo yo kugomora ingabo akongera agashira igikumu ku masezerano yo guhagarika ingwano, abanje kubigisha inama Urwego Nshikiranganji, Ibiro vy’Inama Nshingamateka n’Ibiro vy’Inama Nkenguzamateka hamwe n’Inama Nkuru y’igihugu ijejwe umutekano.
