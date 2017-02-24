@@ -1,0 +1,3 @@
+# Article 22
+
+La Commission ad hoc précise dans l’avis d’appel public à la concurrence ou dans le règlement de la consultation ceux des renseignements et documents énumérés à l’article 21 que doit produire le candidat. Lorsque la Commission ad hoc constate que, avant de procéder à l’examen des candidatures, des pièces dont la production est nécessaire sont absentes ou incomplètes, elle peut demander à tous les candidats concernés de compléter leur dossier de candidature dans un délai identique pour tous. Il en informe les autres candidats qui ont la possibilité de compléter leur candidature, dans le même délai.
