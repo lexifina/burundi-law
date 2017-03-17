@@ -1,0 +1,3 @@
+# Article 1
+
+La section « Agriculture » est ouverte dans les Etablissements d’Enseignement Post Fondamental public ci-après:  Lycée Technique Communal Nyagatobe en Commune Rugazi, Province Scolaire Bubanza  Lycée Technique Communal Buhoro en Commune Mabayi, Province Scolaire Cibitoke  Lycée Technique Communal Rukoki en Commune Bukirasazi, Province Scolaire Gitega  Lycée Technique Saint Sacrement de Mubuga en Commune Gitega, Province Scolaire Gitega  Lycée Technique Communal Kanyinya en Commune Itaba, Province Scolaire Gitega  Lycée Technique Kirema en Commune Kayanza, Province Scolaire Kayanza  Lycée Technique Communal Remera en Commune Muruta, Province Scolaire Kayanza
