@@ -1,0 +1,3 @@
+# Article 1
+
+La section « INFORMATIQUE DE MAINTENANCE » est ouverte dans les Etablissements d’Enseignement Post Fondamental Public ci-après:  Lycée Communal Mitakataka en commune Bubanza  Lycée Technique Communal Kabamba en Commune Mpanda  Lycée Technique Communal Ndora en commune Bukinanyana  Lycée Technique Kibuye I en commune Bukirasazi  Lycée Notre Dame du Rosaire en commune Nyanza Lac  Lycée Sainte Marie Consolatrice des Affligés de Saswe en commune Kayokwe  Lycée Technique Communal Kigufi en commune Busiga  Lycée Technique Muzye en commune Giharo  Ecole Technique Bucaba en commune Giharo
