@@ -1,0 +1,3 @@
+# Article 61
+
+Les Diplômes sont délivrés sous le sceau du ou des établissements accrédités à cet effet; ils sont signés par le Président du jury, le Doyen de la Faculté/Chef de Département/de Filière ou de l’Institut ou le Directeur de l’Ecole, le Recteur de l’Université ou le Directeur de l’Etablissement concerné, ainsi que le Titulaire. Dans le cadre d’une Convention, les Diplômes délivrés sont signés conjointement par les responsables respectifs des Etablissements ayant signé la Convention. Ils font apparaître la mention décernée au lauréat conformément aux critères fixés par le règlement académique de l’établissement.

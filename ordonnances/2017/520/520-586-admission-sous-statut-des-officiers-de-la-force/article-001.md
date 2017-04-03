@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres du Comité d’Organisation du Championnat Intercommunal, édition 2017, les personnes dont les noms suivent: 1. Monsieur IIdéphonse NDAYAMBAJE: Président; 2. Monsieur Eric SINZOBAHWANYA: Vice Président; 3. Mademoiselle Goreth KANYANGE: Secrétaire; 4. Monsieur Pierre Claver NDAYISHIMIYE: Membre; 5. Monsieur Stanislas SONGORE: Membre; 6. Monsieur Faustin CONGERA: Membre; 7. Madame Joselyne ININAHAZWE: Membre; 8. Monsieur Mathias MANIRAKIZA: Membre; 9. Madame Mathilde NDIKURIYO: Membre; 10. Monsieur Astère NZUNOGERA: Membre; 11. Un Représentant du Min. de l’Intérieur: Membre.
