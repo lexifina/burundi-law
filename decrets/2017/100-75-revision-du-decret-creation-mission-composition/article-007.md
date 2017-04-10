@@ -1,0 +1,3 @@
+# Article 7
+
+La Commission Technique de Sécurisation de la Navigation Lacustre est composée des personnalités suivantes: - le Directeur Générale de l’Autorité Maritime, Portuaire et Ferroviaire qui assure la présidence de la Commission; - le Commandant de la Marine Militaire, Vice-président; - le Directeur de l’Autorité Maritime, Secrétaire; - le Commandant de la Police Marine, membre; - le Directeur des Eaux, de la Pêche et de l’Aquaculture, membre; - le Directeur Administratif et Financier de l’Autorité Maritime, Portuaire et Ferroviaire, membre; - le Directeur de l’Environnement et du Changement Climatique, membre; - le Directeur du Commerce Extérieur, membre.
