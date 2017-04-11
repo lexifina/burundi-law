@@ -1,0 +1,3 @@
+# Article 1 3
+
+La présente Ordonnance Ministérielle a pour objet la suppression d’Assistance accordée aux étudiants éligibles dans les Institutions d’Enseignement Supérieur privé et la révision de deux Ordonnances Ministérielles suivantes: - Ordonnance Ministérielle n°610/527 du 17 avril 2014 portant Révision de l’Ordonnance Ministérielle n°610/212 du 12 février 2014 portant Modalités d’Assistance aux lauréats éligibles à l’Enseignement Supérieur au titre de l’Année Académique 2013-2014. - Ordonnance Ministérielle n°610/1872 du 14/10/2016 portant Modalités d’Appui aux lauréats inscrits dans les Institutions d’Enseignement Supérieur Privé au titre de l’Année Académique 2015- 2016.

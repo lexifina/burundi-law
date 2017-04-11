@@ -1,0 +1,3 @@
+# Article 6 4
+
+Toutes dispositions antérieures et contraires à la présente, sont abrogées

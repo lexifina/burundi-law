@@ -1,0 +1,3 @@
+# Article 5 12
+
+Sont nommés membres de cette cellule: 4. Dr. HITIMANA Cassien: Directeur Adjoint Chargé des Soins; 5. Dr. IRAMBONA Hilaire: Médecin Chef de service Maternité; 6. NDAGIJIMANA Donat: Chef Nursing; 7. MINANI Jean Claude: Chef de poste Laboratoire et représentant syndical; 8. NKURUNZIZA Pascal: TPS; 9. ININAHAZWE Jeanine: Chef de poste Médecine interne; 10. HABONIMANA Elie: Chef de poste Radiologie; 11. NIZIGIYIMANA Léonie: Chef de poste SDV; 12. KIGEME Nadine: Chef de poste Urgences; 13. NDAYIZEYE Emelyne: GSIS; 14. SINZOBATOHANA Vénuste: Chef de poste Pédiatrie; 15. IRAMBONA Anicet: Chef de poste adjoint Chirurgie et 16. HAKIZIMANA Jonas: Agent de facturation.

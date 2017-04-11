@@ -1,0 +1,3 @@
+# Article 5 13
+
+Sont nommés membres de cette cellule: 4. Dr. HAVYARIMANA Francis: Médecin Chef de service Maternité; 5. MINYURANO Oscar: Comptable; 6. NIYOKINDI Pauline: Chef de poste Urgences; 7. NTAHOMPAGAZE Mélanie: Chef de poste Maternité; 8. NDAYISHIMIYE Spéciose: Chef de poste CDV/TB; 9. NDAYIKUNDA Jimmy: Chef de poste Chirurgie et Bloc-op; 10. NDAYISENGA Valérie: Infirmière; 11. MANIRAKIZA Radan: Chef Nursing; 12. NDAYISENGA Eric: Chef de poste MI; 13. NZISABIRA Jean Pierre: Maternité/Sage-femme; 14. HAVYARIMANA Alfred: Magasinier; 15. NTAHOMBAYE Bernard: Aide infirmier; 16. NIYOMWUNGERE Janvier: Laborantin; 17. NDIKUMANA Wilson: Infirmier; 18. NIRUKIYIMANA Joël: Travailleur; 19. ATANGAMAHORO Pascal: Travailleur et 20. BIZIMANA Pasteur: Aide infirmier.

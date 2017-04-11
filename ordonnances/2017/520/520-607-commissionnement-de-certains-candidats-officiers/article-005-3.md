@@ -1,0 +1,3 @@
+# Article 5 3
+
+Sont nommés membres de cette cellule: 4. Dr. Armel BITANEZA; 5. Dr. Elie NDIKURYAYO; 6. HATUNGIMANA Evelyne; 7. HAVYARIMANA Christine; 8. IRANGABIYE Boniface; 9. KAMARIZA Emelyne; 10. KANEZA Béatrice; 11. KANEZA Vestine; 12. KANYAMUNEZA Francine; 13. KANYAMUNEZA Médard; 14. KAZOKURA Espérance; 15. KWIZERA Dorine; 16. MUKUNZI Pacifique; 17. NDAYIKEZA Ode Nadège 18. NDAYISENGA Espérance; 19. NDAYISENGA Concilie; 20. NDAYIZEYE Protais; 21. NDIHOKUBWAYO Alphonsine; 22. NDIHOKUBWAYO Thaddée; 23. NDUWIMANA Lidwine; 24. NIFASHA Joséphine; 25. NITUNGA Benita; 26. NIYONGABO Claudette; 27. NIYONGABO Jean Marie; 28. NIZIGIYIMANA Alfred; 29. NIZIGIYIMANA Rénilde; 30. NZEYE Candide; 31. SINDAYIHEBURA Mont Fort.

@@ -1,0 +1,3 @@
+# Article 1 21
+
+Sont nommés membres de la cellule de Gestion des Marchés Publics de la Commune GISISURU, les personnes dont les noms ci-bas: Liste des membres de la cellule de gestion des marches publiques en commune GISURU N° NOM ET PRENOM FONCTION 1 NGENZIRABONA Aloys Président 2 BIZUKUNDI Norbert Membre 3 MAJAMBERE Germain Membre 4 NYABENDA Jérémie Membre 5 NIBIZI Léonidas Membre 6 NTAKARUTIMANA Eliphaz Membre 7 HAVYARIMANA Silas Membre 8 MISAGO Gervais Membre 9 NTUNZWENAYO Luc Membre 10 MANIRAKIZA Suavis Membre 11 MINANI Onésime Membre 12 SELEMANI Habib Membre 13 NKURUNZIZA Aloys Membre 14 NIYINGANZA Gad Membre 15 NIMUBONA Léonidas Membre

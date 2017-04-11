@@ -1,0 +1,3 @@
+# Article 5 5
+
+Sont nommés membres de cette cellule: 4. MUNEZERO Marie Louise: Directeur Adjoint chargé de l’Administration et des Finances; 5. NIMBONA Désiré: Chef de poste Adjoint Laboratoire; 6. NDABARUSHIMANA Jeannette: Chef de poste Facturation; 7. NDAYISHIMIYE Joselyne: Chef de poste Adjoint Facturation; 8. KABAGABIRE Liliane: Chef de poste Gynéco-Obstétrique; 9. SINDIHEBURA Augustin: Chef de poste Maintenance; 10. NDAYIKENGURUKIYE Joselyne: Infirmière Maternité; 11. MINANI Louise: Chef de poste Gynéco-Obstétrique; 12. MANIRAMBONA Godelieve: Chef de poste Chirurgie; 13. BUCUMI Zabulon: Technicien de Laboratoire; 14. HATUNGIMANA Vital: Agent de la Facturation; 15. INARUKUNDO Gyslaine: Responsable chargé du SIS;
