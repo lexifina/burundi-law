@@ -1,0 +1,3 @@
+# Article 2 7
+
+Cette cellule est composée de: - Monsieur BUKURU Charles, Chef de Service Productions et Moyens; - Monsieur NGENDAHAYO Jean Pierre, Chef de Service Evaluations Foncières et Immobilières; - Monsieur NTIBUSHITSE Adrien, Chef de Service Etudes et Coordination; - Monsieur NAHAWENIMANA Léopold, Chef de Service Administration et Finances; - Madame NIYONKURU Hindou, Conseillère à la Direction du Cadastre National; - Monsieur KARIMANZIRA Tharcisse, Technicien Géomètre; - Monsieur NTAMUNGURURIZO Rémy, Technicien Géomètre; - Monsieur NDIKUMAGENGE Tharcisse, Technicien Géomètre; - Madame MBONIMPA Jocelyne, Secrétaire; - Madame KEZAMAHORO Jeanne, Secrétaire.

@@ -1,0 +1,3 @@
+# Article 4 4
+
+La cellule de gestion des Marchés Publics est chargée notamment de: - La planification des marchés publics et des délégations de service public; - L’élaboration des dossiers d’appel d’offres et de consultation; - La préparation des spécifications techniques; - La détermination de la procédure et du type de marché - Le lancement des appels à la concurrence; - L’ouverture, le dépouillement, l’évaluation des offres; - L’attribution provisoire des marchés; - La rédaction des contrats et avenants; - Le visa des marchés inférieurs au seuil des passations défini par voie réglementaire; - Le suivi de l’exécution des marchés; - La réception des prestations.
