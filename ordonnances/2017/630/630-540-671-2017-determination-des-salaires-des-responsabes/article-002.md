@@ -1,0 +1,3 @@
+# Article 2
+
+Le tableau ci-dessous illustre les salaires des Responsables visés à l’article 1: Libellé Montant salaire de base 350 000 Indemnité de logement 154 173 Indemnité Clinique 47 000 Indemnité de garde 16 550 Indemnités des heures supplémentaires 25 000 Indemnité de risque 232 752 Indemnité spéciale d’astreinte 34 885 Indemnité de stabilisation professionnelle 75 504 Prime d’encouragement 57 000 Prime de fonction 50 000 Prime de rendement 21 000 TOTAL BRUT 1 063 864 RETENUES Impôt sur Revenu d’Emploi 115 317 Mutuelle de la Fonction Publique 12 000 INSS 18 000 TOTAL RETENUES 145 317 SALAIRE NET A PAYER 918 547
