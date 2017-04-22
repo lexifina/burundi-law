@@ -1,0 +1,3 @@
+# Article 1 11
+
+Sont nommés membres de la cellule de Gestion des Marchés Publics de la Commune MABAYI, les personnes dont les noms suivent: 1. BASURURWUZUYE Pascal: Président; 2. YARANYUMVIYE Rénovat: Vice-Président; 3. NDAHABONYIMANA Nicodème: Secrétaire; 4. NDABOROHEYE Pascaline: membre; 5. BASHEMEZIMANA Etienne: membre; 6. SINIREMERA Crescent: membre; 7. NDAYISENGA Daniel: membre; 8. NTAWUGABIMANA Salomon: membre; 9. UWIZEYIMANA Alexine: membre; 10. NTAMUVUKANO Félix: membre; 11. HAKIZIMANA Concilie: membre; 12. NTAKIRUTIMANA Dénis: membre; 13. NKIKWANAYO Christophe: membre; 14. BAYISINGIZE Isaïe: membre.
