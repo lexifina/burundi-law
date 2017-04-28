@@ -1,0 +1,3 @@
+# Article 5
+
+Sont nommés membres de cette cellule: 4. Dr Emile HORUGAVYE; 5. Dr NIYONSABA Fréderic; 6. BUKURU Antoine; 7. KWIZERA Athanase; 8. HAKIZIMANA Rémy; 9. MANIRAKIZA Fulgence; 10. BIGIRIMANA Bonaventure; 11. NIYONIZIGIYE Béatrice; 12. NITONDE J. Bosco; 13. HATANGIMANA Alphonse; 14. HARUSHIMANA Léonard; 15. NIYOKINDI Aline; 16. NTIRAMPEBA Angleberthe; 17. NSAVYIMANA Donatien; 18. MUNEZERO Séraphine; 19. NISABWE Clotilde; 20. NDAYISENGA Alice; 21. YAMUREMYE Béatrice; 22. IRAKOZE Diane, 23. NDUWUMUKIZA J. Bosco, 24. KUBWIMANA Lydia, 25. SINZI Alice, 26. IBIZENEZA Aline, 27. NSENGIMANA Claudine, 28. NKURUNZIZA Jéconias et 29. MUKESHIMANA Seconde
