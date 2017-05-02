@@ -1,0 +1,3 @@
+# Article 7
+
+Sont nommés Sous-officiers mécaniciens avion: 1 74769 SC0636 MANIRAKIZA DESIRE Adjudant-Major 2 C3608 SC1111 KARENZO LARSON Adjudant-Chef 3 C3993 SC2251 HAKIZIMANA MARTIN Adjudant 4 C4936 SC2334 NIMPAGARITSE SIMON Adjudant

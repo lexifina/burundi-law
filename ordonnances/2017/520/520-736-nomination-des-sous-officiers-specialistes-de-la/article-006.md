@@ -1,0 +1,3 @@
+# Article 6
+
+Sont nommés Sous-officiers mécaniciens: 1 C4852 SC1783 SAHINGUVU EVARISTE Adjudant-Chef 2 70409 SC3592 HABIMANA NAPOLEON Premier Sergent Major 3 61811 SC5314 NIBASUMBA FABRICE Premier Sergent 4 69677 SC5363 MANIRAKIZA APOLLINAIRE Premier Sergent
