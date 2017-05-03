@@ -1,0 +1,3 @@
+# Article 5
+
+Sont nommés membres de cette cellule: 4. NIYIGARURA Mathias : TPS; 5. BIZIMANA Elysée : Comptable; 6. MUHORAKEYE Liliane : Caissière; 7. Dr HARERIMANA Christine : Chef de Service MI; 8. NDENZAKO Albin : Chef de poste pédiatrie; 9. GIHWAHWA Jean Facund : Service de radiologie et président du SYNAPA; 10. NTAHIROJA Lyna Sandra : Chef de poste Adjoint MI; 11. NIYOMWUNGERE Léonidas : Chef de poste de Laboratoire; 12. MUHAYIMANA Militant : Chef de poste Adjoint Maternité; 13. NIYUHIRE Donate : Chef de Nursing; 14. NDIHOKUBWAYO Oscar : SIS de l’Hôpital et 15. NSAVYINGOMA Zacharie : Chef de poste des Urgences;
