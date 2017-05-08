@@ -1,0 +1,3 @@
+# Article 10
+
+1. L’organisme d’assurance maladie-maternité du secteur privé structuré et non structuré fonctionne sous la surveillance de l’Etat. 2. Dans ce cadre, le Ministère ayant les Affaires Sociales dans ses attributions assure le contrôle des tarifs ou des taux appliqués en recettes comme en dépenses, de la comptabilité, de la fiscalité, de la réserve de sécurité et du fonds de roulement. 3. A cet effet, l’organisme est tenu de transmettre un rapport annuel d’activités au Secrétariat Exécutif Permanent de la Commission Nationale de Protection Sociale et ce dernier doit donner ses avis et considérations au plus tard dans les trente jours suivant la réception du rapport.
