@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Commission Nationale chargée de proposer le projet d’amendement de la Constitution: - Monsieur NGENDAKURIYO Pascal: Président; - Monsieur RUBERINTWARI Déo: Vice-Président; - Maître AMANI Jean Pierre: Secrétaire; - Monsieur NTIBAZONKIZA Salvator: Membre; - Monsieur SINABWITEYE Joseph: Membre; - Monsieur MANIRAKIZA Alexis: Membre; - Monsieur RUZOVIYO Guillaume: Membre; - Monsieur BACANAMWO Anatole: Membre; - Monsieur NSHIMIYIMANA Déogratias: Membre; - Monsieur NAHAYO Jacques: Membre; - Monsieur NJANGWA Gilbert Bécaud: Membre; - Monsieur NZOSABA Eraste: Membre; - Madame MAZAMEZA Carine: Membre; - Monsieur HABIMANA Léonard: Membre; - Monsieur NDAYISHIMIYE Félix: Membre;
