@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés Membres de la Cellule de Gestion des Marchés Publics: 1. Madame NYAMPUDU Olga-Gloria: Président; 2. Monsieur BARAHINDUKA Celcius: Vice-Président; 3. Monsieur NKURIKIYE Jean Luc: Secrétaire; 4. Madame CITERETSE Filde: Membre; 5. Monsieur HABONIMANA Léonard: Membre; 6. Monsieur NTIRENGANYA Delphin Juste: Membre; 7. Madame NIYONZIMA Déborah: Membre; 8. Monsieur NDUWAYO Gabriel: Membre; 9. Monsieur MPAWENIMANA Anicet: Membre; 10. Madame NDAYIRAGIJE Consolate: Membre; 11. Madame NIBARUTA Evelyne: Membre; 12. Madame MUKUNDA Roselyne Peggy: Membre; 13. Madame IRAKOZE Aline: Membre; 14. Monsieur IRAMBONA Elvis Noël: Membre; l5. Monsieur NDAYIZEYE Ferdinand: Membre.
