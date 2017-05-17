@@ -1,0 +1,3 @@
+# Article 5
+
+Sont nommés membres de cette cellule: 4. Dr MUGISHA Jean Paul: DACS; 5. MANIRAKIZA Immaculée: Chef Nursing; 6. GARUKIRINTWARI François: Service Laboratoire; 7. NIYUHIRE Noé: Service Laboratoire; 8. INATEBUKA Béoline: Logistique; 9. NDORICIMPA Josélyne: Hygiène et assainissement; 10. BUTOYI Candide: Comptable; 11. NDAYIHIMBAZA Jérémie: Infirmier hospitalier; 12. UWINEZA Liliane: Infirmier hospitalier; 13. HABONIMANA Melack: Infirmier hospitalier; 14. NSINGIRANKABO Mwajuma: Infirmier hospitalier; 15. HAKIZIMANA André: SIS; 16. EMERUSABE Belyse: Infirmier hospitalier; 17. NYANDWI Joachin: Anesthésiste; 18. NZOYIKORERA Alexandre: Plomberie; 19. BAREMERWA Egide: Travailleur; 20. NDAYIHIMBAZE Lambert: Travailleur.
