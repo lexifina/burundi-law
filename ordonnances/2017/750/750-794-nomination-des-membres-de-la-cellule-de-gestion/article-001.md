@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommées Membres de la Cellule de Gestion des Marches Publics au Bureau Burundais de Normalisation et Contrôle de la Qualité (BBN), les personnes ci-après: 1. Monsieur François HAVYARIMANA; 2. Monsieur Célestin NTAHOMVUKIYE; 3. Monsieur Gervais NZINAHORA; 4. Monsieur Siméon MISIGARO; 5. Monsieur Frédéric HARIMENSHI; 6. Monsieur José Prosper NKURUNZIZA; 7. Madame Elise KEZA; 8. Monsieur Félix CIMPAYE; 9. Monsieur Placide NDUWAMAHORO; 10. Madame Georgette NKORERIMANA; 11. Monsieur Etienne NIMPAGARITSE; 12. Monsieur Jean Bosco BUZOKORO; 13. Monsieur Eric RURACENYEKA; 14. Monsieur Jean Claude NDEREYIMANA; 15. Madame Nelly Ange BUTOYI; 16. Monsieur Pierre Claver SEMAYUGI.
