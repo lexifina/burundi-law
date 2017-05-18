@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la cellule de Gestion des Marchés Publics de la Commune Muramvya, les personnes dont les noms ci-bas: LISTE DES MEMBRES DE LA CELLULE DE GESTION DES MARCHES PUBLIQUES EN COMMUNE MURAMVYA 1. NSABIMANA Dieudonné: Président; 2. IRAMBONA Libérate: Vice-Président; 3. HARERIMANA Zéphyrin: Secrétaire; 4. NDUWIMANA Jeanne Aline: Membre; 5. NSHIMIRIMANA Jean Bosco: Membre; 6. NIYONKURU Emile: Membre; 7. NTAKARUTIMANA Ezéchiel: Membre; 8. NIYONGENDAKO Didace: Membre; 9. NKESHIMANA Claver: Membre; 10. NDAYISHIMIYE Annociatte: Membre; 11. ALI Kassim: Membre; 12. NKURUNZIZA Rémy: Membre; 13. HARAKANDI Nestor: Membre; 14. NDIZEYE Prosper: Membre; 15. NDABEMEYE Sedi: Membre.
