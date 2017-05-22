@@ -1,0 +1,3 @@
+# Article 12
+
+Sont nommés Commandants en Second de Bataillons: - Deux Cent Vingt Unième Bataillon: Major Didace RWANKINEZA, SS0983 de la matricule. - Trois Cent Onzième Bataillon: Major Alexis MANIRAKIZA, SS1032 de la matricule. - Trois Cent Vingt Unième Bataillon Major Augustin NSHIMIRIMANA, SS1370 de la matricule. - Quatre Cent Vingt Deuxième Bataillon Major Joseph MAJAMBERE, SS0706 de la matricule. - Bataillon Défense Contre Aviation Passive Major Benoit BARUNGURA, SS0999 de la matricule. - Bataillon Support de la Quatrième Région Militaire Major Adrien NGURUBE, SS1091 de la matricule. - Bataillon Génie Travaux Capitaine Abraham NDAYISHIMIYE, SS1443 de la matricule.

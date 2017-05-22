@@ -1,0 +1,3 @@
+# Article 10
+
+Sont nommés Commandants de Bataillons: - Bataillon Défense Contre Avion Active Lieutenant-colonel Alfred MAYUYU, SS0541 de la matricule. - Quatre Cent Vingt-Unième Bataillon Major Aron NDAYISHIMIYE, SS1793 de la matricule. - Bataillon Support Quatrième Région Militaire Major Désiré NDAYISENGA, SS0754 de la matricule. - Cent Vingt Deuxième Bataillon Major Sylvain KINIGI, SS0702 de la matricule - Deux Cent Douzième Bataillon Major Jean Bosco BAGIRIRWA, SS0638 de la matricule. - Trois Cent Vingt Unième Bataillon Major Georges NZIBAREGA, SS0730 de la matricule. - Cinq Cent Onzième Bataillon Major Emery MINANI, SS0722 de la matricule. - Cinq Cent Vingt Unième Bataillon Major Jean De Dieu NSENGIYUMVA, SS1076 de la matricule.
