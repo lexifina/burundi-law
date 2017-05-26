@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommés membres de la Cellule de la Gestion des Marchés Publics au Ministère de la Jeunesse, des Sports et de la Culture, les Personnes dont les noms suivent: 1. Madame HAKIZIMANA Godefride: Président; 2. Madame NDUWIMANA Alice: Vice-Président; 3. Monsieur NDAYISHIMIYE Pierre Claver: Secrétaire; 4. Monsieur HABONIMANA Solyvent: Secrétaire; 5. Monsieur NISHIRIMBERE Denis: Membre; 6. Madame MPFUKAMENSABE Annonciate: Membre; 7. Madame KAMANZI Chantal: Membre: Membre; 8. Madame NIYONKURU Claire Adeline: Membre; 9. Monsieur NYANDWI Nicodème: Membre; 10. Monsieur IGIRUKWISHAKA Vénant: Membre; 11. Monsieur HORIRABONA Salvator: Membre; 12. Monsieur SINARINZI Léon Claude: Membre.
