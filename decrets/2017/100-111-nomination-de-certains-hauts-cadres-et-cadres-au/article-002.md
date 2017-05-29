@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés: - Directeur de la Coordination des Projets Communaux: Monsieur Libère NIYONKURU. - Directeur de la Décentralisation et de la Gestion de la Performance des Communes: Madame Fifille NKURUNZIZA. - Directeur des Villages et de la Modernisation de l’Habitat Rural: Monsieur Louis Bertrand MASUMBUKO. - Directeur de la Planification locale, de Statistiques et de Suivi et Evaluation. Monsieur Jean Marie Vianney MUTABAZI. - Directeur de la Promotion de l’Economie Locale, des Coopératives et de l’Entrepreneuriat: Monsieur Parfait BUKEBUKE. - Coordonnateur du Centre National de Formation des Acteurs Locaux: Monsieur Serges NJEBARIKANUYE.
