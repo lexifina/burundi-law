@@ -1,0 +1,3 @@
+# Article 5 2
+
+Sont nommés membres de cette cellule: 4. NZITUNGA Ernest: Gestionnaire BPS; 5. RIVUZIMANA Floribert: Gestionnaire BD; 6. BIGIRIMANA Victor: Nursing; 7. NIYONGABO Désiré: Gestionnaire de la pharmacie; 8. BANDEKE Alexandre: Chargé du SIS; 9. SINZOTUMA Joseph: Comptable; 10. NIJIMBERE Mechack: Caissier; 11. NIYONGABO Jean Claude: Service Maternité; 12. MUGISHA Jean Paul: Infirmier hospitalier; 13. NDEREYIMANA Zamda: infirmier hospitalier; 14. NTIBANYURWA Jacques: Electricien; 15. NIYONGABO Expert: Chauffeur; 16. DUSENGIMANA Jeanne: Infirmier hospitalier; 17. BIMENYIMANA Jean Claude: Anesthésiste; 18. NTUKAMAZINA Dismas: Service laboratoire; 19. NIMBONA Athanase: Travailleur et, 20. MANAMFASHA Claude: Service Facturation.
