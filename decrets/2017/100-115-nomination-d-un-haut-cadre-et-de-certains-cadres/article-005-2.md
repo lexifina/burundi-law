@@ -1,0 +1,3 @@
+# Article 5 2
+
+Sont nommés membres de la CGMP de l’OBM les personnes suivantes: 1. Madame NYOTA Agnès; 2. Monsieur NIYUNGEKO Roger; 3. Madame BAMPORIKI Séraphine; 4. Monsieur NKESHIMANA Egide; 5. Madame IRADUKUNDA Yvette; 6. Mademoiselle MUKAMA Emmanuelline; 7. Madame NKURUNZIZA Joselyne; 8. Madame NTUNZWENAYO Alice; 9. Madame KANKINDI Ildégonde; 10. Monsieur BAZIKAMWE Déogratias; 11. Madame CIZA Joselyne; 12. Monsieur NDAYIKUNDA Célestin; 13. Madame NDAYISENGA Philomène; 14. Monsieur SIMBAVIMBERE J Paul; 15. Madame NIYONDIKO Aline; 16. Monsieur NDEREYIMANA Jonathan; 17. Madame NSABIMANA Dorothée; 18. Monsieur NDUWAYO Benjamin; 19. Monsieur NIYOYITUNGIRA J. de Dieu; 20. Monsieur NAHIMANA Arcade.

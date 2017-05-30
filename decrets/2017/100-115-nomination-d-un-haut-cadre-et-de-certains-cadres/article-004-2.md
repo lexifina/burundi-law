@@ -1,0 +1,3 @@
+# Article 4 2
+
+La CGMP est chargée, au sein de l’Autorité contractante, de la conduite de l’ensemble de la procédure de passation des marchés publics et du suivi de leur exécution. A ce titre, la CGMP est chargée de: - la planification des Marchés Publics et des délégations de service public; - l’élaboration des Dossiers d’Appel d’Offres (DAO); - le lancement des Appels à la concurrence; - l’ouverture, le dépouillement et l’évaluation des offres; - l’attribution provisoire des marchés; - la rédaction des contrats et Avenants; - l’analyse des marchés inférieurs au seuil de passation des marchés défini par voie réglementaire; - le suivi de l’exécution des marchés; - la réception des prestations.
