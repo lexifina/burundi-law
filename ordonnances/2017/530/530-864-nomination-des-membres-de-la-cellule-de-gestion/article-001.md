@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la cellule de Gestion des Marchés Publics de la Commune GIHOGAZI, les personnes dont les noms ci-dessous: 1. BISABWIMANA Antoine: Président ; 2. NSABIMANA Caritas: Membre ; 3. NDIKIMINWE Frédéric: Membre ; 4. NDAYISABA Gérard: Membre ; 5. SINDAYIGAYA Alexis: Membre ; 6. NKESHIMANA Melchiade: Membre ; 7. NIYONZIMA Moïse: Membre ; 8. NTAGWUNGUKO Protais: Membre ; 9. NDAYIKENGURUTSE Isabelle: Membre ; 10. NDAYIKENGURUTSE Rénovat: Membre ; 11. MBAZUMUTIMA OTTO: Membre ; 12. BAMPORUBUSA Jérémie: Membre ; 13. NGENDAKUMANA Jean Baptiste : Membre ; 14. NDAYISABA Arthémon: Membre ; 15. NGIRIYE Anatolie: Membre.
