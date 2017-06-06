@@ -1,0 +1,5 @@
+# Article 2
+
+Sous l’autorité hiérarchique du Secrétaire Permanent, le Service Central Statistique a pour activités de: - Collecter, traiter, analyser, centraliser, diffuser, et archiver les données statistiques produites dans différents services du ministère; - Administrer la base des données statistiques relatives aux différents domaines d’intervention du Ministère; - Etablir des rapports périodiques sur les statistiques du Ministère à l’intention du Cabinet du Ministre avec copie à l’ISTEEBU; - Produire et transmettre à l’ISTEEBU, au plus tard le 31 janvier de l’année suivante, un rapport sur l’état d’exécution du plan d’activités de l’année écoulée; - Elaborer et transmettre à l’ISTEEBU un avant plan de travail statistique annuel de l’année suivante au plus tard le 30 juin de l’année en cours; - Organiser des séances de renforcement des capacités des cadres du ministère en matière des statistiques; - Participer aux réunions ou ateliers de formations qui seront organisés en matière des statistiques.
+
+Titre III Du fonctionnement du Service Central Statistique
