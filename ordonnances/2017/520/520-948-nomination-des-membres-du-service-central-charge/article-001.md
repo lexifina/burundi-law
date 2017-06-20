@@ -1,0 +1,3 @@
+# Article 1
+
+Les officiers dont les noms sont repris ci-après sont nommés cadres du Service Central de la Statistique au sein du Ministère de la Défense Nationale et des Anciens Combattants. Il s'agit de : 1 Major GACIYUBWENGE Egide, SS 1901 de la matricule, Chef de service statistique. 2 Capitaine NDAGIJIMANA Anicet, SS 1917 de la matricule, chargé de la collecte et de la saisie des données statistiques. 3 Capitaine BUKURU Bernard, SS 2102 de la matricule; Officier responsable de l'informatique, de l'analyse, de la diffusion, de stockage, de l'archivage et de la sécurisation des données statistiques.
