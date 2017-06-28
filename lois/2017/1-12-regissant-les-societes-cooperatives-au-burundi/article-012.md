@@ -1,0 +1,3 @@
+# Article 12
+
+Il est créé une Agence Nationale de Promotion des Sociétés Coopératives, ANACOOP en sigle, appelée ici «l’Agence ». L’Agence est un établissement public à caractère administratif doté de la personnalité juridique, d’un patrimoine propre ainsi que de l’autonomie de gestion. Son objet est la promotion et la régulation des programmes de la politique nationale des sociétés coopératives. En raison de son caractère administratif, financier, social, commercial, industriel, artisanal et de développement communautaire, l’Agence Nationale de Promotion et de Régulation des Sociétés Coopératives est placée sous la tutelle de la deuxième Vice-Présidence de la République.

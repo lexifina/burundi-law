@@ -1,0 +1,3 @@
+# Article 80
+
+Les parts sociales quelles qu’elles soient ne donnent droit à aucune dividende. Les bénéfices annuels éventuels résultant des activités de la coopérative sont, après dotation au fonds de réserves et de tous les autres prélèvements approuvés par l’Assemblée Générale, répartis entre les membres sous forme de ristourne proportionnelle selon leurs mises. Dans le respect des principes coopératifs, au moins 10% des excédents nets sont destinés à la réalisation des actions sociales pour la communauté et 10% à l’éducation/formation coopérative. En cas de perte durant un exercice quelconque, aucune distribution de ristourne ne peut être effectuée au cours des années suivantes tant que le déficit n’aura pas été résorbé.

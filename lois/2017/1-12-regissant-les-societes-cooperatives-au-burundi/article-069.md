@@ -1,0 +1,3 @@
+# Article 69
+
+Le Conseil de Surveillance a pour mandat de vérifier sans les déplacer, les livres, la caisse et les valeurs de la société coopérative, les inventaires et les bilans ainsi que l’exactitude des écritures comptables. Il peut, à tout moment, opérer des vérifications ou contrôles qu’il juge opportuns, sans toutefois s’immiscer dans la gestion de la société coopérative. Il a également le mandat de vérifier si les décisions de l’Assemblée Générale et du Conseil d’Administration ont été exécutées et de veiller à ce que les statuts et les autres textes qui régissent la société coopérative soient respectés.

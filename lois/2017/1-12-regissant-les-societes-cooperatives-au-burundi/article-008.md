@@ -1,0 +1,7 @@
+# Article 8
+
+Les sociétés coopératives ont pour objet essentiel:
+
+1° d’une part, l’amélioration des conditions économiques en vue de l’accroissement de leurs ressources financières, une juste rémunération de leurs productions, travaux et services, ainsi que la réduction, en leur faveur, du prix de vente ou de revient des matériaux, équipements, biens de consommation et services qui leur sont nécessaires pour la réalisation de leurs objectifs communs, notamment: - l’élévation de leur niveau d’éducation, de formation et de «savoir- faire », dans la gestion de leurs entreprises, métiers ou exploitations; - un meilleur accès aux services techniques, sociaux, administratifs, de crédits et autres, de l’administration, des sociétés de développement, des établissements publics ou privés; - la promotion de l’épargne à des fins utiles, constructives, économiques et sociales; - l’exercice de toutes autres activités économiques ou sociales qui répondent aux besoins communs des membres;
+
+2° d’autre part, la participation aux efforts de développement économique et social par la contribution qu’elles peuvent fournir: - à l’accroissement de la production grâce à l’amélioration des moyens de production et à l’utilisation collective et rationnelle d’équipements, ouvrages, matériaux, installations, et autres; - à la rationalisation des circuits intérieurs de distribution et d’approvisionnement; - au développement du potentiel des ressources humaines facilitant la création d’emplois et favorisant la participation de la population.
