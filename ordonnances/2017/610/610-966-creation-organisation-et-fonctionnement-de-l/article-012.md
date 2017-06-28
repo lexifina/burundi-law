@@ -1,0 +1,3 @@
+# Article 12
+
+En application de l'article 4 du décret n°100/59 du 18 mars 2008 portant réorganisation de l'ISTEEBU et sur base de la convention de partenariat à signer entre l'ISTEEBU et l'Université du Burundi, l'ISTA assure la formation du personnel technique spécialisé pour le fonctionnement du Système Statistique National (SSN) du Burundi. A ce titre il a pour missions de: - Assurer la formation académique des étudiants et la formation en cours d'emploi des personnels du SSN ; - Promouvoir la formation spécialisée pour le développement du SSN du Burundi; - Contribuer au développement de la recherche appliquée dans les domaines relevant de sa compétence.
