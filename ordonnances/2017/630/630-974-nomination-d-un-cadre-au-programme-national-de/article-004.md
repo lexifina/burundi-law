@@ -1,0 +1,3 @@
+# Article 4
+
+L'obligation d'assurance des marchandises ou facultés à l'importation ne s'applique pas: 1. Aux opérations d'importation occasionnelles sans caractère commercial; 2. Aux dons; 3. Aux importations faites par le Gouvernement; 4. Aux colis et paquets postaux; 5. Aux marchandises importées sous le régime de l'admission temporaire conformément au Code des douanes; 6. Aux marchandises importées sous le régime de l'entrepôt de douane conformément au Code des douanes; 7. Aux marchandises et biens importés par les personnes morales ou physiques non résidentes; 8. Aux marchandises importées dont la valeur n'atteint pas le montant fixé à l'article 3 ci-dessus.
