@@ -1,0 +1,3 @@
+# Article 23
+
+Sont nommés au grade de Sous-Lieutenant à la date du 1er juillet 2013, les Officiers Commissionnés dont les noms suivent: Sous-Lieutenant Commissionné Marc SINIGIRIRA SS2334 Sous-Lieutenant Commissionné Jean De Dieu KWIZERA SS2341 Sous-Lieutenant Commissionné Alice HAKIZIMANA SS2354 Sous-Lieutenant Commissionné Jean De Dieu MBANZAMIHIGO SS2390 Sous-Lieutenant Commissionné Fulgence MPFUKAMENSABE SS2391 Sous-Lieutenant Commissionné Jean-Claude RUVUGAMIGABO SS2393 Sous-Lieutenant Commissionné Désiré NTUNGANE SS2394 Sous-Lieutenant Commissionné Emile NIYONGABO SS2395 Sous-Lieutenant Commissionné Laurent MANIRAMBONA SS2396 Sous-Lieutenant Commissionné Moise IGIRUKWISHAKA SS2397 Sous-Lieutenant Commissionné Louis Blaise MUNEZERO SS2230

@@ -1,0 +1,3 @@
+# Article 14
+
+Sont nommés au grade de Lieutenant à la date du 1er juillet 2015, les Lieutenants Commissionnés dont les noms suivent: Lieutenant Commissionné Elie NDENZAKO SS2319 Lieutenant Commissionné Jean-Domitien HARUMUKIZA SS2320 Lieutenant Commissionné Thérence NIBARUTA SS2321 Lieutenant Commissionné Elias NDIKURIYO SS2322 Lieutenant Commissionné Amri NIYONGABO SS2323 Lieutenant Commissionné Belyse KAMARIZA SS2324 Lieutenant Commissionné Thaddée BIGIRIMANA SS2325 Lieutenant Commissionné Marc NDIHOKUBWAYO SS2326 Lieutenant Commissionné Gérard NSHIMIRIMANA SS2327 Lieutenant Commissionné Juste IRADUKUNDA SS2328
