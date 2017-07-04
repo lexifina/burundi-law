@@ -1,0 +1,3 @@
+# Article 3 2
+
+Le Comité de pilotage est chargé de :  Assurer la gestion et le suivi régulier des Ecoles d’Excellence;  Proposer les budgets pour un bon fonctionnement des Ecoles d’Excellence;  Vérifier l’Etat des lieux des infrastructures scolaires, équipements, laboratoires, Bibliothèques;  Identifier les besoins quotidiens et urgents et combler dans les Ecoles d’Excellence;  Organiser la sensibilisation des partenaires et de la Communauté;  Veiller à l’organisation des tests et concours des élèves et de recrutement du personnel dans les écoles d’excellence;  Servir de plate-forme de collaboration en matière de l’amélioration des performances des Ecoles d’Excellence.
