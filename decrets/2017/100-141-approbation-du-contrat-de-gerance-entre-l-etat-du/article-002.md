@@ -1,0 +1,3 @@
+# Article 2
+
+Ce Programme de commercialisation des produits Eau potable et Electricité concerne, d’une part, la livraison des équipements pour l’exploitation des solutions mises en place, tels que les serveurs et routeurs, ainsi que les terminaux de paiement à déployer sur tout le territoire national où la REGIDESO dispose de clients, et d’autre part, l’exploitation d’un système informatique avec des solutions technologiques de paiement, la vente des unités Cash Power, ainsi que la collecte de factures. Ce système informatique comprend une licence perpétuelle et irrévocable d’utilisation des logiciels.
