@@ -1,0 +1,3 @@
+# Article 36
+
+Les fautes méritant le retrait de 9 points en conduite sont les suivantes: - dépassement de la limite du temps (d’une heure) et du lieu de la sortie, - désertion de la salle de cours sans justification, - absence non justifiée à l’interrogation ou à l’examen (plus zéro dans l’épreuve), - sortie non autorisée pendant la journée, - détérioration des biens/infrastructures scolaires (plus la remise en bon état du bien ou de l’infrastructure détérioré), - fouille des effets d’autrui, - suivi clandestin des réunions de l’école ou des mouvements des éducateurs, - fréquentation des cabarets et autres lieux douteux en uniforme de l’école.

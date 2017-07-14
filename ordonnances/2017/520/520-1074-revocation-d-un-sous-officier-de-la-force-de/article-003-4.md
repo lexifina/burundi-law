@@ -1,0 +1,3 @@
+# Article 3 4
+
+Le Comité de Pilotage est composé de six membres nommés par Ordonnance du Ministre ayant l’Energie dans ses attributions, sur proposition du Ministère ou de l’Institution de provenance, dont: 1. Deux représentants de l’Administration centrale du Ministère ayant l’Energie dans ses attributions dont un Président et un secrétaire; 2. Un représentant de l’Administration centrale du Ministère ayant les Finances dans ses attributions, Vice-Président; 3. Un représentant de l’Agence ayant la régulation de l’électricité dans ses attributions, Secrétaire; 4. Un représentant de la REGIDESO, Membre; 5. Un représentant de l’Office Burundais des Recettes (O.B.R), Membre; 6. Un représentant de la Banque de la République du Burundi (B.R.B), Membre.

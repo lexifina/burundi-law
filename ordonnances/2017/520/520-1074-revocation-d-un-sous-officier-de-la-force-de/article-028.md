@@ -1,0 +1,5 @@
+# Article 28
+
+Les fautes dont la décision de punition mérite la présence des parents si nécessaire sont les suivantes: - destruction des cahiers et autres effets d’autrui; - perte d’un manuel scolaire; - injures, menaces, insolence à l’endroit d’un élève; - cheveux non-coupés après avertissement; - fréquentation des lieux douteux et honteux; - souillure des infrastructures ou mobiliers scolaires; - maquillage de tout genre; - fouille des effets d’un condisciple; - relations douteuses entre garçon et fille; - absences non signalées ou retards répétés; - commerce à l’école; - malpropreté corporelle et vestimentaire; - devoirs à domicile non faits; - dérangements exagérés en classe; - mensonges; - présence de nourriture ou des boissons dans les effets de l’élève en classe.
+
+La réparation des dommages causés par la destruction des cahiers et autres effets d’autrui ainsi que par la souillure des infrastructures ou mobiliers scolaires est à la charge de l’apprenant fautif. Il en est de même de la perte de manuel scolaire.
