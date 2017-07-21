@@ -1,0 +1,3 @@
+# Article 22
+
+Les ressources du Fonds proviennent: - des subventions annuelles du Gouvernement libellées sous formes de taxes et d’impôts affectés aux financements des programmes de protection sociale; - des appuis financiers des partenaires techniques et financiers engagés dans la protection sociale au Burundi, à l’exception des projets et programmes gérés par d’autres Ministères Sectoriels; - d’un prélèvement obligatoire sur les cotisations annuelles collectées par les organismes de sécurité sociale opérant dans le secteur structuré; - d’un prélèvement obligatoire sur les primes d’assurances collectées par les organismes d’assurances commerciales; - des dons et legs; - de toutes autres sources pour autant qu’elles soient conformes aux lois et règlements du Burundi.

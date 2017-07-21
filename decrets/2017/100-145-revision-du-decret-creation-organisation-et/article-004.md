@@ -1,0 +1,3 @@
+# Article 4
+
+Le Conseil d’Administration est composé de sept membres comme suit: - un représentant du Ministère ayant la Protection Sociale dans ses attributions: Président; - un représentant du Ministère en charge des Finances Publiques: Vice Président; - le Coordonnateur du FAPS: Secrétaire; - un représentant du Ministère en charge de la Santé Publique; Membre; - un représentant du Ministère ayant le Travail dans ses attributions: membre; - un représentant de l’Association des Employeurs du Burundi: membre; - un représentant de l’Organisation Syndicale la plus représentative des travailleurs: Membre.

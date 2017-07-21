@@ -1,0 +1,3 @@
+# Article 3 2
+
+La cellule nationale CONFEJES est composée par:  Secrétaire Permanent: Monsieur CONGERA Faustin  Membres de droit: - La Directrice Administratif et Financier: Madame MPFUKAMENSABE Annonciate; - La Directrice en charge des questions de jeunesse: Madame NIYONZIMA Jeanne; - Le Directeur en charge des questions de sport: Monsieur NDAYIZEYE Emmanuel; - La Directrice en charge des questions de loisirs: Madame NTAHOMBAYE Alphonsine; - Le Directeur de l’Institut Public de formation des cadres de jeunesse, sport et loisirs: Monsieur NAHIMANA Salvator.  Membres de qualité: - La coordonnatrice nationale PPEJ: Madame MIBURO Anathalie; - Le coordonnateur national des APEJ: Monsieur MANIRAKIZA Mathias; - La déléguée nationale CTCF: Madame NTACONAYIGIZE Espérance.

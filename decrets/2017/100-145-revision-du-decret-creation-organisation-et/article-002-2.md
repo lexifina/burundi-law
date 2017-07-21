@@ -1,0 +1,3 @@
+# Article 2 2
+
+La cellule nationale CONFEJES, organe consultatif a pour mission: - Le portage et le pilotage de la coopération avec la CONFEJES en vue de la mise en évidence des priorités et des positions nationales sur les différentes problématiques de la coopération multilatérale francophone. - Le suivi des engagements statutaires aux plans technique, administratif et financier dans la conception, la mise en œuvre et le suivi des programmes en vue de l’optimisation des investissements consentis dans la promotion sociale et économique des jeunes et l’amélioration de l’environnement des pratiques sportives. - La constitution et la gestion des données quantitatives et qualitatives découlant de la mise en œuvre des programmes CONFEJES au niveau du pays.
