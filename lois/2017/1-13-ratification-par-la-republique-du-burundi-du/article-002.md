@@ -1,0 +1,3 @@
+# Article 2
+
+La presente loi entre en vigueur Ie jour de sa promulgation. Fait a Bujumbura, Ie 2,i juillet 2UJ..~-----Pierre NKURUNZIZA. REPUBLIQUE, REPUBLIC OF BURUNDI .. CABINET OF PRESIDENT ~ Bill W1/ AJ ON 2-r JULY 2017 ON RATIFICATION BY THE REPUBLIC OF BURUNDI OF THE EAST AFRICAN COMMUNITY PROCOL ON SANITARY ANp PHYTOSANITARY MEASURES THE PRESIDENT OF THE REPUBLIC, Considering the Constitution of the Republic of Burundi; Considering the Treaty establishing the East African Community; Considering the East African Community Protocol on Sanitary and Phytosanitary Measures; The Council of Ministers having deliberated; The National Assembly and the Senate having adopted; PROMULGATES:
