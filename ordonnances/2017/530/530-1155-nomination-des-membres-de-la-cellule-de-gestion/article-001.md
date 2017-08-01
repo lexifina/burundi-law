@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la cellule de Passation des Marchés Publics de la Commune MURWI les personnes dont les noms suivent: 1. CIZA Joseph: Président; 2. NIYOBUHUNGIRO Salvator: Secrétaire; 3. NTAHOMVUKIYE J. Bosco: Membre; 4. NDABIHAWENIMANA Jean: Membre; 5. CIMPAYE Christine: Membre; 6. IRANKUNDA Irène: Membre; 7. NTIRUMVEKO Amos: Membre; 8. GAHINDO Anicet: Membre; 9. NIZIGIYIMANA Bertrand: Membre; 10. NTIHABOSE Nestor: Membre; 11. KUBWAYO Jean Pierre: Membre; 12. BUTOYI Samson: Membre; 13. NIZIGIYIMANA Faustin: Membre; 14. NIYONGABO Jean: Membre; 15. MANIRAKIZA Innocent: Membre; 16. NZOKIZWANAYO Melchiade: Membre.
