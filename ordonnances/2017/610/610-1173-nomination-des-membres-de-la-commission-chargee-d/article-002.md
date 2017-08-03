@@ -1,0 +1,3 @@
+# Article 2
+
+La Commission chargée d’organiser, de superviser la Passation et la Correction du Concours d’entrée dans les écoles d’excellence, Edition 2017 a pour mission de:  Organiser toutes les opérations en rapport avec la préparation logistique du Concours;  Assurer le suivi de la passation du concours en collaboration étroite avec les Présidents des Centres de Passation;  Organiser les différentes étapes de la correction, notamment: La validation des grilles de correction; La correction du Concours; Le traitement des résultats;  Publier les résultats provisoires;  Publier les résultats définitifs;  Placer les candidats dans les écoles en tenant compte des critères d’équilibre et d’équité;  Transmettre les résultats définitifs acquit de droit.
