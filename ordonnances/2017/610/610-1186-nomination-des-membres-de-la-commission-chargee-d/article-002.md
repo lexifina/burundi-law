@@ -1,0 +1,3 @@
+# Article 2
+
+La commission a pour mission notamment de : * Actualiser et produire un CDMT dont les objectifs visés sont: - Définir un cadre cohérent et réaliste de ressources, favorable à l’amélioration d’un environnement macro-économique équilibré; - Mettre un système de répartition de ressources plus conforme aux priorités stratégiques sectorielles; - Utiliser plus efficacement les ressources par les services opérationnels jouissant de plus d’autonomie; - Permettre une pré-visibilité des ressources et une meilleure planification des dépenses - Établir de liens entre objectifs, résultats et dépenses. * Vulgariser le CDMT auprès des responsables de service; * Produire un rapport au plus tard au mois d’Août.
