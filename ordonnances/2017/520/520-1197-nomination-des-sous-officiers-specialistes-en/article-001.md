@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés sous-officiers spécialistes en informatique de maintenance et réseau, les Sous-Officiers ci-après: 1. C4732/SC1729, NSABIMANA: Adjudant-Chef ; 2. 70415/SC3976, MUNEZERO: Premier Sergent Major ; 3. 39687/SC3238, NDAGIJIMANA: Premier Sergent Major ; 4. C4067/SC1436, BIZIMANA: Adjudant-Chef ; 5. 71736/SC2948, NTADOHOKA: Premier Sergent Major ; 6. 74667/SC0401, NIMBONA: Adjudant-Major; 7. C3608/SC1111, KARENZO: Adjudant-Chef; 8. 74398/SC0231, BAKENGERA: Adjudant-Major; 9. C5633/SC2939, NDAGIJIMANA: Adjudant; 10. C5689/SC3209, NZISABIRA: Premier Sergent Major; 11. 69317/SC2969, NAKUMURYANGO Premier Sergent Major; 12. 74670/SC0292 IRAMBONA: Adjudant Major.
