@@ -1,0 +1,5 @@
+# Article 28 3
+
+Limites de détention des participations et responsabilités des actionnaires de référence et des actionnaires qualifiés Aucune personne physique ou morale ne peut détenir, directement ou indirectement, une participation supérieure à vingt-cinq pour cent (25 %) des droits de vote d’une institution de microfinance de première catégorie.
+
+Les personnes ayant qualité de personnes liées ou personnes apparentées telles que définies à l’article 2 doivent être considérées comme une seule personne dans l’application de la limite de participation prévue dans l’alinéa précédent. Un actionnaire ou un groupe d’actionnaires de référence doit être désigné au sein de chaque institution de microfinance de première catégorie. Les actionnaires de référence et les actionnaires qualifiés s’engagent vis-à-vis de la Banque Centrale à participer à la détermination de l’organisation efficace de l’institution et à sa bonne gestion suivant la déclaration d’honneur reprise à l’annexe de la circulaire y relative.

@@ -1,0 +1,5 @@
+# Article 5 6
+
+Devoirs de l’Assemblée Générale des actionnaires Les actionnaires ont le devoir d’exercer solidairement leur autorité suprême à travers l’Assemblée Générale.
+
+Les actionnaires ont la responsabilité de : - désigner, en leur sein, l’actionnaire ou le groupe d’actionnaires de référence ; - s’assurer de la mise en place des critères objectifs de la composition du Conseil d’Administration et de l’évaluation de ses membres en vue de leur remplacement le cas échéant ; - s’assurer de la mise en place d’une procédure claire et rigoureuse pour identifier et sélectionner les candidats Administrateurs ; - s’assurer que seules les personnes intègres et ayant des compétences diversifiées sont élues ou nommées au Conseil d’Administration ; - s’assurer que le Conseil d’Administration a mis en place une gouvernance efficiente et efficace ; - s’assurer que le Conseil d’Administration a pris des dispositions nécessaires pour se conformer aux textes légaux et réglementaires ; - s’assurer que la conception et le fonctionnement du système de rémunération de l’établissement de crédit offre des motivations appropriées alignées sur une prise de risque prudente.

@@ -1,0 +1,3 @@
+# Article 14 5
+
+Interdiction de cumul de fonctions pour les Dirigeants et les membres des organes de gestion Nul ne peut simultanément : diriger deux institutions de microfinance ; diriger une institution de microfinance et une autre entreprise ; diriger une institution de microfinance et être membre des organes de gestion dans une autre institution de microfinance; être membre des organes de gestion dans deux institutions de microfinance. 1723 BOB N°8/2018 CHAPITRE IV DE L’OCTROI D’AGREMENT, DU CHANGEMENT DES CONDITIONS INITIALES D’AGREMENT, DE LA TRANSFORMATION INSTITUTIONNELLE ET DU RETRAIT D’AGREMENT

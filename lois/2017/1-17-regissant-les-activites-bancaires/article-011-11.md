@@ -1,0 +1,5 @@
+# Article 11 11
+
+Elaboration et mise à jour des manuels de procédures Tout institution de microfinance, Structure Faitière et Organe Financier élabore et tient à jour un manuel de procédures relatif à ses différentes activités quotidiennes. Ce document doit notamment décrire les modalités d’enregistrement, de traitement et de restitution de l’information, les schémas comptables et les procédures d’engagement des opérations. Il établit, dans les mêmes conditions, une documentation qui précise les moyens destinés à assurer le bon fonctionnement du contrôle interne, notamment : -les différents niveaux de responsabilité ; -les attributions dévolues et les moyens affectés au fonctionnement du contrôle interne ; -les procédures relatives à la sécurité des systèmes d’information et de communication ; -une description des systèmes de mesure des risques.
+
+La documentation est organisée de façon à pouvoir être mise à la disposition de leur demandeur, du Conseil d’Administration, des Dirigeants, du Commissaire aux Comptes ou de l’Auditeur externe et de la Banque Centrale.

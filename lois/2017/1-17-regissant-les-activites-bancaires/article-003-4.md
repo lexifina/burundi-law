@@ -1,0 +1,3 @@
+# Article 3 4
+
+Limite de la position de change nette globale La position de change nette globale (longue ou courte) d’une banque est limitée à 25 % de ses fonds propres de base. Dans le cas d’une position de change nette globale longue, tout dépassement par rapport à la limite de 25 % des fonds propres de base, constaté à la clôture d’une journée, doit être cédé sur le marché de devises ou à défaut, à la Banque Centrale le jour ouvrable suivant. Dans le cas d’une position de change nette globale courte, tout déficit par rapport à la limite de 25 % des fonds propres de base, constaté à la clôture d’une journée, doit être comblé par l’achat de devises sur le marché de devises deux jours ouvrables suivants. 1655 BOB N°8/2018

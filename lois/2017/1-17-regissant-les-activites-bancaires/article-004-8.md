@@ -1,0 +1,3 @@
+# Article 4 8
+
+Octroi des crédits Les institutions de microfinance sont autorisées à effectuer des opérations de crédit. Constitue une opération de crédit, tout acte par lequel une institution de microfinance met ou promet de mettre, à titre onéreux, des fonds à la disposition d’un tiers à charge de ce dernier de les rembourser à l’échéance convenue ou prend, dans l’intérêt de celui-ci, un engagement par signature tel un aval, une caution ou une autre garantie. 1721 BOB N°8/2018 Toutefois, les opérations de crédits effectuées d’une manière électronique, en partenariat avec les établissements de paiement fournissant des plateformes de transfert de fonds ou d’instruments de paiement, doivent être préalablement autorisées par la Banque Centrale.

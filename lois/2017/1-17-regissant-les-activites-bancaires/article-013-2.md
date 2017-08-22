@@ -1,0 +1,3 @@
+# Article 13 2
+
+Documents requis pour l’ouverture d’un bureau de représentation Le dossier de demande d’agrément d’un bureau de représentation d’un établissement de crédit étranger comprend les éléments suivants : - adresse du siège social ; - lettre originale de l'Autorité de supervision du pays d'origine autorisant la création du bureau de représentation au Burundi ; - copie certifiée de la licence valide de l’établissement de crédit étranger pour mener des opérations bancaires telle que délivrée par l'Autorité de supervision du pays d'origine; - rapports annuels, y compris le compte de profits et pertes et le bilan de l’établissement de crédit étranger pour les trois (3) dernières années.

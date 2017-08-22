@@ -1,0 +1,3 @@
+# Article 5 17
+
+Obligations d’alerter Les Commissaires aux comptes ont l’obligation d’alerter, sans délai, la Banque Centrale dès qu’ils constatent, à l’occasion de l’exercice de leur mission, tout fait : -de nature à influencer de manière significative la situation de l’institution de microfinance sur le plan financier ou sous l’angle de son organisation administrative et comptable ainsi que de son contrôle interne ; -qui est de nature à compromettre la continuité de l’exploitation de l’institution de microfinance ; -qui est de nature à entraîner le refus ou de réserves graves en matière de certification des comptes ; -qui peut entraîner une violation des lois et règlements de nature à mettre en cause gravement la responsabilité de l’institution ou de ses dirigeants.

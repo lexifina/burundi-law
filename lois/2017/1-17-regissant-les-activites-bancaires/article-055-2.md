@@ -1,0 +1,3 @@
+# Article 55 2
+
+Assemblée Générale ordinaire L’Assemblée Générale ordinaire est notamment compétente pour :s’assurer de la bonne administration et du bon fonctionnement de l’institution ;élire et révoquer les membres des organes de gestion ;nommer le Commissaire aux comptes et/ou l'Auditeur externe ;approuver les états financiers de l’exercice et statuer sur l’affectation des excédents annuels ;adopter le rapport d’activités de l’exercice écoulé ;fixer la rémunération des Administrateurs et des membres du Conseil de Surveillance au moyen de jetons de présence ou émoluments; traiter de toute autre question relative à l’organisation et au fonctionnement de l’institution; L’Assemblée Générale ordinaire se réunit au moins une fois l’an.

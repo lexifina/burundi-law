@@ -1,0 +1,3 @@
+# Article 117
+
+Adhésion à un fonds de garantie des dépôts et de résolution Les institutions de microfinance recevant les dépôts adhèrent et contribuent à un mécanisme de garantie des dépôts et de résolution destiné à indemniser les membres ou la clientèle en cas d’indisponibilité de leurs dépôts ou autres fonds remboursables ou à secourir une institution en difficultés. L’indisponibilité des fonds est constatée par la Banque Centrale lorsqu’il s’avère qu’une institution n’est plus en mesure de restituer, immédiatement ou à court terme, les fonds qu’elle a reçus des membres ou du public conformément aux conditions contractuelles. Ne sont pas concernés par ce mécanisme les dépôts couverts par la garantie de l’Etat. La garantie est formalisée par écrit.

@@ -1,0 +1,7 @@
+# Article 12
+
+Contenu du rapport du Commissaire aux comptes Le rapport du Commissaire aux comptes doit faire ressortir une opinion sur les états financiers en certifiant expressément leur régularité et leur sincérité dans leur totalité. Il doit comporter deux parties :
+
+a. La première faisant ressortir un commentaire portant notamment sur les aspects suivants : - le respect des normes et du plan comptables applicables aux établissements de crédit ; - la situation du bilan et du compte d’exploitation ; - la variation des capitaux propres ; - le tableau des flux de trésorerie ; - l’évolution de la liquidité et de la solvabilité ; - la qualité des actifs et les provisions ; - la division des risques notamment la concentration des créances et des dépôts ; - les créances ou toute autre transaction faite à des conditions privilégiées notamment avec les personnes liées et/ou apparentées ; - l’adéquation des ressources aux emplois ; - la situation des créances radiées et les recouvrements y relatifs ; - les garanties afférentes aux engagements ; - les engagements hors bilan.
+
+b. Dans la deuxième partie de son rapport, le Commissaire aux comptes doit donner un avis motivé sur la qualité du système de contrôle interne, la qualité du système d’information et comptable, la qualité de gestion des risques encourus par l’établissement de crédit (risques de crédit, de liquidité, de marché, de gouvernance, opérationnel, etc), le suivi des recommandations issues des audits internes et externes ainsi que le respect des dispositions légales et réglementaires.

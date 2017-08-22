@@ -1,0 +1,5 @@
+# Article 29 2
+
+Plan de financement d'urgence L’établissement de crédit doit mettre en place un plan de financement d'urgence qui doit couvrir toutes les situations de crise anticipées et permettre une gestion adéquate d'une crise de liquidité quelles que soient leur durée et leur sévérité. Un plan de financement d’urgence doit être clairement formulé et correctement documenté, et expliciter la stratégie de l'établissement pour remédier à une pénurie de liquidité dans une série de scénarii de tensions sans recours au soutien du prêteur de dernier ressort. Ce plan de financement d'urgence définit clairement la chaîne des responsabilités ; établit des procédures précises pour activer ces politiques ; alerte le niveau hiérarchique supérieur et est régulièrement testé et mis à jour, pour garantir qu’il demeure pleinement opérationnel.
+
+Les plans d’urgence doivent définir notamment les sources de liquidité supplémentaires accessibles pour l’établissement de crédit et les modalités de communication au public et d’information immédiate à la BRB en cas de crise de liquidité.

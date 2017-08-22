@@ -1,0 +1,5 @@
+# Article 8 9
+
+Transformation d’une institution de microfinance ayant la forme juridique d’une coopérative en société anonyme Une institution de microfinance ayant la forme juridique d’une coopérative, en partenariat avec des investisseurs, peut se transformer en une institution de microfinance ayant la forme juridique d’une société anonyme dans laquelle chaque actionnaire intéressé va souscrire des actions ou des parts sociales conformément aux dispositions règlementaires en vigueur.
+
+La coopérative d’épargne et de crédit qui souhaite se transformer en une société anonyme est tenue de procéder d’abord à sa propre dissolution suivie d’une liquidation. Cette liquidation s’effectue conformément aux dispositions de la loi n° 1/17 du 22 août 2017 régissant les activités bancaires. Nonobstant, les actifs acquis sur base des subventions de l’Etat ou de ses partenaires techniques et financiers ne font pas objet de partage et sont remis à l’Etat via le Ministère ayant les finances dans ses attributions.

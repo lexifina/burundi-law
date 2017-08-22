@@ -1,0 +1,3 @@
+# Article 123
+
+Objectifs de l’association professionnelle L’association professionnelle poursuit notamment les objectifs ci-après : assurer la promotion et la défense des intérêts de ses membres; favoriser la coopération entre ses membres; contribuer à la formation de ses membres; organiser et assurer la gestion des services d’intérêt en faveur de ses membres; informer le public sur ses activités ou les initiatives prises ou entreprises dans le cadre de sa mission; inciter ses membres au respect de la déontologie, de la réglementation applicable aux institutions de microfinance et de procédures de protection des consommateurs des services financiers.

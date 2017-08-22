@@ -1,0 +1,3 @@
+# Article 11 6
+
+Interdiction de dénomination, de publicité ou autres faits prêtant à confusion Il est interdit à toute entité autre qu'une institution de microfinance, d'utiliser une dénomination sociale, une publicité ou, de façon générale, des expressions faisant croire qu'elle est agréée en tant qu’institution de microfinance ou de créer une confusion à ce sujet. Nul ne peut utiliser les expressions "entreprise de microfinance", "institution de microfinance", "établissement de microfinance", "microfinance", "programme de microcrédit", "microcrédit", "caisse d'épargne et de crédit", "coopérative d'épargne et de crédit", "mutuelle d'épargne et de crédit" ou des expressions similaires en relation avec ses activités sans l'autorisation préalable de la Banque Centrale.

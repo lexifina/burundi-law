@@ -1,0 +1,3 @@
+# Article 3 7
+
+Rôle du Conseil d'Administration Le Conseil d'Administration d'un établissement de crédit fixe le degré d'acceptation du risque que l’établissement de crédit est prêt à assumer ou tolérer et approuve formellement les stratégies de gestion des risques. Il évalue régulièrement le programme de simulations de crise et s'assure qu'il tient compte des sources de risques significatifs et adopte des scénarios de crise qui sont plausibles. Les résultats de ce programme doivent être intégrés dans les processus de prise de décision et de gestion des risques (y compris les dispositions d'urgence), ainsi que dans l'évaluation de ses niveaux de fonds propres et de liquidité.

@@ -1,0 +1,7 @@
+# Article 6 7
+
+Fonction de gestion des risques L'établissement de crédit doit disposer d'une fonction de gestion des risques couvrant tous les risques significatifs et dotée d'un niveau suffisant de ressources, d'indépendance et d'autorité. Ainsi, chaque établissement doit préparer un Programme de Gestion des Risques (PGR) adapté à ses besoins et des circonstances dans lesquelles elle exerce ses activités.
+
+La fonction de gestion des risques doit être clairement séparée des fonctions liées à la prise de risque au sein de l'établissement de crédit et elle doit rendre directement compte des expositions au risque à la Direction Générale avec copie au Comité de gestion des risques. Le Responsable de la fonction de gestion des risques peut, à son initiative ou à la demande du Comité de gestion des risques, directement lui rendre compte.
+
+Le Programme de Gestion des Risques (PGR) doit contenir des processus efficaces permettant à la fonction de gestion des risques à : - identifier les risques actuels et émergents ; - développer des systèmes d'évaluation et de mesure des risques ; - établir des politiques, des pratiques et d'autres mécanismes de contrôle pour gérer les risques ; - développer des limites de tolérance au risque chiffrées, risque par risque et en assurer le suivi ; - programmer des scénarios de crise, adaptés à leur profil de risque et à leur importance systémique ; - présenter les résultats de la surveillance des risques à la Direction Générale et au Conseil d'Administration. 1691 BOB N°8/2018

@@ -1,0 +1,3 @@
+# Article 108
+
+Interdiction d’octroi des crédits aux débiteurs défaillants Aucune institution de microfinance ne peut consentir du crédit à une personne ou un groupe de personne liées ou apparentées qui accuse un retard d’au moins six (06) mois, dans le remboursement d’un crédit antérieur contracté auprès des établissements assujettis à la loi régissant les activités bancaires . Toute institution de microfinance qui accorde un crédit à un débiteur défaillant est tenue de racheter ou de s’engager formellement à garantir le remboursement de tous les engagements de celui-ci envers les établissements assujettis à la loi régissant les activités bancaires pour autant que ces crédits soient couverts par des garanties solides.

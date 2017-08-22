@@ -1,0 +1,3 @@
+# Article 11 5
+
+Procédures d'identification des risques de crédit L’établissement de crédit doit disposer des procédures prudentes de sélection des risques de crédit et d'un système de mesure des risques lui permettant notamment de : - identifier de manière centralisée ses risques de bilan et de hors bilan à l'égard d'une contrepartie ou des contreparties considérées comme un même bénéficiaire ; - appréhender les différents niveaux de risque de crédit à partir d'informations qualitatives et quantitatives ; - appréhender et de contrôler le risque de concentration au moyen des procédures documentées ; - vérifier l'adéquation de la diversification des engagements à sa politique en matière de crédit.

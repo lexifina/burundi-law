@@ -1,0 +1,3 @@
+# Article 7 4
+
+Limites des dépôts et placements en devises Toute banque est autorisée à faire des dépôts et/ou des placements, en tout temps, auprès d’une banque ou institution financière étrangère ayant : - une notation variant de AAA à AA-, d’un montant maximum se limitant à 50 % des fonds propres de base. Cette limite équivaut également pour les dépôts et placements auprès de la maison mère ; - une notation variant de A+ à BBB-, d’un montant maximum se limitant à 30 % des fonds propres de base ; - une notation variant de BB+ à BB-, ou celle n’ayant pas de notation, d’un montant maximum se limitant à 20 % des fonds propres de base ; - une notation de B-, d’un montant maximum se limitant à 10 % des fonds propres de base.

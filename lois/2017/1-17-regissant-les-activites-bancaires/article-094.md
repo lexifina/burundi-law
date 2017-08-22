@@ -1,0 +1,3 @@
+# Article 94
+
+Pouvoirs de contrôle et de sanction La Banque Centrale est chargée de contrôler le respect des dispositions légales et réglementaires qui sont applicables aux institutions de microfinance et de sanctionner les manquements y relatifs. Elle examine les conditions d'exploitation de celles-ci et veille à la qualité de leurs activités, à la sauvegarde des intérêts des déposants, à l’équilibre de leurs situations financières ainsi qu’au respect des règles de bonne conduite et d’éthique de la profession. A cet effet, elle organise des réunions avec les responsables et les Commissaires aux comptes de ces institutions.

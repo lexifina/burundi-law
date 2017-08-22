@@ -1,0 +1,5 @@
+# Article 9 10
+
+Ratio de limitation des prêts aux membres des organes de gestion et au personnel de l’institution de microfinance Les prêts et engagements par signature aux membres des organes de gestion et au personnel d’une institution de microfinance ne peuvent excéder 20% des fonds propres de base sans dépasser2% des fonds propres de base pour les contreparties individuelles. Numérateur : Montant brut des prêts et engagements par signature aux membres des organes de gestion et au personnel (A) Dénominateur : Fonds propres de base (B) Eléments inclus : -le capital social souscrit libéré ; -les primes liées au capital ; -les réserves légales, statutaires, facultatives et autres ; -le report à nouveau créditeur ; -le résultat en instance d’affectation à hauteur de 50%. Viennent en déduction : -les immobilisations incorporelles nettes ;
+
+- le report à nouveau débiteur ; -le résultat négatif ; -les participations à plus d’un an détenues dans les Institutions de microfinance, les Établissements de Crédit ou autres institutions financières. Ratio = A/B La norme à respecter est de 20% au maximum

@@ -1,0 +1,3 @@
+# Article 41
+
+Suivi et contrôle du risque de taux d'intérêt L’établissement de crédit doit mettre en place des mécanismes adéquats de suivi du risque de taux d'intérêt lui permettant de s'assurer : - du respect de la mise en œuvre des stratégies, des politiques et procédures de gestion du risque de taux d'intérêt ; - de la qualité de ces stratégies, politiques et procédures par d'éventuelles mises à jour ; - du respect des limites fixées aux expositions au risque de taux d'intérêt ; - de la mise en œuvre du processus d'identification du risque de taux d'intérêt ; - de la mise en œuvre du processus d'analyse et de mesure du risque de taux d'intérêt ; - de l'adéquation de leurs fonds propres internes au regard de leur profil de risque de taux d'intérêt ;

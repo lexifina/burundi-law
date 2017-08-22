@@ -1,0 +1,3 @@
+# Article 60 2
+
+Missions du Conseil de Surveillance Le Conseil de Surveillance est chargé du contrôle de la gestion et de la régularité des opérations de la coopérative d’épargne et de crédit. A cet effet, il est habilité à entreprendre toute vérification ou inspection des comptes, des livres et des opérations de l’institution. Dans l’exercice de sa mission, il a accès à toute pièce et tout renseignement qu’il juge utile. En cas de besoin, le Conseil de Surveillance peut se faire assister par une personne externe à l’institution et ayant une expertise avérée en contrôle, audit et surveillance des institutions financières.

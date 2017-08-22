@@ -1,0 +1,3 @@
+# Article 7 11
+
+Déclaration de prise de participation ou de fonctions exercées par les Administrateurs, les membres du Conseil de Surveillance et les Dirigeants dans d’autres sociétés Les Administrateurs, les membres du Conseil de Surveillance et les Dirigeants doivent déclarer à tout moment les sociétés dans lesquelles ils disposent d’actions et/ou exercent des fonctions de Dirigeants, Administrateurs, Gérants de société ou Commissaires aux Comptes. Après vérification, les institutions de microfinance, les Structures Faîtières et Organes Financiers transmettent, à leur tour, ces informations à la Banque Centrale conformément au format préconisé à l’annexe I de la présente circulaire.

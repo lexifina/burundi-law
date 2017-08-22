@@ -1,0 +1,3 @@
+# Article 8 15
+
+Sanctions Les Commissaires aux comptes exercent leur contrôle suivant les normes généralement admises dans la profession. En cas de manquements, la Banque Centrale peut leur appliquer les sanctions suivantes sans préjudice d’autres poursuites disciplinaires ou pénales : 1789 BOB N°8/2018 -avertissement ; -interdiction de poursuivre les opérations de contrôle de l’institution de microfinance ; -interdiction de remplir les fonctions de commissariat aux comptes des institutions de microfinance pour une durée de trois (03) exercices au moins ; -interdiction définitive d’exercer en cette qualité dans les institutions de microfinance, les établissements de crédit, les établissements de paiements et des bureaux de change.

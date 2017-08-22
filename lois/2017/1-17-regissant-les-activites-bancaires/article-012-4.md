@@ -1,0 +1,7 @@
+# Article 12 4
+
+Procédures d'octroi de crédit L’établissement de crédit doit s'assurer que le processus d'octroi de crédit est organisé avec des procédures internes écrites précisant les critères d'appréciation du risque de crédit ainsi que la définition des attributions des personnes et des organes habilités à engager l'établissement. Ces critères doivent être adaptés aux caractéristiques de l'établissement, en particulier à sa taille, à la nature et à la complexité de ses activités.
+
+Les procédures d'octroi de crédit doivent couvrir les différents aspects des activités d'octroi de crédit notamment la constitution du dossier, l'analyse de la demande, l'approbation du dossier, le décaissement, la surveillance et le recouvrement du crédit ainsi que les opérations administratives qui en résultent. Elles doivent comporter des limites de prêt prudentes et appropriées, correspondant au degré d'acceptation du risque, au profil de risque et à l'assise financière de l’établissement, qui soient comprises par le personnel concerné et qui lui soient régulièrement communiquées. L’établissement de crédit doit mettre en place des procédures d'approbation de l'extension, du renouvellement et de la restructuration des crédits. Il doit prévoir que les expositions dépassant un certain montant ou pourcentage des fonds propres, relèvent d'une décision du Conseil d'Administration ou de la Direction Générale.
+
+La même règle est applicable aux expositions particulièrement risquées ou qui sortent du cadre habituel des activités de l'établissement de crédit.

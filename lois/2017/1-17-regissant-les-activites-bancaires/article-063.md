@@ -1,0 +1,3 @@
+# Article 63
+
+Suivi et contrôle du risque stratégique L’établissement de crédit doit mettre en place des mécanismes de suivi et de contrôle du risque stratégique lui permettant notamment : - d'identifier les tendances adverses et évaluer en juste proportion le niveau de risque auquel l'établissement est confronté ; - d’évaluer que les plans d'affaires et les plans stratégiques sont appropriés et réalisables ; - de s’assurer que les rapports de contrôle et les autres formes de communication sont bien structurés pour contrôler le risque stratégique et la conformité avec les objectifs et les limites établies et permettent une comparaison entre la performance actuelle et celle attendue. 1703 BOB N°8/2018 Section 8 Risque de non-conformité

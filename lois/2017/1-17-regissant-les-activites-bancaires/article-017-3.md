@@ -1,0 +1,5 @@
+# Article 17 3
+
+Désignation des Administrateurs Tout établissement de crédit doit mettre en place une procédure formalisée et transparente de sélection et de nomination des Administrateurs. Cette procédure doit être compatible avec les dispositions de la présente circulaire et celles de la circulaire relative à l’agrément des Dirigeants et Administrateurs des établissements de crédit.
+
+La procédure de désignation des Administrateurs doit être formelle, transparente et incorporer les aspects suivants: - la composition du Conseil d’Administration et de ses Comités spécialisés; - le niveau de formation, la qualification et l'expérience professionnelle; - la durée du mandat et la limite d'âge des Administrateurs ; - les raisons de cessation (révocation, démission,…) de la fonction d’administrateur ; - toute autre information pertinente. L'établissement de crédit doit immédiatement informer la Banque Centrale lorsqu’un membre du Bureau du Conseil d’Administration cesse ses fonctions ainsi que les raisons du départ. L’Etat est représenté au Bureau du Conseil d’Administration dans tout établissement de crédit où il est actionnaire. 1681 BOB N°8/2018

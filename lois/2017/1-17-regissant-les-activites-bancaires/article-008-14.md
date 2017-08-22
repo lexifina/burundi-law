@@ -1,0 +1,5 @@
+# Article 8 14
+
+Classification des créances En fonction du nombre de jours de retard dans le remboursement des créances, les institutions de microfinance doivent distinguer les catégories de créances suivantes : -Créances saines ou courantes, créances n’ayant aucune échéance en retard de paiement ; -Créances à surveiller, créances comportant une échéance en retard de paiement d’au plus 29 jours ; -Créances pré-douteuses, créances comportant au moins une échéance en retard de paiement depuis au moins 30 jours ; -Créances douteuses, créances comportant au moins une échéance en retard de paiement depuis au moins 90 jours ; -Créances contentieuses, créances comportant au moins une échéance en retard de paiement depuis au moins 180 jours ; -Créances compromises, créances comportant au moins une échéance en retard de paiement depuis au moins un an.
+
+Les créances pré-douteuses, douteuses, contentieuses et compromises sont globalement appelées « créances impayées » ou « crédits en souffrance ».

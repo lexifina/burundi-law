@@ -1,0 +1,3 @@
+# Article 5
+
+Retrait d’agrément d’un Dirigeant ou d’un Administrateur Dans le cas où l'agrément d’un Dirigeant ou d'un Administrateur d'un établissement de crédit aurait été obtenu sur base d’informations fausses ou mensongères, ou si les conditions initiales d’agrément ne sont plus vérifiées, la Banque Centrale procédera immédiatement au retrait d’agrément, sans préjudice des sanctions prévues par les autres textes législatifs et réglementaires. L’agrément est également retiré à toute personne ayant commis de fautes lourdes de mauvaise gestion qui a causé un grand préjudice à une institution encore en activité et prouvé à postériori.

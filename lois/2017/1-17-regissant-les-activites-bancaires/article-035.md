@@ -1,0 +1,3 @@
+# Article 35
+
+Suivi du risque de change La banque doit mettre en place des mécanismes adéquats de suivi des risques de change lui permettant de s'assurer : - du respect effectif des stratégies, des politiques et des procédures de gestion des risques de change mises en place ; - de la qualité de ces stratégies, politiques et procédures par des éventuelles mises à jour ; - de la mise en œuvre du processus d'identification des risques de change ; - de la mise en œuvre du processus d'analyse et de mesure des risques de change ; - du respect des limites fixées aux expositions aux risques de change ; - de l'adéquation de leurs fonds propres à leur profil de risques de change.

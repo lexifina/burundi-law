@@ -1,0 +1,5 @@
+# Article 9 4
+
+Sanctions aux actionnaires Tout actionnaire ou groupe d'actionnaires qui use de son droit de vote contre l’intérêt de l’établissement de crédit, des déposants ou du secteur bancaire est passible du retrait des droits de siéger et de se faire représenter aux réunions du Conseil d'Administration et de l'Assemblée Générale, ainsi que du retrait du droit de vote attaché à ses parts sociales. En cas de récidive, la Banque Centrale peut retirer à l'actionnaire ou au groupe d'actionnaires en défaut le droit de participation à l'actionnariat du secteur bancaire burundais. Un actionnaire présentant 180 jours et plus d’impayés dans l’établissement de crédit où il est actionnaire perd, jusqu'à l'apurement des arriérés ou à son reclassement dans les créances saines, le droit de : - participer à l'augmentation du capital social ; - siéger et se faire représenter aux réunions et délibérations du Conseil d'Administration et de l'Assemblée Générale ainsi que le droit de vote attaché à ses parts sociales.
+
+Section 2 Conseil d’Administration

@@ -1,0 +1,3 @@
+# Article 2 4
+
+Définitions Au sens de la présente circulaire, on entend par : - devise, une monnaie autre que celle ayant cours légal au Burundi ; - position de change nette, la différence entre les avoirs et les engagements dans une devise, du bilan et du hors bilan d’une banque ; - position de change longue ou position de change ouverte longue, la différence positive entre les avoirs et les engagements dans une devise ; - position de change courte ou position de change ouverte courte, la différence négative entre les avoirs et les engagements dans une devise ; - position de change fermée ou position de change soldée, le volume des avoirs dans une devise est égal à celui des engagements dans la même devise.

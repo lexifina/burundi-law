@@ -1,0 +1,3 @@
+# Article 32 3
+
+Organes de gestion En plus d’une Assemblée Générale, les institutions de microfinance se dotent, au minimum, des organes de gestion ci- après: Pour la première catégorie: le Conseil d’Administration, le Comité de Crédit, le Comité d’Audit et la Direction ; Pour la deuxième catégorie : le Conseil d’Administration et la Direction. Les fonds de garantie et/ou de refinancement exerçant, partiellement ou totalement, les activités de microfinance créés sous l’initiative du Gouvernement ou conjointement avec ses bailleurs doivent se doter d’un Comité de Gestion; Pour la troisième catégorie: le Conseil d’Administration, le Comité de Crédit, le Conseil de Surveillance et la Gérance ; Pour la quatrième catégorie: le Comité de Gestion.

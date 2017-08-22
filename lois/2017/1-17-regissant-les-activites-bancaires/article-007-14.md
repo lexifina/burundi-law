@@ -1,0 +1,5 @@
+# Article 7 14
+
+Limitation des risques auxquels est exposée une institution Les risques auxquels est exposée une institution de microfinance, à l’exclusion des risques pris sur ressources affectées qui incombent au bailleur de fonds, ne peuvent excéder la double des ressource interne et externe. Numérateur : risques portés par une institution (A) *Les crédits à l’économie pour leur montant brut; *Avances et prêts au personnel et aux membres des organes de gestion ; *Les titres de participation ; *Les engagements donnés par signature. Sont déduits de ces risques, les dépôts de garantie, les risques pris sur ressources affectées qui incombent au bailleur de fonds et les engagements reçus par signature d’une institution de microfinance pour une durée au moins égale à celle des risques qu’elle couvre. Dénominateur : ressources (B)
+
+Les ressources sont constituées comme ci-après : *Total des dépôts des membres ou clients ; *Emprunts auprès des institutions financières; *Subventions reçues non encore utilisées; *Ressources affectées. Ratio = A/B La norme à respecter est de 200% maximum

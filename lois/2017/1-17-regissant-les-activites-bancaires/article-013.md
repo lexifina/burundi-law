@@ -1,0 +1,3 @@
+# Article 13
+
+Délai de transmission du rapport à la Banque Centrale Le Commissaire aux comptes doit transmettre au Gouverneur de la Banque Centrale, une copie du rapport couvrant le premier semestre de l’exercice en cours, au plus tard deux mois après la date d’arrêté. Il doit également transmettre au Gouverneur de la Banque Centrale, un mois avant la tenue de l’Assemblée Générale Ordinaire, une copie du rapport couvrant tout l’exercice comptable relatif à l’année précédente. Tout retard dans la transmission du rapport par le Commissaire aux comptes est passible de sanctions prévues par la circulaire relative à la matrice des sanctions.

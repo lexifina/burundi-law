@@ -1,0 +1,5 @@
+# Article 66
+
+Rôle du Conseil d'Administration Il incombe au Conseil d'Administration de : - arrêter les principes de base de la politique de conformité auxquels l'établissement doit adhérer dans l'exercice de ses activités ; - veiller à la mise en place, par la Direction Générale, d'une fonction Conformité et promouvoir une attitude positive à l'égard de la conformité ; - s'assurer de l’application de ses décisions par la Direction Générale de telle sorte que les politiques et procédures soient dûment mises en œuvre et pleinement intégrées au dispositif global de gestion des risques de 1' établissement ; - approuver la politique et la charte de conformité arrêtées par la Direction Générale ; - évaluer annuellement la gestion du risque de non-conformité par l'établissement et ce, sur base des rapports spécifiques établis par la Direction Générale. Cette mission peut, toutefois, être déléguée au Comité d'Audit ou à un Comité ad hoc de niveau équivalent.
+
+Le Responsable de la fonction « Conformité » peut directement, à son initiative ou à la demande du Conseil d’Administration, lui rendre compte.

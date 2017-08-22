@@ -1,0 +1,3 @@
+# Article 2 16
+
+Définition Au sens de la présente circulaire, on entend par « crédits ou créances » l’ensemble des risques encourus par une institution de microfinance sur une contrepartie (personne physique ou morale) sous forme : -de crédits par décaissement quels qu’en soient la nature, la forme et le terme ; -d’engagement par signature donnés de manière irrévocable (tels que caution, avals, engagements de financement irrévocables, etc.) ; -de titres de créances émis par la contrepartie et souscrits par l’institution de microfinance lorsque ces derniers sont classés en perte et créances ou actifs disponibles à la vente ; -de crédit-bail.

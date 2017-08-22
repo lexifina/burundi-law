@@ -1,0 +1,3 @@
+# Article 47 2
+
+Respect des principes mutualistes Les coopératives d’épargne et de crédit sont tenues de respecter les règles d’action mutualiste ou coopérative suivantes: l’adhésion des membres est libre et volontaire; le nombre de membres n’est pas limité; chaque membre souscrit et libère au moins une part sociale; le droit de vote est égal pour tous les membres quel que soit le nombre de parts sociales détenues; l’éducation coopérative des membres. Dans le respect des principes coopératifs, au moins dix pour cent (10 %) des excédents nets sont destinés à la réalisation des actions sociales pour la communauté et dix pour cent (10 %) à l’éducation/formation coopérative des membres.

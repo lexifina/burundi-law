@@ -1,0 +1,3 @@
+# Article 50
+
+Mesure du risque opérationnel L’établissement de crédit doit analyser et évaluer périodiquement les différentes défaillances observées dans ses activités au regard du risque opérationnel. Il doit se doter de dispositifs de mesure du risque opérationnel qui prévoient au moins les éléments suivants : - le niveau acceptable et les procédures de contrôle du risque ; - les responsabilités et les systèmes de communication à tous les niveaux de gestion ; - l'information sur des événements significatifs et des pertes résultant du risque opérationnel ; - le contrôle et l'atténuation du risque opérationnel ; - les conditions dans lesquelles ce risque peut être transféré à une entité externe.

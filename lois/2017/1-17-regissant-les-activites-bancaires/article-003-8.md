@@ -1,0 +1,7 @@
+# Article 3 8
+
+Collecte des dépôts Les institutions de microfinance de première et de troisième catégorie sont autorisées à collecter respectivement les dépôts de leur clientèle et de leurs membres. Sont considérés comme dépôts, les fonds autres que les actions, les parts sociales et les cotisations obligatoires recueillies par l'institution auprès de ses membres ou de ses clients, matérialisés ou non par des titres, avec le droit d'en disposer dans le cadre de son activité, mais à charge pour elle de les restituer à la demande du déposant.
+
+Les institutions de microfinance de deuxième catégorie ne sont pas autorisées à collecter les dépôts. Pour ces institutions, ne sont pas considérés comme dépôts, les fonds ci-après : les fonds de garantie, également appelés « épargne obligatoire », « épargne nantissement » ou « épargne forcée », mobilisés auprès des membres, clients ou bénéficiaires pour servir de collatéral vis-à-vis d’un crédit les sommes laissées par la clientèle, les bénéficiaires ou les membres en vue d’honorer ses engagements; les lignes de crédits des bailleurs externes et les emprunts.
+
+Les fonds de garantie recueillis par les institutions de microfinance de deuxième et quatrième catégories doivent être placés dans une institution autorisée à collecter les dépôts jusqu’au moment, soit de leur rétrocession aux bénéficiaires concernés, soit de leur saisie en cas de non remboursement.

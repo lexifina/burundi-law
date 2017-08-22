@@ -1,0 +1,3 @@
+# Article 59
+
+Contenu du plan stratégique Un plan stratégique doit au moins contenir les éléments suivants : - l'analyse de l'environnement externe dans lequel l'établissement de crédit opère ; - l'examen critique de la performance institutionnelle, y compris l'analyse des forces, des faiblesses, des opportunités et des menaces ; - les buts et objectifs stratégiques de l'établissement de crédit ; - la description du système de gestion des risques de l'établissement de crédit ; - la mission et les objectifs opérationnels pour chacune des unités de l'établissement de crédit ; - la projection quantitative des états financiers de l'établissement de crédit pour la période planifiée.

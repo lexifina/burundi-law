@@ -1,0 +1,3 @@
+# Article 7 6
+
+Intégrité et honorabilité des actionnaires Les actionnaires d’un établissement de crédit doivent être en ordre avec la loi régissant les activités bancaires et ses textes d'application, la réglementation de change et autres lois et règlements régissant le secteur financier, sous peine de se voir appliquer les sanctions prévues par ces lois et règlements ainsi que celles contenues dans la présente circulaire et dans la circulaire relative à la matrice des sanctions. L’intégrité et honorabilité reconnues aux actionnaires lors de l'agrément de l’établissement de crédit ou de l’augmentation du capital doit subsister durant toute la vie de l'établissement de crédit.

@@ -1,0 +1,3 @@
+# Article 8 6
+
+Prise en compte global des risques Les stratégies, politiques et procédures de gestion des risques de l’établissement de crédit doivent être cohérentes et intégrées dans le dispositif global de gestion des risques de l’établissement de crédit. Il doit effectuer des simulations de crise tenant compte d’au moins deux risques pris simultanément et mesurer leur impact global sur les résultats et les fonds propres. Il doit également veiller à ce qu’un contrôle périodique soit exercé sur la validité et la cohérence des paramètres et des hypothèses retenus pour l’évaluation de chaque risque.

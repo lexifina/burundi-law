@@ -1,0 +1,3 @@
+# Article 6 4
+
+Restriction sur les dépôts et placements en devises Les banques sont autorisées à effectuer des dépôts et/ou des placements en devises dans des institutions financières étrangères dans les limites fixées à l’article 7 de la présente circulaire. Ces limites sont déterminées en fonction de la notation externe de l’institution financière étrangère attestant sa qualité de risque de crédit. La notation acceptable par la Banque Centrale est celle octroyée à l’institution financière par les agences de notation de renommé internationale telles que Fitch, Standard & Poors et Moody’s ou toute autre agence de notation reconnue par la Banque Centrale.

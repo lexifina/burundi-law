@@ -1,0 +1,3 @@
+# Article 17 4
+
+Approbation par le Conseil d'Administration des transactions avec les personnes apparentées Les transactions avec des personnes apparentées sont soumises à l'approbation préalable du Conseil d'Administration de l'établissement de crédit lorsqu'elles dépassent des limites, fixées par ce Conseil, ou comportent des risques particuliers définis par lui. Ces limites ne doivent pas dépasser celles fixées par la circulaire relative à la division des risques. Il en est de même pour abandon de créance sur les personnes apparentées. Les membres du Conseil d'Administration en conflit d'intérêts sont exclus du processus d'approbation.

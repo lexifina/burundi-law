@@ -1,0 +1,3 @@
+# Article 26 2
+
+Dispositif de suivi et de contrôle du risque de liquidité L’établissement de crédit doit mettre en place un dispositif adéquat de suivi du risque de liquidité lui permettant de s'assurer : - du respect de la mise en œuvre des stratégies, des politiques et procédures de gestion du risque de liquidité ; - de la qualité de ces stratégies, politiques et procédures par d'éventuelles mises à jour ; - de la détermination de la manière et du délai endéans lequel il doit réagir à la dégradation, ou au non-respect des limites qu’il s’est lui-même fixées pour la gestion du risque de liquidité.

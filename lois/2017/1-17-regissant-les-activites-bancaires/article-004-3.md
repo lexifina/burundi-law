@@ -1,0 +1,3 @@
+# Article 4 3
+
+Soutien aux clients défaillants L'établissement de crédit auprès duquel le client n'a pas pu honorer ses engagements peut continuer à le soutenir dans le but de faciliter le remboursement, notamment en procédant à un octroi d’un autre crédit ou à un rééchelonnement ou une restructuration du crédit tel que prévu par la circulaire n° 12/2018 relative à la classification des risques et à la constitution des provisions des établissements de crédit . Un autre établissement de crédit qui, de bonne foi, accepte de soutenir le client défaillant est tenu de racheter, ou de s'engager formellement à garantir le remboursement de tous les engagements de ce client envers le secteur bancaire pour autant que ces crédits soient couverts par des garanties solides.

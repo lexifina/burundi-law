@@ -1,0 +1,3 @@
+# Article 34 2
+
+Surveillance du respect des limites La banque doit mettre en place, pour ses différentes activités et pour son portefeuille, des limites en matière de risque de change. La banque doit préciser le niveau acceptable pour le risque encouru, en distinguant les limites globales en termes de fonds propres et les limites opérationnelles, par activité, par produit et par devise. Elle doit également mettre en place des procédures pour la surveillance du respect de ces limites, ainsi que des procédures relatives aux dépassements éventuels, à leur autorisation et aux mesures prises pour les régulariser.
