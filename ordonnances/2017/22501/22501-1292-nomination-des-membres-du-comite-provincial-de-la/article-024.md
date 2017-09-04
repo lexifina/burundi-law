@@ -1,0 +1,3 @@
+# Article 24
+
+Sont exclus d’office les apprenants suivants: - Sections sciences et langues: un apprenant ayant quatre échecs et plus dans les disciplines essentielles; - Sections économique, sciences sociales et humaines: un apprenant ayant cinq échecs et plus dans les disciplines essentielles; - Section pédagogique, 1ère et 2ème années: un apprenant ayant cinq échecs et plus dans les disciplines théoriques; - Section pédagogique, 3ème et 4ème années: un apprenant ayant cinq échecs et plus dans les disciplines pratiques; - Toutes les sections: un apprenant ayant un échec en conduite. 2.3. Les apprenants admis aux examens de repêchage Enseignement post-fondamental général et pédagogique Sections sciences et langues Apprenants ayant un à trois échecs

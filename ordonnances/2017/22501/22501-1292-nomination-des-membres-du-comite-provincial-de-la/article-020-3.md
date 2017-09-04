@@ -1,0 +1,3 @@
+# Article 20 3
+
+Le conseil de Direction a pour missions de: - Définir les grandes orientations de l’établissement en matière de formation et de gestion; - Etablir une planification et les programmes d’activités en indiquant les priorités; - Examiner la gestion des fonds et du patrimoine du Centre et faire les propositions de nature à améliorer ladite gestion; - Epauler la direction dans la prise de toute décision importante; - Examiner les problèmes de soins de santé et de salubrité; - Donner les avis sur la maintenance des équipements et des infrastructures; - Se prononcer sur toute question lui soumise par la direction du Centre.

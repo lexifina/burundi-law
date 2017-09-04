@@ -1,0 +1,3 @@
+# Article 14 2
+
+Au cours d’un palier, l’évaluation prend les formes ci-après: - l’interrogation écrite ou orale, annoncée ou non aux apprenants et donnant lieu à une note; - le devoir donné en guise d’application de la matière enseignée. Il n’est noté que s’il reflète un travail personnel de l’apprenant; - les travaux pratiques qui sont notés pour les disciplines y donnant lieu. Toutefois, le contrôle systématique des cahiers de notes au moins deux fois par palier, qui ne donne pas lieu à une note chiffrée, est exigé pour remédier aux erreurs ou aux lacunes constatées dans les cahiers de notes des apprenants.

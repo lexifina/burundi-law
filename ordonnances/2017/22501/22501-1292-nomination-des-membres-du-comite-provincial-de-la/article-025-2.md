@@ -1,0 +1,3 @@
+# Article 25 2
+
+Pour les disciplines faisant l’objet d’examen: - le coefficient de pondération est égal au volume horaire hebdomadaire des disciplines; - la note des travaux journaliers pondérée est égale à 15 multiplié par le coefficient de pondération; - la note d’examen pondéré est égale à 15 multipliée par le coefficient de pondération; - en ce qui concerne les examens, l’évaluation des ressources par palier est pondérée à 80% dans les 1ère années, 60% dans les 2èmes années et 40% dans les 3èmes et 4èmes années. - La note d’évaluation des compétences par palier, pondérée à 20% en 1ères années, 40% en 2èmes années et 60% en 3èmes et 4èmes années est déduite du total de la note d’examen.

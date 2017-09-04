@@ -1,0 +1,3 @@
+# Article 10 4
+
+Dans le domaine pédagogique et en collaboration avec le Directeur Technique, le Directeur du Centre est chargé de: - Organiser les activités pédagogiques du Centre sous toutes leurs formes; - Veiller à l’application rigoureuse des programmes, des modules et de la grille-horaire; - Animer et coordonner l’action pédagogique des formateurs; - En collaboration avec le conseil pédagogique, décider des admissions, des exclusions et des redoublements; - Présider les jurys de délibération; - Mener une réflexion approfondie sur les stratégies à adopter en vue des meilleures performances en matière de formation; - Prendre toute mesure qui s’impose pour assurer aux apprenants une bonne formation et une bonne éducation civique par une discipline sans faille.

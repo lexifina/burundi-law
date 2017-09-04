@@ -1,0 +1,3 @@
+# Article 9 4
+
+Dans le domaine administratif, le Directeur est chargé notamment de: - Veiller à l’application des lois et règlements régissant la formation ainsi que des instructions émanant du Ministère de tutelle; - Etablir les rapports et les programmes d’activité; - Gérer le personnel du Centre; - Opérer la notation du personnel; - Assurer toute l’administration du Centre et traiter toutes les correspondances adressées au Centre; - Veiller à l’authenticité des attestations, des certificats et diplômes décernés par le Centre, le sceau dont il est dépositaire faisant foi; - Veiller à l’ordre et la sécurité au sein du Centre; - Veiller à la propreté et à la salubrité du Centre.

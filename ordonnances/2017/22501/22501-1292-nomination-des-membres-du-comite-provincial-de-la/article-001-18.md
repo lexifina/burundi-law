@@ -1,0 +1,3 @@
+# Article 1 18
+
+La section « INFORMATIQUE DE GESTION » des écoles suivantes est agréée et délivre, à l’issue de la formation y dispensée, le diplôme de niveau A2. Il s’agit de: 1. Lycée Technique Saint Luc 2. Ecole Iwacu Kazoza Secondary School 3. Centre Scolaire Multidisciplinaire 4. Lycée Polytechnique du Moment 5. Lycée Technique de la Promotion de Bubanza 6. Lycée Saint Henri 7. Ecole La Boussole 8. Ecole Technique d’Administration et de Gestion 9. Ecole la Mignone 10. Lycée Technique d’Alliance 11. Lycée Technique ERNIDE 12. Lycée Africain 13. Lycée Technique de la Plaine 14. Lycée Technique de Gahombo
