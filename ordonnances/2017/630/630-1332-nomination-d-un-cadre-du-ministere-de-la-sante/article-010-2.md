@@ -1,0 +1,3 @@
+# Article 10 2
+
+Le fonctionnement du Comité Technique et des Sous- Commissions Techniques est organisé comme suit: - un chronogramme des activités des Sous-Commissions Techniques est élaboré par ces dernières en collaboration avec le Comité Technique; - la Sous-Commission Technique travaille, chacune en ce qui la concerne en équipe sur une thématique tout en respectant le chronogramme des activités; - le Comité Technique ou la Sous-Commission Technique peut, le cas échéant, organiser des retraites en lieux et places qui lui permettent d’améliorer ses performances dans la réalisation de ses missions.

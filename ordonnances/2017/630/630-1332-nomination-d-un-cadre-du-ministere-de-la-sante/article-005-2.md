@@ -1,0 +1,3 @@
+# Article 5 2
+
+Le Secrétariat Technique a pour missions de: - collecter et faire la synthèse des rapports des Sous-Commissions Techniques; - produire un rapport pour chaque thématique et le présenter au Comité Technique pour validation; - noter les recommandations et les intégrer dans le rapport hebdomadaire de chaque Sous-Commission Technique avant la rédaction du rapport de la thématique; - rédiger le compte rendu sur l’état d’avancement des travaux des Sous-Commissions Techniques et le transmettre au Président du Comité Technique en concertation avec les Présidents des Sous-Commissions Techniques; - collecter les rapports des Sous-Commissions Techniques et élaborer le rapport consolidé des thématiques.
