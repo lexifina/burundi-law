@@ -1,0 +1,3 @@
+# Article 1
+
+Il est accordé une prolongation de carrière pour une année aux Brigadiers de la Police Nationale ayant atteint la limite d’âge de service dont les grades, noms, prénoms et matricules sont repris dans le tableau ci-après: Série Grade Nom Prénom A. Matricule N. Matricule 1 BPC1 RUGEMAMPUNZI Léonard 214343 BPN0481 2 BPC1 RUMBETE Tharcisse 212454 BPN0367 3 BPC1 NKEZABAHIZI Jean Marie 213798 BPN0427 4 BPC1 NIMPAGARITSE Epitace C2656 BPN0861 5 BPC1 NDAYIZEYE Jean Marie C2692 BPN0886 6 BPC1 MANIRAKIZA Gaspard C2951 BPN0975 7 BPC1 MINANI Jean Charles C3001 BPN0980 8 BPC1 NAHIMANA Emmanuel B15016 BPNl142 9 BPC1 NDIKUNKIKO Omar B1105 BPN0641 10 BPC1 HAKIZIMANA Jean Marie B139l9 BPN1097 11 BPC1 NDIKURIYO Gérard 214320 BPN0517 12 BPC1 NIYONZIMA Godeliève 213808 BPN0452
