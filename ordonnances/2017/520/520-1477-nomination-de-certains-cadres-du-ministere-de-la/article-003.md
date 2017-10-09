@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés Inspecteurs Techniques à l’Inspection Générale du Ministère de la Défense Nationale et des Anciens Combattants:  Chargé des Transports Colonel Léonidas SINDARUSIBA, SS0340 de la matricule  Chargé de l’Administration et du Personnel Colonel Floribert NYAMWERO, SS0277 de la matricule  Chargé de l’Armement, Minutions et matériels Optiques Colonel Félix NIYONGABO, SS0242 de la matricule  Chargé du Moral et des Relations Publiques Colonel Alimasi NCENGETERE, SS0344 de la matricule  Chargé de la Planification Colonel Angélo NTIBIGARURA, SS0301 de la matricule  Chargé du Droit International Humanitaire Colonel Cyriaque SINDAYIHEBURA, SS0332 de la matricule

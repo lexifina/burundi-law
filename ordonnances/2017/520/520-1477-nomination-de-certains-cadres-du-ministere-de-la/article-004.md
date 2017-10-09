@@ -1,0 +1,3 @@
+# Article 4
+
+Sont nommés Adjoints Principaux des Directions aux Directions Générales du Ministère de la Défense Nationale et des Anciens Combattants:  Direction des Transports à la Direction Générale des Approvisionnements et de la Gestion Colonel Juvénal HARUSHIMANA, SS0343 de la matricule  Direction de l’Encadrement et de la Mobilisation à la Direction Générale des Anciens Combattants Colonel Ezéchiel NIJEMBAZI, SS0415 de la matricule  Direction de la Planification à la Direction Générale de la Planification et des Etudes Stratégiques Lieutenant-colonel Térence HAKIZIMANA, SS0533 de la matricule  Direction de l’Administration du Personnel à la Direction Générale des Ressources Humaines Colonel Ildephonse HAKIZIMANA, SS0349 de la matricule

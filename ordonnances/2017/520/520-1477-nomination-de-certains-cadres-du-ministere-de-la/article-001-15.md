@@ -1,0 +1,3 @@
+# Article 1 15
+
+La section « Pédagogique » est ouverte dans les Etablissements d’Enseignement Secondaire Public ci - après: - Lycée Communal Mpanda en Commune Mpanda; - Lycée Communal Murwi en Commune Murwi; - Lycée Cibitoke en Commune Rugombo; - Lycée Communal Bitare en Commune Bugendana; - Lycée Communal Urbain Gitega en Commune Gitega; - Lycée Communal Gihamagara en Commune Itaba; - Lycée Communal Masango en Commune Mutaho; - Lycée Communal Nyarusange en Commune Nyarusange; - Lycée Communal Rweza en Commune Gisozi; - Lycée Communal Rusaka en Commune Rusaka; - Lycée Communal Gashikanwa en Commune Gashikanwa; - Lycée Communal Mbizi en Commune Buyengero; - Lycée Communal Buruhukiro en Commune Rumonge; - Lycée Communal Butare en Commune Bukemba.
