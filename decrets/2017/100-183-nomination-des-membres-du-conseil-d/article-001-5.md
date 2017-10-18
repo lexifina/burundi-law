@@ -1,0 +1,3 @@
+# Article 1 5
+
+L’ouverture de la Filière Agri-élevage dans certains Centres d’Enseignement des Métiers dans la Province de CIBITOKE: 1. Commune BUGANDA Centre d’Enseignement des Métiers de NYAMITANGA Centre d’Enseignement des Métiers de CUNYU 2. Commune BUKINANYANA Centre d’Enseignement des Métiers de RYAHODARI 3. Commune MABAYI Centre d’Enseignement des Métiers de MABAYI 4. Commune MUGINA Centre d’Enseignement des Métiers de RUGENDO 5. Commune MURWI Centre d’Enseignement des Métiers de MURWI Centre d’Enseignement des Métiers de RWESERO 6. Commune RUGOMBO Centre d’Enseignement des Métiers de KARURAMA Centre d’Enseignement des Métiers de RUVUMERA
