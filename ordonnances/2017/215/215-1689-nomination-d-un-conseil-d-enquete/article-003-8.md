@@ -1,0 +1,3 @@
+# Article 3 8
+
+-Assurer la gestion et le suivi régulier des Ecoles d’Excellence; - Proposer les budgets pour un bon fonctionnement des Ecoles d’Excellence; - Vérifier l’état des lieux des infrastructures scolaires, équipements, laboratoire, bibliothèques; - Identifier les besoins quotidiens urgents à combler dans les Ecoles d’Excellence; - Organiser la sensibilisation des partenaires et de la communauté; - Veiller à l’organisation des tests et concours de niveau des élèves et de recrutement du personnel administratif et enseignant nécessaire dans les Ecoles d’Excellence; - Servir de plate-forme de collaboration en matière de l’amélioration des performances des Ecoles d’Excellence.

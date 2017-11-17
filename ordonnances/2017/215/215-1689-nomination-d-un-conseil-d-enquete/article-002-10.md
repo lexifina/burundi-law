@@ -1,0 +1,3 @@
+# Article 2 10
+
+Le comité paritaire bipartite de dialogue social dans une branche d’activité économique a pour mission de : - Animer le dialogue social dans la branche concernée - Prévenir et gérer les conflits sociaux collectifs de la branche concernée - Promouvoir une culture de dialogue et de négociation dans le respect mutuel des partenaires sociaux dans la branche concernée - Renforcer les capacités des partenaires Sociaux en matière de dialogue et de négociation collective dans la branche concernée - Servir d’intermédiaire entre le CNDS et la branche concernée Chapitre II Composition et fonctionnement du comité de dialogue social dans une branche d’activité économique

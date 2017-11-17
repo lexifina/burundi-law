@@ -1,0 +1,17 @@
+# Article 3 15
+
+La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 27/11/2017 Dr Janvière NDIRAHISHA (sé). MINISTERIELLE N°610/1714 DU 27/11/2017 PORTANT NOMINATION D’UN DIRECTEUR D’ETABLISSEMENT D’ENSEIGNEMENT FONDAMENTAL ET POST-FONDAMENTAL, SOUS CONVENTION AVEC L’EGLISE ADVENTISTE DU SEPTIEME JOUR, EN DIRECTION PROVINCIALE DE L’ENSEIGNEMENT DE MUYINGA Le Ministre de l’Education, de l’Enseignement Supérieur et de la Recherche Scientifique, Vu la loi n°1/010 du portant promulgation de la Constitution de la République du Burundi;
+
+Vu le Décret n°100/057 du 27 mai 2000 portant création des Directions Provinciales de l’Enseignement;
+
+Vu le Décret n°100/29 du 18 Septembre 2015 portant révision du Décret n°100/125 du 19 avril 2012 portant Structure, Fonctionnement et Missions du Gouvernement de la République du Burundi;
+
+Vu le décret n°100/38 du 16 Février 2016 portant missions, organisation et fonctionnement du Ministère de l’Education, de l’Enseignement Supérieur et de la Recherche Scientifique;
+
+Vu la Convention scolaire signée entre l’Etat et l’Eglise Adventiste du septième jour; Sur proposition du Conseil Provincial de l’Enseignement de MUYINGA;
+
+Vu le dossier administratif de l’intéressé;
+
+Ordonne
