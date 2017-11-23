@@ -1,0 +1,3 @@
+# Article 42
+
+Toute personne désirant exporter des végétaux, produits végétaux et/ou articles réglementés s’adresse à l’Organisation Nationale de la Protection des Végétaux pour obtenir un certificat phytosanitaire conforme au modèle fixé par la Convention Internationale pour la Protection des Végétaux et aux exigences du pays importateur. Il incombe à l’exportateur de s’assurer que l’état sanitaire des végétaux, produits végétaux et/ou autres articles réglementés à exporter et le certificat d’accompagnement répondent aux exigences du pays importateur. Les procédures de demande de certificat phytosanitaire sont fixées par ordonnance ministérielle.

@@ -1,0 +1,3 @@
+# Article 21
+
+Des listes d’organismes nuisibles des végétaux et les conditions particulières de lutte qui s’y rapportent sont mises à jour et publiées par le Ministre ayant l’Agriculture dans ses attributions. Il s’assure de leur diffusion la plus large auprès des intéressés et de la population. L’Organisation Nationale de la Protection des Végétaux établit la liste des organismes nuisibles réglementés. Elle peut ajouter à cette liste tout autre organisme nuisible contre lequel les professionnels du domaine agricole représentant plus de 50% de la production dans la région concernée, se sont engagés dans un programme de lutte. Ledit programme est alors étendu à tous les autres professionnels de la région.
