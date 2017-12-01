@@ -1,0 +1,3 @@
+# Article 1 3
+
+Est nommé: Inspecteur Conseiller à l’IPEFPF BUBANZA: DCE BUBANZA: Monsieur BAKUNDUKIZE Jean Bosco, matricule 16 117 154; DCE GIHANGA: Monsieur MBUZEHOSE Jean Pierre, matricule 18 730 494; DCE MPANDA: Monsieur BIZIMANA Jean Claude, matricule 15644 177; DCE MUSIGATI: Monsieur NDAYISABA Emmanuel, matricule 20 630 987; DCE RUGAZI: Monsieur NIYONZIMA Gilbert, matricule 1517635. Est nommé Inspecteur Pédagogique des Mathématiques à l’IPEFPF BUBANZA: Monsieur KAYOBERA Vincent, matricule 17 950 454. Est nommé Préfet des études au Lycée Communal BUBANZA: Monsieur YAMUREMYE Léonard, matricule 17 965410. Est nommé Préfet des études au Lycée Communal MUYEBE: Monsieur NDAYISENGA Célestin, matricule 21 270076.
