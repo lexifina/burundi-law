@@ -1,0 +1,3 @@
+# Article 28
+
+Les dépenses de la Maison de la culture comprennent notamment: - toute dépense de fonctionnement ou d’investissement nécessaire à la réalisation de ses missions; - les rémunérations du personnel ainsi que les charges sociales et fiscales y afférentes; - les frais d’acquisition, de location et d’entretien des biens meubles et immeubles ainsi que le renouvellement de l’équipement technique nécessaire à la réalisation de ses missions; - les remboursements des emprunts; - les amortissements; - les engagements extraordinaires approuvés par le Conseil d’administration et autorisés par le Ministre ayant les finances dans ses attributions.

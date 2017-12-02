@@ -1,0 +1,3 @@
+# Article 23
+
+Le service de l’académie rundi a pour missions: - La protection et la promotion de la langue et de la culture rundi; - Le suivi de la mise en œuvre de la politique linguistique nationale; - La promotion de l’usage du kirundi au Burundi et dans la diaspora; - La codification des normes et des valeurs de la langue et de la culture rundi; - L’animation de toutes les activités en rapport avec l’enseignement et la recherche sur le kirundi ainsi que la création des œuvres linguistiques, artisanales et culturelles; - La collaboration avec d’autres institutions locales, régionales ou internationales poursuivant les mêmes objectifs. Paragraphe 2 Le service de la mémoire

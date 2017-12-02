@@ -1,0 +1,3 @@
+# Article 25
+
+Le service de formation aux métiers d’art a pour mission de : - développer et enseigner les anciens métiers d’art en vue de stimuler la créativité artistique des jeunes; - former les jeunes à l’entrepreneuriat culturel; - créer un centre national de promotion du tambour et de mise en œuvre de la stratégie nationale de promotion de la danse emblématique « umurisho w’ingoma »; PDF Compressor Free Version - former et encadrer un ballet national par la catégorisation et la régionalisation de la danse traditionnelle; - former les jeunes à l’art musical et à la fabrication d’instruments traditionnels. Paragraphe 4 Le service administratif et financier
