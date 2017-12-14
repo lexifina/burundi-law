@@ -1,0 +1,3 @@
+# Article 5
+
+Les termes « Etablissements Pénitentiaires » ont le sens de prisons. Celles-ci sont destinées à recevoir et à héberger les personnes condamnées et celles en détention préventive. Elles sont conçues de manière à atteindre les objectifs de la politique pénitentiaire. Ne sont donc pas des établissements pénitentiaires tous les autres endroits, notamment les Centres de Rééducation des Mineurs en conflit avec la loi qui sont destinés à accueillir les mineurs en rétention et en détention et visant la réinsertion sociale du mineur ainsi que les cachots aménagés dans les enceintes des corps de police ou des communes, lesquels n’accueillent que des personnes astreintes à y séjourner sous le régime de la garde à vue.

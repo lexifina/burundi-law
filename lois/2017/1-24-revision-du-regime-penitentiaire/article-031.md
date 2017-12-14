@@ -1,0 +1,3 @@
+# Article 31
+
+Le Ministre ayant les affaires pénitentiaires dans ses attributions et celui ayant la Santé Publique dans ses attributions précisent dans une ordonnance conjointe la composition de la ration alimentaire. En plus de la ration servie dans la prison, les détenus peuvent recevoir de l’extérieur des vivres et des boissons non alcoolisées. La vente et la consommation des boissons alcoolisées à l’intérieure des établissements pénitentiaires sont strictement interdites. Les détenus affectés aux travaux lourds reçoivent un supplément nutritionnel. Il peut en être de même pour les détenus vulnérables. Une commission de suivi de gestion des stocks appui la direction lors des mouvements d’entrées et sorties. B. De l’hygiène, de la santé et de l’habillement
