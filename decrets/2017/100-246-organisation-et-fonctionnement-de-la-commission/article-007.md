@@ -1,0 +1,3 @@
+# Article 7
+
+Lors de leur entrée en fonction, les membres de la Commission Electorale Nationale Indépendante prêtent solennellement serment devant le Président de la République, l’Assemblée Nationale et le Sénat dans les termes suivants : « Devant le Président de la République, devant le Parlement, investis du mandat du Peuple Burundais, seul détenteur de la souveraineté nationale, moi ... (énoncer les noms et prénoms), je jure fidélité à la Charte de l’Unité Nationale, à la Constitution ainsi qu’à la Loi et m’engage à organiser les élections en toute indépendance, avec probité, impartialité et un sens aigu de patriotisme ».
