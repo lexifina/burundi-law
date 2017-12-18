@@ -1,0 +1,3 @@
+# Article 2
+
+Par la formation diplômante, telle que définie dans l’article 18 du Décret n°100/66 du 18 mars 2014 portant Réorganisation et Fonctionnement de l’Ecole Nationale d’Administration, on distingue 4 paliers de formation à savoir: - Le palier A qui concerne les candidats ayant au moins un diplôme des humanités ou équivalent et qui débouche sur un titre professionnel; - Le palier B qui s’adresse aux candidats ayant obtenu le diplôme d’Etat ou un diplôme jugé équivalent et qui donne droit au diplôme de bachelier; - Le palier C qui concerne les étudiants qui ont le diplôme de bachelier et qui donne droit au diplôme de master; - Le palier D qui concerne les étudiants ayant un diplôme de master et qui donne droit au diplôme de doctorat.
