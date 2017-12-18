@@ -1,0 +1,3 @@
+# Article 2
+
+Le Chef de Poste Frontière exerce les missions suivantes: - Contrôler et réglementer le mouvement des personnes et des biens aux postes frontières et à arrêt unique; - Enregistrer les passagers et élaborer les statistiques sur le mouvement transfrontalier; - Maintenir l’ordre et la sécurité aux postes frontières; - Participer à la lutte contre la fraude et le trafic illicite de toute nature; - Appliquer les lois relatives au contrôle aux frontières; - Participer à la lutte contre le terrorisme; - Délivrer le visa de transit; - Rechercher le renseignement; - Surveiller et protéger les infrastructures; PDF Compressor Free Version - Assurer la gestion du patrimoine sous sa disponibilité.

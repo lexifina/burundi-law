@@ -1,0 +1,3 @@
+# Article 1
+
+Il est créé de nouveaux postes frontières dans les Commissariats communaux ci-après: 1. Commissariat communal de MUHUTA: Poste Frontière de GITAZA. 2. Commissariat Communal de MABAYI: Poste Frontière de MABAYI. 3. Commissariat Communal de BUGANDA: Poste frontière de BUGANDA 4. Commissariat Communal de BUBANZA: Poste Frontière de KARWEMA. 5. Commissariat Communal de BUGA-RAMA: Poste Frontière de MAGARA 6. Commissariat Communal de GIHARO: Poste Frontière de NGOMANTE 7. Commissariat Communal de KINYINYA: Poste Frontière de KABANGA 8. Commissariat Communal de NYAMU-RENZA: Poste Frontière de BIRAMBI 9. Commissariat Communal de BUGABIRA: Poste Frontière de KIRI 10. Commissariat Communal de GITERANYI: Poste Frontière de RUMANDARI
