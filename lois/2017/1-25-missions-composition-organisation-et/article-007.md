@@ -1,0 +1,3 @@
+# Article 7
+
+L’Observatoire National est composé comme suit: - deux résidants ou ressortissants de chaque province, provenant de communautés ethniques différentes; - trois personnes issues du groupe ethnique Twa; - des représentants des confessions religieuses; - des représentants de tous les partis politiques ou coalitions siégeant au Parlement; - des représentants des partis politiques de l’opposition extra-parlementaire; - un représentant du Forum des Femmes; PDF Compressor Free Version - un représentant du Comité National de la Jeunesse; - un représentant de la société civile Les membres de l’Observatoire National sont nommés par le Président de la République pour un mandat de trois ans renouvelable une fois.
