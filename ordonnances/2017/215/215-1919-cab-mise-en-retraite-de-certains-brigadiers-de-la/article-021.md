@@ -1,0 +1,3 @@
+# Article 21
+
+Le Comité de Gestion a pour mission de: - exécuter les décisions de l’Organe Représentatif; - assurer la gestion courante des comptes de la caisse; - produire un rapport trimestriel sur la gestion de la caisse; PDF Compressor Free Version - placer les cotisations dans les institutions bancaires qui génèrent le plus grand taux d’intérêt; - initier et proposer des projets générateurs de revenus pour rentabiliser et pérenniser la caisse; - proposer l’actualisation des objectifs de la caisse en fonction de la situation évolutive du moment; - recevoir, analyser et décider de l’opportunité d’assister un membre dans les limites prévues par la présente ordonnance.

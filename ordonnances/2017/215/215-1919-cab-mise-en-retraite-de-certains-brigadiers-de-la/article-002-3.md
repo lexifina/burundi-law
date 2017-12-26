@@ -1,0 +1,5 @@
+# Article 2 3
+
+La Caisse Sociale de Solidarité a pour objectifs de: - apporter une assistance aux membres du personnel du Ministère de la Sécurité Publique atteints du VIH/SIDA et d’autres maladies incurables non supportées entièrement par la Mutuelle de la Fonction Publique; - contribuer à la prévention de la propagation du VIH/SIDA et d’autres maladies incurables au sein du personnel du Ministère de la Sécurité Publique, notamment par des campagnes de sensibilisation, de dépistage volontaire du VIH/SIDA et le counseling pré et post-test; - améliorer la prise en charge psycho-sociale, thérapeutique et nutritionnelle des séropositifs et des sidéens, en collaboration avec tous les autres partenaires poursuivant les mêmes objectifs, surtout par la disponibilisation des antirétroviraux; - porter assistance au membre de la caisse ayant bénéficié d’un transfert à l’extérieur du Pays; - assister les membres du Ministère de la Sécurité Publique victimes des sinistres naturels et handicaps sévères.
+
+Chapitre III De l’assistance et son mode d’opération Section 1 De l’assistance aux personnes atteintes du VIH/SIDA

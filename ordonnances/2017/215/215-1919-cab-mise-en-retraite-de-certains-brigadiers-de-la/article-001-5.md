@@ -1,0 +1,3 @@
+# Article 1 5
+
+Est nommé: - Conseiller chargé des Finances et des infrastructures à la DCE RUMONGE: Monsieur SABUNOGERA Prosper, matricule 12 487 637 - Directeur du L. Co. MUSAVE: Monsieur NDIKURIYO Jonathan, Matricule, 20 851 158 - Préfet des Etudes au L. Co. KIVOGA: Monsieur BANYANKIMBONA Marius, Matricule, 21 240 064 - Préfet des Etudes du L. Co. KWISHWI: Monsieur HAYAGIMANA Ferdinand, Matricule, 15 738 349 - Préfet des Etudes du L. Co. Urbain de RUMONGE: HARERIMANA Eraste, Matricule. 17 976 423 - Préfet des Etudes du L. Co. KAYANGE: Monsieur CUBWA Modeste, Matricule, 21 121 150 - Préfet des Etudes du L. Co. RUDIDA: Monsieur NSABIMANA Evariste, Matricule, 18181739 - Préfet des Etudes du L. Co. NKIZI: Monsieur SABIMBONA Léopold, Matricule, 20 681 511
