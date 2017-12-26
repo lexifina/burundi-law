@@ -1,0 +1,3 @@
+# Article 1
+
+Il est mis en retraite au 31 décembre 2017 les Membres du Personnel d’Appui du Ministère de la Sécurité Publique ayant atteint la limite d’âge PDF Compressor Free Version de service dont les noms, prénoms et matricules sont repris dans le tableau ci-après: Série Nom Prénoms Matricule 1 BASITA Moussa 037 2 BIRAKERA Dénise 208643 3 NIYONZIMA Marie 155939 4 NSABIMANA Salvator 15939 5 HARERIMANA Janvier 159130 6 NIYONTUNTU Christine 206347 7 SINZOBAKWIRA Firmin 208831 8 MASABARAKIZA Oscar 326 9 NZIBAVUGA Sylvestre 73956 10 BAHEBUYE Tharcisse 77117 11 NTAWUMENYA Pascal TC0281 12 BUHINJA Athanase TC0908 13 BANKEKA Astère TC1189 14 BWAYOYA Gérard TC1239 15 MBONINYIBUKA Gaspard TC1278
