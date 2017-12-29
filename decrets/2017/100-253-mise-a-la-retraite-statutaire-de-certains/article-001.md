@@ -1,0 +1,3 @@
+# Article 1
+
+Les Officiers dont les noms et matricules suivent sont mis à la retraite statutaire à la date du 31 décembre 2017: Matricule Grade Nom et Prénoms Date de naissance SS 0026 Général de Brigade BARENDEGERE Vénérand 1956 SS 0052 Général de Brigade SABUSHIMIKE Gabriel 1956 SS 0093 Colonel NDAYIMIRIJE Agricole 1961 SS 0102 Colonel BANDENZAMASO Léonidas 1961 SS 0126 Colonel KARERWA Cassien 1961 SS 0170 Colonel RUSUGURU Tharcisse 1961 SS 0111 Colonel TWAGIRAYEZU Calixte 1961 SS 0175 Colonel BAYISABE Juvénal 1961 SS 0178 Colonel BIGIRIMANA Jean 1961 SS 0179 Colonel SINDAYIHEBURA Jean Baptiste 1961 SS 0203 Colonel BIGABARI Gabriel 1961 SS 0303 Colonel BUDIGOMA Joseph 1961 SS 0330 Colonel MPAWENAYO Serge 1961 SS 0299 Colonel MUNYANKINDI Viator 1962
