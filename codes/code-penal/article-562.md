@@ -1,15 +1,5 @@
 # Article 562
 
-Pour ce qui est des infractions d'attentat à la pu-deur et du viol, le juge prononce, en plus de la peine principale, au moins l'une des peines com-plémentaires suivantes :
+Est puni d'un an a cinq ans de servitude penale et d'une amende de cinquante mille a deux cents mille francs bunmdais quiconque a attente aux mceurs en excitant, facilitant ou favorisant, pour satisfaire les passions d'autrui, la debauche, la corruption, la prostitution de personnes de l'un ou l'autre sexe a.gees ou apparemment agees de plus de vingt et un ans.
 
-1° La publication de la condamnation ;
-
-2° La présentation du condamné au public ;
-
-3° L'interdiction d'exercer des droits ci-viques, civils et de famille ;
-
-4° L'interdiction de séjour ;
-
-5° Le suivi socio- judiciaire. Si le juge prononce la peine prévue au point 1°, l'identité de la victime n'est ni publiée ni diffusée au public.
-
-Section 4 Du harcèlement sexuel
+La peine est portee de cinq a dix ans, si la personne sur laquelle a porte la debauche, la corruption ou la prostitution est agee ou apparemment agee de moins de vingt et un ans. L'age de la victime peut etre determine par examen medical a defaut d'etat civil.

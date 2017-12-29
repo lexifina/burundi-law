@@ -1,5 +1,3 @@
 # Article 396
 
-Le fait, pour tout conducteur d'un véhicule ou engin terrestre, fluvial ou maritime, sachant qu'il vient de causer ou d'occasionner un accident, de ne pas s'arrêter et de tenter ainsi de s'échapper à la responsabilité pénale ou civile qu'il peut encourir, est puni d'un mois à six mois de servitude pénale et d'une amende de cinquante mille francs à cent mille francs ou d'une de ces peines seulement.
-
-Le retrait temporaire du permis de conduire pour une durée de trois mois à un an ou définitive-ment peut être prononcée à l'endroit du coupable. §5. De l'omission de témoigner en faveur d'un innocent
+Lorsque !'outrage est adresse au Chef de l'Etat, a un parlementaire, un membre du gouvemement, un magistrat, un fonctionnaire ou agent de l'autorite publique ou de la force publique dans l'exercice ou a }'occasion de l'exercice de leurs fonctions, !'auteur est puni de six mois a deux ans de servitude penale et d'une amende de cinquante mille a cent mille francs burundais ou d'une de ces peines seulement. Lorsque !'outrage a lieu lors d'une seance ou d'une reunion publique ou au cours d'une audience d'une Cour ou d'un Tribunal, les peines sont de six mois a trois ans et d'une amende de cinquante mille a deux cent mille francs burundais ou d'une de ces peines seulement.

@@ -1,3 +1,3 @@
 # Article 500
 
-Sont punis d'une amende de vingt mille francs à cinquante mille francs, les débiteurs de boissons ainsi que leurs préposés qui ont donné à boire à des gens manifestement ivres ou qui les ont reçu dans leurs établissements.
+Le fait pour un detenu, de se soustraire a la garde a laquelle i1 est soumis, par violence, menaces, effraction ou corruption est puni d'une servitude penale de deux a cinq ans et d'une amende de cinq mille a vingt mille francs burundais. Si l'infraction prevue a l'alinea precedent est commise par un condamne qui execute une peine de servitude penale a perpetuite, le juge prononce la mesure d'incompressibilite de la sanction en cours d'execution.

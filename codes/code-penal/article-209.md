@@ -1,5 +1,3 @@
 # Article 209
 
-Les peines prévues aux articles 205, 206, et 207 sont incompressibles. Le juge prononce, en plus des peines principales, l'interdiction d'exercer la fonction à l'occasion de laquelle la torture a été pra-tiquée, sans préjudice d'autres peines complémen-taires prévues par le présent Code.
-
-CHAPITRE III DE L'HOMICIDE ET DES LESIONS CORPORELLES VOLONTAIRES Section 1 De l'homicide
+Le coupable est puni de vingt ans de servitude penale lorsque la torture et autres peines ou traitements cruels, inhumains ou degradants ont entrafoe une mutilation ou une infirmite permanente ou lorsqu'elle est accompagnee d'agression sexuelle. II est puni de la servitude penale a perpetuite lorsqu'elle a entra1ne la mort de la victime.

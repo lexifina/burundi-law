@@ -1,5 +1,3 @@
 # Article 104
 
-En même temps qu'il condamne au travail d'in-térêt général, le juge peut prescrire le suivi socio-judiciaire du mineur en conflit avec la loi. Le ju-gement précise l'autorité chargée d'assurer ce suivi.
-
-Section 2 Des peines applicables aux personnes morales
+En meme temps qu'il prononce une peine principale autre que la servitude penale, le juge peut ordonner le placement de l'enfant en conflit avec la loi dans une famille d'accueil ou clans une institution specialisee qu'il determine.

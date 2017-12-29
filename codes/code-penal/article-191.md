@@ -1,3 +1,3 @@
 # Article 191
 
-Mention de l'arrêt prononçant la réhabilitation est faite en marge du jugement de condamnation et au casier judiciaire.
+La Cour est saisie par le Procureur General et se prononce dans les deux mois sur les requisitions de ce dernier, la partie ou son conseil entendu ou dument convoque.

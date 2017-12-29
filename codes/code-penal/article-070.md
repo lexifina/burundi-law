@@ -1,3 +1,3 @@
 # Article 70
 
-L'interdiction d'émettre des chèques emporte pour le condamné injonction de restituer au ban-quier qui les avait délivrés les formules en sa pos-session et en celle de ses mandataires. L'interdiction d'émettre des chèques ne peut ex-céder une durée de cinq ans.
+L'interdiction d'emettre des cheques emporte pour le condamne injonction de restituer au banquier qui les avait delivres les formules en sa possession et en celle de ses mandataires. L'interdiction d'6mettre des cheques ne peut cxceder une duree de cinq ans.

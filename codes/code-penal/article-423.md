@@ -1,3 +1,3 @@
 # Article 423
 
-Est puni d'une servitude pénale de douze ans à quinze ans et d'une amende portée du simple jus-qu'au double de la valeur du profit illicite acquis, tout agent de l'ordre judiciaire, tout Officier du Mi-nistère Public ou de la Police Judiciaire qui reçoit ou accepte de recevoir des offres ou promesses aux fins de faire prendre une décision qui ne devait pas l'être.
+Celui qui a, a dessein, brise ou enleve une marque officielle notamment un scelle, appose pour enfenner ou identifier un objet ou qui en a dejoue l'effet est puni d'une servitude penale de six mois a deux ans et d'une amende de trente mille a cinquante mille francs burundais ou d'une de ces peines seulement.

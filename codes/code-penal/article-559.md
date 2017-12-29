@@ -1,3 +1,3 @@
 # Article 559
 
-Les peines prévues par les dispositions de la présente section sont incompressibles, imprescrip-tibles, inamnistiables et non graciables.
+Quiconque contraint une femme a concevoir et a mener a terme une grossesse est puni de la servitude penale de trois a cinq ans. Est puni des mames peines celui qui force une femme a avorter.

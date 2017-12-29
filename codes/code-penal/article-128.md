@@ -1,3 +1,3 @@
 # Article 128
 
-La libération conditionnelle ne peut intervenir en faveur des personnes condamnées qu'après avoir réparé les dommages causés par l'infraction.
+La condamnation pour crime ou delit assortie du sursis est reputee non avenue si le condamne qui en beneficie n'a pas commis, dans le delai de cinq ans a compter de celle-ci, un crime ou un delit de droit commun suivi d'une nouvelle condamnation sans sursis qui emporte revocation. I TITRE III DE QUELQUES MODALITES D'EXECUTION DE LA PEINE DE SERVITUDE PENALE CHAPITREI DE LA LIBERATION CONDITIONNELLE

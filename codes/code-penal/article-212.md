@@ -1,5 +1,3 @@
 # Article 212
 
-Le meurtre du père, de la mère ou autres ascen-dants légitimes ainsi que le meurtre du père ou de la mère naturelle est qualifié de parricide. Il est pu-ni de servitude pénale à perpétuité. Est également puni de servitude pénale à perpé-tuité le meurtre commis sur ses enfants, frères ou soeurs légitimes ou naturels.
-
-Le meurtre commis par les père et/ou mère légi-times ou naturels sur un enfant nouveau-né est qua-lifié d'infanticide. Il est puni de la servitude pénale à perpétuité.
+Sont qualifies volontaires, l'homicide commis et les lesions causees avec le dessein d'attenter a la personne d'un individu determine ou de celui qui est trouve ou rencontre, quand meme ce dessein serait dependant de quelque circonstance ou de quelque condition et lors meme que l'auteur se serait trompe sur la personne de celui qui a ete victime de l'attentat.

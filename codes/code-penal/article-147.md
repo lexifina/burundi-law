@@ -1,3 +1,5 @@
 # Article 147
 
-La prescription commence à courir le jour où tous les éléments constitutifs de l'infraction sont réunis en cas d'infractions instantanées ; elle court du jour où l'état délictueux a cessé en matière d'in-fractions continues ou continuées.
+Si la plainte a ete deposee par plusieurs victimes a !'occasion de la meme infraction, l'action publique n'est eteinte que si tous les plaignants se sont desistes.
+
+CHAPITRE III DE LA PRESCRIPTION DEL' ACTION PUBLIQUE

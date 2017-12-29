@@ -1,5 +1,7 @@
 # Article 596
 
-Il n'est prononcé aucune peine, pour le fait de sédition, contre ceux qui, ayant fait partie d'une bande armée sans y exercer aucun commandement se sont retirés au premier avertissement des autori-tés civiles ou militaires, ou même depuis, lorsqu'ils n'ont été saisis que hors des lieux de la réunion sé-ditieuse, sans y opposer de résistance et sans armes. Ils ne sont punis dans ce cas, que pour les in-fractions particulières qu'ils auraient personnelle-ment commises.
+Sans prejudice de l'application des articles 37 et 38, sont punies d'une servitude penale d'un an a cinq ans et d'une amende de cinquante mille a cent mille francs burundais : 1 °. L'offre ou la proposition de commettre l'une des infractions prevues aux articles 592 a 593;
 
-Section 5 De la participation à. un mouvement insurrec-tionnel
+2°. L'acceptation de cette offre ou de cette proposition.
+
+Section 2 Des metres atteintes a la s{/,rete exterieure de l'Etat

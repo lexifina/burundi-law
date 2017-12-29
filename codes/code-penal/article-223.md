@@ -1,5 +1,3 @@
 # Article 223
 
-Lorsque les coups portés ou les blessures faites volontairement mais sans intention de donner la mort l'ont pourtant causée, le coupable est puni d'une servitude pénale de cinq à vingt ans et d'une amende de cent mille francs.
-
-Section 3 Des voies de fait
+La servitude penale prevue par les deux precedents articles sera portee au double lorsque les coups et les blessures ont atteint soit un ascendant, soit un conjoint soit un enfant age de moins de dix-huit ans, soit toute personne habitant la meme maison que l'auteur de !'infraction, ou tout autre parent OU allie jusqu'au 4eme degre.

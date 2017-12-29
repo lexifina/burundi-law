@@ -1,7 +1,5 @@
 # Article 615
 
-Constituent également des actes de terrorisme
+Le complot forme dans l'un des buts mentionnes a !'article precedent est puni d'une servitude penale de dix a quinze ans et d'une amende de un million a cinq millions de francs burundais, si quelque acte a ete commis ou commence pour·en preparer !'execution. S'il y a eu proposition faite et non agreee de former un complot pour arriver a l'une des fins mentionnees a !'article 611, celui qui a fait une telle proposition est puni d'une servitude penale de cinq a dix ans et d'une amende de un million a deux millions de francs burundais.
 
-1° Le fait d'introduire dans l'atmosphère, sur le sol, dans le sous-sol ou dans les eaux, des rivières ou du lac et appartenant au territoire du Burundi, une substance de nature à mettre en péril la santé des popu-lations humaines ou des animaux, dans le but de troubler gravement l'ordre public par l'intimidation et la terreur.
-
-2° Le fait de participer à un groupement formé ou à une entente établie en vue de la préparation, caractérisé par un ou plu-sieurs actes matériels, d'un des actes de terrorisme énoncés à l'article 614.
+Section 4 De la participation a des bandes armees

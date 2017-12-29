@@ -1,5 +1,3 @@
 # Article 409
 
-Si l'infraction a été commise par le gardien lui-même ou le fonctionnaire qui a opéré l'apposition, la servitude pénale peut être portée à cinq ans et l'amende à cent mille francs.
-
-TITRE V DES ATTEINTES AUX DROITS GARANTIS AUX PARTICULIERS CHAPITRE I DES ATTEINTES A LA LIBERTE DES CULTES
+Toute menace ou tout acte d'intimidation commis envers un magistrat, un arbitre, un interprete, un expert ou un avocat d'une partie en vue d'influencer son comportement clans l'exercice de ses fonctions est puni de deux a cinq ans de servitude penale et d'une amende de cent mille a cinq cent mille francs burundais.

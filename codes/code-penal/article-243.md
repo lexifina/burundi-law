@@ -1,5 +1,3 @@
 # Article 243
 
-Est puni des peines prévues à l'article 242 le fait d'introduire au Burundi des individus destinés à faire l'objet de la convention précitée, ou de faire sortir des individus du pays en vue de ladite con-vention à contracter à l'étranger. Toutefois, la peine est portée à vingt ans si la personne en ayant fait l'objet, soit à l'intérieur, soit à l'extérieur du Burundi, est un enfant de moins de dix-huit ans.
-
-Section 2 De l'enlèvement
+Celui qui, dans un duel, a donne la mort a son adversaire, est puni d'une servitude penale d'un an a dix ans et d'une amende de cinquante mille a deux cent mille francs burundais. 7 / CHAPITRE VI DES ATTEINTES A LALIBERTE INDIVIDUELLE ET A L'INVIOLABILITE DE LA VIE PRIVEE Section 1 De la traite et du trafic des etres humains § 1 : Des peines principales

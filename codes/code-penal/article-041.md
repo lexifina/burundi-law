@@ -1,9 +1,5 @@
 # Article 41
 
-Sauf dispositions particulières établissant d'autres peines, les coauteurs et complices sont pu-nis ainsi qu'il suit :
+Sauf dispositions particulieres etablissfil!.t d'autres peines, les coauteurs et complices sont punis ainsi qu'il suit : 1 °. Les coauteurs, de la peine etablie par la loi a l'egard des auteurs ;
 
-1°. Les coauteurs, de la peine établie par la loi à l'égard des auteurs ;
-
-2°. Les complices, d'une peine qui ne dépasse pas la moitié de celle qu'ils auraient encou-rue s'ils avaient été eux-mêmes auteurs ;
-
-3°. Lorsque la peine prévue par la loi est la ser-vitude pénale à perpétuité, la peine appli-cable au complice est de vingt ans de servi-tude pénale.
+2°. Les complices, d'une peine qui ne depasse pas la moitie de celle qu'ils auraient encourue s'ils avaient ete eux-memes auteurs ; 3 °. Lorsque la peine prevue par la loi est la servitude penale a perpetuite, la peine applicable au complice est de vingt ans de servitude penale.

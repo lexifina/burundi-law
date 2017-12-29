@@ -1,9 +1,5 @@
 # Article 571
 
-Est coupable de trahison et puni de la servitude pénale à perpétuité, tout Murundi qui, en temps de guerre :
+Constitue un acte de racolage, le fait pour une personne qui se livre A la prostitution d'accoster des clients ou de s'adonner, en public, a des actes de quelque nature que ce soit, en vue d'attirer des clients. Il est puni d'une peine de servitude penale d'un mois a six mois et d'une amende de cinq mille a vingt mille francs burundais ou d'une de ces peines seulement.
 
-1° Livre à une puissance étrangère ou à ses agents, sous quelque forme et par quelque moyen que ce soit, un renseignement, objet, document ou procédé qui doit être tenu se-cret dans l'intérêt de la défense nationale ;
-
-2° S'assure, par quelque moyen que ce soit, la possession d'un tel renseignement, objet, document ou procédé, en vue de le livrer à une puissance étrangère ou à ses agents ;
-
-3° Détruit ou laisse détruire un tel renseigne-ment, objet, document ou procédé en vue de favoriser une puissance étrangère.
+Section 2 De l'attentat a la pudeur

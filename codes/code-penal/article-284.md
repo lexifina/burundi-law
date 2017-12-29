@@ -1,3 +1,7 @@
 # Article 284
 
-Est puni d'une servitude pénale de trois mois à un an et d'une amende de cinquante mille francs à deux cent mille francs, le commerçant déclaré en faillite qui 1. Après cessation de payements, a favorisé un créancier au détriment de la masse ; 2. A, pour ses besoins personnels ou ceux de sa maison, fait des dépenses excessives ; 3. A consommé de fortes sommes au jeu, à des opérations de pur hasard ou des opéra-tions fictives 4. A, dans l'intention de retarder sa faillite, fait des achats pour revendre au dessus du cours ou, dans la même situation, s'est livré à des emprunts, circulations d'effets et autres moyens ruineux de se procurer des fonds.
+Le chantage est le fait d'obtenir, en mena9ant de reveler ou d'imputer des faits de nature a porter atteinte a l'honneur ou a la consideration, soit une· signature, un engagement ou une renonciation, soit la revelation d'un secret, soit la remise de fonds, valeurs ou d'un bien quelconque. 7 Le chantage est puni d'un an a cinq ans de servitude penale et d'une amende de cinquante mille a cent mille francs burundais.
+
+La peine peut etre portee a dix ans lorsque l'auteur a mis sa menace a execution.
+
+Section 6 De la signification des termes employes dans le present titre §1. Du vol commis la nuit

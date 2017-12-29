@@ -1,3 +1,3 @@
 # Article 611
 
-Est exempté de la peine encourue celui qui, avant exécution ou tentative d'une infraction contre la sûreté de l'Etat, en donne le premier connais-sance aux autorités administratives ou judiciaires. L'exemption de la peine est également faculta-tive si la dénonciation intervient après la consom-mation ou la tentative de l'infraction mais avant l'ouverture des poursuites. L'exemption de la peine est également faculta-tive à l'égard du coupable qui, après l'ouverture des poursuites, permet l'arrestation des auteurs et com-plices de la même infraction, ou d'autres infractions de même nature ou de même gravité.
+Quiconque, hors les cas prevus aux articles 613 et 614, a entrepris par quelque moyen que ce soit, de porter atteinte a l'integrite du territoire national, est puni d'une servitude penale de cinq ans a dix ans et d'une amende de un million a trois millions de francs burnndais.

@@ -1,5 +1,3 @@
 # Article 298
 
-Est puni d'une servitude pénale de deux mois à cinq ans et d'une amende de cinquante mille francs à cinq cent mille francs ou d'une de ces peines seu-lement, quiconque a vendu ou donné en gage un même bien meuble ou un droit quelconque à deux ou plusieurs personnes.
-
-Section 5 De l'usure
+Sont punies des peines prevues a !'article precedent, les personnes qui ont suppose des depenses ou des pertes ou n'ont pu justifier de !'existence ou de l'emploi de tout ou partie de l'actif tel qu'il apparait dans les documents et livres comptables a la date de cessation de paiements et de tous biens, de quelque nature que ce soit, obtenus posterieurement.

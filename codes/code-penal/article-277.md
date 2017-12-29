@@ -1,3 +1,5 @@
 # Article 277
 
-Par «violence», la loi entend les actes de con-trainte physique exercée sur les personnes. Par « menace », la loi entend tous les moyens de contrainte morale par la crainte d'un mal imminent. §6. De l'effraction
+Est puni des peines prevues a !'article precedent, le fait pour le saisi, de detruire ou de detoumer un objet saisi entre ses mains en garantie des droits d'un creancier et confie a sa garde ou a celle d'un tiers.
+
+Section 4 De l'extorsion

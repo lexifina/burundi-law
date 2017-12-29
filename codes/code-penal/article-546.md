@@ -1,3 +1,7 @@
 # Article 546
 
-Quiconque donne ou prend sciemment en location, en tout ou en partie, un immeuble ou local quelconque aux fins de la prostitution d'autrui est puni de deux ans à cinq ans de servitude pénale et d'une amende de cinquante mille francs à un mil-lion de francs ou d'une de ces peines seulement.
+Les peines prevues aux articles 542 a 545 de la presente section sont portees au double : I O • Lorsque !'infraction est commise par un ascendant legitime, naturel ou adoptif ou par toute autre personne ayant autorite sur la victime ;
+
+2°. Lorsque !'infraction est commise par une personne qui abuse de l'autorite que lui conferent ses fonctions ; ?
+
+3°. Lorsque !'infraction est commise par plusieurs personnes agissant en qualite d'auteurs ou de complices.

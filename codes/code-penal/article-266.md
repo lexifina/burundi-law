@@ -1,7 +1,5 @@
 # Article 266
 
-La peine prévue à l'article précédent est portée à dix ans :
+Quiconque a manifeste de !'aversion ou de la haine raciale ou ethnique ou aurait incite ou encourage, ou commis un acte de nature a provoquer cette aversion ou cette haine, est puni d'une servitude penale de six mois a deux ans et d'une amende de dix mille a cent mille francs burundaisou d'une de ces peines seulement.
 
-1° Lorsque l'extorsion est précédée, accom-pagnée ou suivie de violences sur autrui ayant entraîné une incapacité totale de travail pendant huit jours au moins ;
-
-2° Lorsqu'elle est commise au préjudice d'une personne vulnérable en raison de son âge, d'une maladie, d'une infirmité, d'une déficience physique ou psychique ou d'un état de grossesse apparente ou connue de son auteur.
+Section 4 Des denonciations calomnieuses

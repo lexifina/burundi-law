@@ -1,3 +1,3 @@
 # Article 87
 
-Le condamné mis à la disposition du Gouver-nement est interné, s'il y a lieu dans un établisse-ment désigné par le Ministre ayant la Justice dans ses attributions.
+L7 condamne. mi~ a la disposition du Gouvemement .,,, inrcme, s'il y a lieu dans un Otabltssement d6s1gne par le Ministre ayan, Jo Just1ce dans ses attributions.

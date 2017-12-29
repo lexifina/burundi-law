@@ -1,9 +1,3 @@
 # Article 598
 
-Sont punis d'une servitude pénale de cinq ans à vingt ans et d'une amende de cinquante mille francs à deux cent mille francs, les individus qui, dans un mouvement insurrectionnel :
-
-1° Se sont emparés d'armes, munitions ou matériels de toutes espèces, soit à l'aide de violences ou de menaces, soit par le pillage de boutiques ou d'établissements publics, soit par le désarmement des agents de la force publique ;
-
-2° Ont porté des armes apparentes ou entre-tenu des caches de munitions.
-
-Les individus qui ont fait usage de leurs armes sont punis de la peine de servitude pénale à perpé-tuité.
+Est puni d'une servitude penale de six mois a un an et d'une amende de cinquante mille a cent mille francs burundais, quiconque, sans intention de trahison ou d'espionnage, a porte a la connaissance d'une personne non qualifiee ou du public, une information militaire non rendue publique par l'autorite competente et dont la divulgation est manifestement de nature a nuire a la defense nationale.

@@ -1,3 +1,3 @@
 # Article 473
 
-Les mêmes personnes sont punies de cinq ans à dix ans de servitude pénale si l'association a été formée seulement en vue de perpétrer des infrac-tions punissables de moins de dix ans de servitude pénale.
+Sont exemptes des presentes dispositions, les concours de pronostics organises dans les conditions prevues a !'article 469. CHAPITREIV DES INFRACTIONS RELATIVES AUX SOCIETES PUBLIQUES ET PRIVEES Section 1 Des infractions en rapport avec la constitution des societes

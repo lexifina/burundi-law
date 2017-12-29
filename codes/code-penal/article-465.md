@@ -1,5 +1,3 @@
 # Article 465
 
-Est puni d'une servitude pénale de deux ans à cinq ans et d'une amende de cinquante mille francs à cent mille francs, tout responsable ou agent d'une société publique ou privée qui fait de ses biens un usage qu'il savait contraire aux intérêts de la socié-té.
-
-Section 5 Des infractions en rapport avec la liquidation des sociétés
+Les loteries sont prohibees. Sont reputees loteries, toutes operations offertes au public sous quelque denomination que ce soit et destinees a faire nattre l'esperance d'un gain qui serait acquis par la voie du sort.

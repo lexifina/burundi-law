@@ -1,13 +1,3 @@
 # Article 443
 
-Les personnes physiques coupables
-
-1° La confiscation telle qu'elle est prévue par les dispositions pertinentes du présent Code ; de l'une des infractions prévues par le présent chapitre peuvent encourir également au moins une des peines com-plémentaires suivantes
-
-2° L'interdiction définitive du territoire bu-rundais pour une durée déterminée qui ne peut être inférieure à cinq ans pour tout étranger ;
-
-3° L'interdiction pour une durée de dix ans au plus, d'exercer une fonction publique ou d'exercer la fonction professionnelle ou sociale dans l'exercice ou à l'occasion de l'exercice de laquelle l'infraction a été commise ;
-
-4° L'interdiction de droits civiques, civils, po-litiques et de famille tels qu'ils sont déter-minés par la loi ;
-
-5° L'affichage ou la diffusion de la décision prononcée.
+Est puni d'une servitude penale de deux a cinq ans et d'une amende portee du simple jusqu'au double de la valeur du profit illicite acquis, toute personne qui a propose, a tout moment, directement ou indirectement, des offres, des promesses, des dons, des presents ou des avantages quelconques pour obtenir d'une personne, qui sans etre depositaire de l'autorite publique ou chargee d'une mission de service publique, exerce dans le cadre d'une activite professionnelle ou sociale, une fonction de direction ou un travail pour une personne physique ou morale, ou un organisme quelconque, qu'elle accomplisse ou ait accompli, s'abstienne ou ce soit abstenue d'accomplirun acte de son activite ou de sa fonction ou facilite par son activite ou sa fonction, en violation de ses obligations legales, contractuelles ou professionnelles.

@@ -1,3 +1,5 @@
 # Article 608
 
-Est puni d'une servitude pénale de trois mois à deux ans et d'une amende de mille francs à cin-quante mille francs, ou d'une de ces peines seule-ment, celui qui, ayant connaissance de projets ou d'actes de trahison, d'espionnage ou d'autres activi-tés de nature à nuire à la défense nationale, d'atten-tats ou de complots contre la sûreté intérieure de l'Etat, n'en fait pas la déclaration aux autorités mili-taires, administratives ou judiciaires, dès le mo-ment où il les a connus.
+Le complot contre la vie ou contre la personne du Chef de l'Etat est puni d'une servitude penale de dix a quinze ans et d'une amende de deux millions a cinq millions de francs burundais si quelque acte a ete commis pour en preparer l'execution. S'il ya eu proposition faite et non agreees de former un complot contre la vie ou contre la personne du Chef de l'Etat, celui qui a fait une telle proposition est puni d'une servitude penale d'un an a cinq ans et d'une amende de cinq cent mille a un million de francs burundais.
+
+Section 2 Des attentats, complots et autres infractions contre l'autorite de l'Etat et l 'integrite du territoire

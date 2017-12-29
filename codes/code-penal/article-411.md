@@ -1,5 +1,5 @@
 # Article 411
 
-Tout acte arbitraire et attentatoire aux libertés et aux droits garantis aux particuliers par des lois, dé-crets, ordonnances et arrêtés, ordonné ou exécuté par un fonctionnaire ou officier public, par un dé-positaire ou agent de l'autorité ou de la force pu-blique, sera puni d'une servitude pénale de quinze jours à un an et d'une amende de dix mille francs ou d'une de ces peines seulement.
+Le fait, pour tout conducteur d 1un vehicule ou engin terrestre, fluvial ou maritime, sachant qu'il vient de causer ou d'occasionner un accident, de ne pas s'arreter et de tenter ainsi de s'echapper a la responsabilite penale ou civile qu'il peut encourir, est puni d'un mois a six mois de servitude penale et d'une amende de cinquante mille a cent mille francs burundais ou d'une de ces peines seulement.
 
-TITRE VI DES CRIMES ET DELITS DE NATURE ECONOMIQUE ET CONTRE LA CHOSE PUBLIQUE CHAPITRE I DES ATTEINTES AU BON FONCTIONNEMENT DE L'ECONOMIE NATIONALE
+Le retrait temporaire du pennis de conduire pour une duree de trois mois a un an ou definitivement peut etre prononcee a l'endroit du coupable. §5. De !'omission de temoigner en faveur d'un innocent

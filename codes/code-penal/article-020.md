@@ -1,3 +1,3 @@
 # Article 20
 
-L'auteur intellectuel est celui qui conçoit l'in-fraction et fait réaliser tous ou certains actes maté-riels par un tiers.
+... L'auteur intellectuel est celui qui conc;oit !'infraction et fait realiser tous ou certains actes materiels par un tiers.

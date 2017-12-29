@@ -1,3 +1,3 @@
 # Article 606
 
-Sont compris dans le mot « armes », toutes ma-chines, tous instruments, ustensiles ou autres objets tranchants, perçants ou contondants dont on s'est saisi pour tuer, blesser ou frapper, même si on n'en a pas fait usage.
+La peine de servitude penale a perpetuite est prononcee centre toute personne qui a assume le commandement de mercenaires, contre celle qui leur a donne des ordres, ou contre celle coupable de crime de mercenariat dirige contre le Burundi. CHAPITREII DES ATTEINTES A LA SURETE INTERIEURE DE L'ETAT Section 1 Des llttentats et complots contre le Chef de l'Etat

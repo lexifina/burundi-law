@@ -1,3 +1,5 @@
 # Article 339
 
-Quiconque s'est attribué faussement la qualité ou le grade de fonctionnaire public ou a porté pu-bliquement tout insigne ou emblème destiné à faire croire à l'existence d'un mandat public est puni d'une servitude pénale d'un an à trois ans et d'une amende de dix mille francs à cent mille francs ou d'une de ces peines seulement. Si l'insigne ou l'emblème n'est pas destiné mais est simplement de nature à faire croire à l'existence d'un mandat public, celui qui, publiquement, l'a porté, laissé ou fait porter par une personne à son service ou sous son autorité, est puni d'une servi-tude pénale de huit jours à un mois et d'une amende de dix mille francs à cinquante mille francs ou d'une de ces peines seulement.
+Quiconque a, meme sans intention mechante, detruit ou degrade, sans titre ni droit, des arbres, des recoltes, des instruments d'agriculture ou d'autres biens, meubles ou immeubles, est puni d'une servitude penale d'un mois a un an et d'une amende de dix mille a cent mille francs burundais ou d'une de ces peines seulement.
+
+Section 4 De la destruction d'animaux

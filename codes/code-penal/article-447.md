@@ -1,11 +1,5 @@
 # Article 447
 
-Les jeux de hasard sont ceux dans lesquels le hasard est l'élément essentiel et prépondérant et prédomine sur l'adresse, l'égalité ou les combinaisons des joueurs qui y engagent, dans l'espoir de réaliser un gain appréciable, des sommes d'argent relativement considérables eu égard à leurs facultés contributives.
+Est punie d'une servitude penale de cinq a vingt ans et d'une amende de cinquante mille a cinq cent mille francs burundais, toute personne depositaire de l'autorite publique ou chargee d'une mission de service public, qui re~oit, exige ou ordonne de percevoir a titre de droits ou contributions, impots ou taxes, amende ou cautionnement, revenus ou interets, une somme qu'elle sait ne pas etre due, ou exceder ce qui est du. Est punie des memes peines, le fait, par les memes personnes, d'accorder sous une forme quelconque et pour quelque motif que ce soit une exoneration ou franchise de droits, contribution, impots ou taxes, amende ou cautionnement, revenus ou interets en violation des textes legaux et reglementaires et d'effectuer, gratuitement ou a vil prix, la delivrance des biens publics.
 
-La tenue des jeux de hasard consiste dans le fait d'organiser ou faciliter la passion d'autrui pour ces jeux, en vue d'en tirer un profit pécuniaire person-nel.
-
-Les jeux de hasard sont interdits dans les lieux publics ou ouverts au public, dans tous les lieux non clôturés où le public peut avoir vue directe-ment, ainsi que dans tous autres lieux, même pri-vés, où quiconque, désireux de s'adonner au jeu est admis librement à pénétrer.
-
-Les jeux de hasard sont interdits
-
-1° Quiconque a tenu des jeux de hasard dans un des endroits et dans les conditions vi-sés à l'article 447 aux mineurs de moins de dix-huit ans.
+La qualite des personnes visees a l'alinea premier du present article s_'apprecie aussi bien pendant l'exercice des fonctions par les interesses qu'apres leur cessation. §2. Du trafic d'influence

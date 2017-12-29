@@ -1,3 +1,3 @@
 # Article 40
 
-Lorsque l'infraction n'a pas été commise par le seul fait de l'abstention volontaire de celui qui de-vait la commettre, l'instigateur encourt la moitié de la peine prévue pour cette infraction.
+Lorsque l'infraction n'a pas ete commise par le seul fait de !'abstention volontaire de celui qui devait la commettre, l'instigateur encourt la moitie de la peine prevue pour cette infraction.

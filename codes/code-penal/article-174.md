@@ -1,3 +1,3 @@
 # Article 174
 
-L'amnistie efface tantôt certaines infractions dé-terminées indépendamment de la peine prononcée, tantôt elle se base uniquement sur la quotité des peines prononcées.
+L'amnistie est en principe generale ; toutefois, elle peut etre limitee a certaines categories d'infractions.

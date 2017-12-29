@@ -1,3 +1,3 @@
 # Article 194
 
-Les frais de la procédure de réhabilitation sont à charge du requérant. LIVRE DEUXIEME DES INFRACTIONS ET DE LEUR REPRESSION EN PARTICULIER TITRE I DES INFRACTIONS CONTRE LES PERSONNES CHAPITRE I DU GENOCIDE, DES CRIMES CONTRE L'HUMANITE ET DES CRIMES DE GUERRE
+La rehabilitation efface la mention de la condamnation du easier judiciaire du rehabilite.

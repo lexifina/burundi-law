@@ -1,5 +1,5 @@
 # Article 89
 
-Le condamné mis à la disposition du Gouver-nement peut demander à être relevé des effets de cette condamnation. La demande est adressée au Procureur Général près la Cour d'Appel du ressort de la juridiction ayant prononcé la mise à la dispo-sition du Gouvernement.
+Le condamne mis a la disposition du Gouvemement peut demander a iltre releve des effets de cette condanmation. La demande est adressee au Procureur Genera] pri,s la Cour d'Appel du ressort de la j uridiction ayant pron once la mise O la disposition du Gouvemement.
 
-Le Procureur Général près la Cour d'Appel ins-truit la requête et saisit, par ses réquisitions, la juri-diction qui a condamné ; celle-ci statue par déci-sion motivée, le condamné régulièrement cité et entendu. En cas de rejet, une nouvelle demande ne peut être formée avant l’expiration d’un délai d’un an. 5. De la fermeture d'établissement
+Le Procureur Genera] pri,s la Cour d'Appe1 instru;t la requilte et saisit, parses re_quisitions,_ la juridiction qui a condamne ; cel1e-ci statue par dOcision motivee, le condrunne reguherement cite an. et en ten du. . , d"I · d, " :t1 e t 1'expitation d un c ai un En cas de rejet, une nouvelle demande ne peut etre arm e avan 5. De Ia fermeture d'etablissement

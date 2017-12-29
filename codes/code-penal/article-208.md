@@ -1,3 +1,11 @@
 # Article 208
 
-Aucune circonstance exceptionnelle, quelle qu'elle soit, qu'il s'agisse de l'état de guerre ou de menace de guerre, d'instabilité politique intérieure ou de tout autre état d'exception, ne peut être invo-quée pour justifier la torture et autre peine ou trai-tements cruels, inhumains ou dégradants. L'ordre d'un supérieur ou d'une autorité pu-blique ne peut être invoqué pour justifier la torture.
+L'infraction est punie de la servitude penale de vingt ans lorsqu'elle est commise : 1 °. Sur un mineur de moins de dix-huit ans;
+
+2°. Sur une personne vulnerable en raison de son age, de son etat de sante, d'une infirmite, d'une deficience physique ou psychique ou d'un etat de grossesse ;
+
+3°. Sur un temoin, une victime ou une partie civile, soit pour l'empecher de denoncer les faits, de porter plainte ou de deposer en justice, soit en raison de sa denonciation de sa plainte ou de sa deposition ;
+
+4°. Par plusieurs personnes agissant en qualite d'auteurs ou de complices;
+
+5°. Avec usage ou menace d'une arme.

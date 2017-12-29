@@ -1,7 +1,3 @@
 # Article 610
 
-Outre les personnes désignées à l'article 306, est puni comme receleur quiconque, autre que l'auteur ou le complice d'une infraction contre la sûreté de l'Etat :
-
-1° Recèle sciemment les objets ou instru-ments ayant servi ou devant servir à commettre l'infraction ou les objets, ma-tériels ou documents obtenus par l'infrac-tion ;
-
-2° Détruit, soustrait, recèle, dissimule ou altère sciemment un document public ou privé de nature à faciliter la re-cherche de l'infraction, la découverte des preuves ou le châtiment de ses au-teurs. Dans le cas prévu au présent article, le tribunal peut exempter de la peine encourue les parents ou alliés du coupable jusqu'au quatrième degré inclu-sivement.
+Le complot forme dans l'un des buts mentionnes a !'article precedent est puni d'une servitude penale de dix a quinze ans et d'une amende de deux millions a cinq millions de francs burundais si quelque acte a ete commis ou commence pour en preparer !'execution. · S'il y a eu proposition non agreee de former un complot pour arriver a l'une des fins mentionnees a l'article 609, celui qui a fait une telle proposition est puni d'une servitude penale d'un an a cinq ans et d'une amende de un million a deux millions de francs burundais.

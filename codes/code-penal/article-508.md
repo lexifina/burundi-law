@@ -1,3 +1,7 @@
 # Article 508
 
-Si les coupables exercent une profession médi-cale ou para-médicale ou sont en cours d'études pour obtenir le diplôme ouvrant droit à l'exercice d'une telle profession, ils sont punis d'une servitude pénale de deux ans à cinq ans et d'une amende de cinquante mille francs à cinq cent mille francs.
+Quiconque a illegalement produit, importe, fabrique ou exporte des stupefiants est puni de. dix a quinze ans de servitude penale et d'une amende d'un million de francs burundais au maximum.
+
+Les peines prevues au premier alinea sont portees au double lorsque les faits sont commis en bande organisee.
+
+Les peines sont encourues alors meme que les divers actes constituant les elements de l'infraction ont ete accomplis dans des pays differents.

@@ -1,3 +1,5 @@
 # Article 519
 
-Quiconque a utilisé, recruté ou offert un enfant à des fins de prostitution, de production de matériel ou de spectacles pornographiques est puni d'une servitude pénale de trois ans à cinq ans et d'une amende de cent mille francs à cinq cent mille francs.
+Est puni d'une servitude penale d'un mois maximum et d'une amende de dix mille a cinquante mille francs burundais ou d'une de ces peines seulement, celui qui s'est rendu coupable de bruits et tapage nocturnes de nature a troubler la tranquillite des habitants.
+
+Section 3 Des boissons prohibees

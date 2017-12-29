@@ -1,3 +1,3 @@
 # Article 545
 
-Les peines prévues à l'article précédent sont ap-plicables à toute personne qui fait office d'intermé-diaire, à un titre quelconque, entre les personnes se livrant habituellement à la prostitution et les indi-vidus qui exploitent ou rémunèrent la prostitution d'autrui.
+Quiconque a utilise un enfant, a des travaux qui, par leur nature ou les conditions dans lesquelles ils s'exercent, sont susceptibles de nuire a sa sante, a sa securite ou a sa moralite, est puni d'une servitude penale de trois a cinq ans et d'une amende de cinquante mille a cent mille francs burundais.

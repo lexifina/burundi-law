@@ -1,5 +1,3 @@
 # Article 154
 
-Les peines de servitude pénale en matière cri-minelle se prescrivent par un délai égal au double de la peine prononcée sans que ce délai ne dépasse vingt ans.
-
-Les peines perpétuelles se prescrivent par trente ans.
+Les peines d'amende de moins de cinq mille francs burundais se prescrivent par deux ans revolus, les peines de cinq mille a cent mille francs burundais se prescrivent par quatre ans revolus, les peines de plus de cent mille a un million de francs burundais par dix ans revolus et les peines de plus d'un million de francs burundais par trente ans.

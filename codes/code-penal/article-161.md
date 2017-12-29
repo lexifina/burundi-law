@@ -1,3 +1,3 @@
 # Article 161
 
-La grâce consiste dans la remise totale ou par-tielle par le pouvoir exécutif de l'exécution des peines prononcées ou dans leur commutation en d'autres peines moins graves déterminées par la loi.
+La prescription de la peine est interrompue par l'arrestation du condamne sa detention entraine la suspension de la prescription au regard des peines complementaires.

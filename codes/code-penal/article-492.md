@@ -1,7 +1,3 @@
 # Article 492
 
-Quiconque a illégalement produit, importé, fa-briqué ou exporté des stupéfiants est puni de dix ans à quinze ans de servitude pénale et d'une amende d'un million au maximum.
-
-Les peines prévues au premier alinéa sont por-tées au double lorsque les faits sont commis en bande organisée.
-
-Les peines sont encourues alors même que les divers actes constituant les éléments de l'infraction ont été accomplis dans des pays différents.
+Sont exemptes des peines prevues a l'article precedent, ceux des coupables qui, avant toute tentative d'infraction faisant l'objet de !'association et avant toute poursuite, ont revele aux autorites publiques l'existence de ces bandes et les noms de leurs chefs ou responsables. CHAPITREII DES MENACES D'ATTENTAT CONTRE LES PERSONNES OU CONTRE LES PROPRIETES

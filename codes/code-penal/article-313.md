@@ -1,3 +1,5 @@
 # Article 313
 
-Est puni d'une servitude pénale de trois mois à cinq ans et d'une amende équivalant à vingt pour cent du montant porté par le chèque ou de l'une de ces peines seulement : 1. Celui qui, de mauvaise foi, émet un chèque sans provision préalable et disponible ou avec une provision inférieure au montant du chèque ; 2. Celui qui, sauf opposition régulière en cas de perte ou de son incapacité de recevoir, retire, après l'émission, tout ou partie de la provision ou fait défense au tiré de payer ; 3. Celui qui cède un chèque sachant qu'il n'y a pas de provision, ou que la provision est insuffisante ou qu'elle n'est pas disponible ;
+Est puni d'une servitude penale de trois mois a deux ans et d'une amende de dix mille a cinquante mille francs burundais ou d'une de ces peines seulement, celui qui, abusant des faiblesses, des passions, des besoins ou de !'ignorance du debiteur, se fait, en raison d'une operation de credit, d'un contrat de pret ou de tout autre contrat indiquant une remise de valeur mobiliere, quelle que soit la forme apparente du contrat, promettre pour lui-meme ou pour autrui un interet ou d'autres avantages excedant manifestement l'interet normal.
+
+Section 6 Du detournement de main d'amvre

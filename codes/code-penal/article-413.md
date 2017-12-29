@@ -1,3 +1,3 @@
 # Article 413
 
-Sont punis de six mois à deux ans de servitude pénale et d'une amende de cent mille francs à un million de francs, les travailleurs et agents de direc-tion qui, sans autorisation, communiquent des se-crets de fabrication de leur entreprise à des per-sonnes étrangères à celle-ci.
+Le fait pour toute personne ayant connaissance des auteurs d'un crime ou d'un delit, de refuser de repondre aux questions qui lui sont posees a cet egard par l'officier de police judiciaire, l'officier du ministere public ou le juge est puni d'un mois a trois mois de servitude penale et d'une amende de cinquante mine a cent mille francs burundais ou une de ces peines seulement. §7. Du faux temoignage

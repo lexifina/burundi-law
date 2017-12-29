@@ -1,5 +1,7 @@
 # Article 482
 
-Quiconque, pouvant empêcher par son action immédiate, sans risque pour lui ou pour les tiers, soit une infraction contre les personnes, soit une infraction contre les propriétés, s'abstient volontai-rement de le faire est puni de servitude pénale d'un an à trois ans et d'une amende de vingt mille francs à cent mille francs, ou d'une de ces peines seule-ment. Est puni des mêmes peines, quiconque s'abstient volontairement de porter à une personne en péril l'assistance que, sans risque pour lui ou pour les tiers, il pouvait lui prêter, soit par son action per-sonnelle soit en provoquant un secours.
+Les peines prevues a !'article 477 sont applicables au liquidateur de la societe qui refuse ou neglige de communiquer aux associes les comptes de liquidation, de convoquer l'assemblee generale.
 
-CHAPITRE V DE L'EVASION DES DETENUS ET DE LA RUPTURE DE BAN Section 1 De l'évasion des détenus
+Les peines de !'article 480 sont applicables au liquidateur de la societe qui, de mauvaise foi : 1 °. A fait des biens ou du credit de la societe en liquidation un usage qu'il savait contraire a l'interet de celle-ci, a des fins personnelles ou pour favoriser une autre societe ou entreprise a laquelle i1 etait interesse directement ou indirectement ;
+
+2°. A cede tout ou partie de l'actif de la societe en liquidation en dessous de sa valeur marchande; 3 °. A sciemment donne ou confirme des informations mensongeres clans les comptes ou rapport de liquidation portant prejudice aux droits des associes. CHAPITREV DE LA CRIMINALITE INFORMATIQUE Section 1 Des faux en informatique

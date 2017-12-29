@@ -1,7 +1,7 @@
 # Article 44
 
-Les peines principales applicables aux per-sonnes physiques sont :
+Les peines principales applicables aux personnes physiques sont : 1 °. La servitude penale ;
 
-1° La servitude pénale.
+2°. L'amende ;
 
-2° L'amende.
+3°. Le travail d'interet general. 1. De la servitude penale

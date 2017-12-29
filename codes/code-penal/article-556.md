@@ -1,19 +1,7 @@
 # Article 556
 
-Le viol est puni de quinze ans à vingt cinq ans de servitude pénale et d'une amende de cinquante mille à deux cent mille francs :
+Sont punis d'une servitude penale qui n'excede pas deux mois et d'une amende de vingt mille a cinquante mille francs burundais ou d'une de ces peines seulement : 1 °. Le pere ou la mere de famille qui abandonne sans motif grave, pendant plus de deux mois, la residence familiale et se soustrait a tout ou partie des obligations d'ordre moral ou materiel resultant de l'autorite parentale ou de la tutelle legale ; le delai de deux mois ne peut etre interrompu que par un retour au foyer impliquant la volonte de reprendre definitivement la vie familiale ;
 
-1° Lorsqu'il est commis sur un mineur de moins de dix- huit ans ;
+2°. L'epoux qui, sans motif valable, abandonne volontairement pendant plus de deux mois son conjoint et qui refuse de pourvoir a l'entretien et !'assistance que se doivent les / epoux suivant les dispositions pertinentes du Code des personnes et de la famille ;
 
-2° Lorsqu'il est commis par un ascendant ou un descendant légitime, naturel ou adop-tif, par un frère ou une soeur, par un pa-râtre ou une marâtre de la victime ;
-
-3° Lorsqu'il est commis par une personne étant au service de la victime ;
-
-4° Lorsqu'il est commis par une personne qui abuse de l'autorité que lui confèrent ses fonctions ;
-
-5° Lorsqu'il est commis par un éducateur ;
-
-6° Lorsque le viol est commis par un mi-nistre du culte.
-
-7° Lorsqu'il est commis par des médecins, chirurgiens, accoucheurs ou autre person-nel médical envers les personnes confiées à leurs soins ;
-
-8° Lorsqu'il est commis sur une personne vulnérable en raison de son âge, d'une maladie, d'une infirmité, d'une déficience physique ou mentale ou à un état de gros-sesse, est apparente ou connue de l'auteur;
+3°. Le mari qui, sans motif grave, abandonne volontairement pendant plus deux mois sa femme, la sachant enceinte ; 4 °. Le pere ou la mere, que la decheance de l1autorite parentale soit ou non prononcee a son egard, qui compromet par mauvais traitements, par des exemples pemicieux d'ivrognerie habituelle ou inconduite notoire, par un defaut de soins ou par un manque de direction necessaire, soit la sante, soit la securite, soit la moralite de ses enfants ou d'un ou plusieurs de ces demiers.

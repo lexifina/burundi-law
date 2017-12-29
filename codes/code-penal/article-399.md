@@ -1,7 +1,5 @@
 # Article 399
 
-Le témoignage mensonger fait sous serment de-vant les juridictions est puni de six mois à deux ans de servitude pénale et d'une amende de cinquante mille francs à cent mille francs ou d'une de ces peines seulement. Toutefois, le faux témoin est exempté de la peine s'il s'est rétracté spontanément avant la déci-sion mettant fin à la procédure rendue par la juri-diction.
+Quiconque, par voies de fait, s'est oppose a !'execution de travaux ordonnes ou autorises par le pouvoir competent, est puni d'une servitude penale de huit jours a deux mois et d'une amende de dix mille a trente mille francs burundais ou d'une de ces peines seulement. Si !'opposition aces travaux a lieu par attroupement et violences, voies de fait ou menaces, les coupables sont punis d'une servitude penale de deux a trois ans et d'une amende de trente mille a cinquante mille francs burundais ou d'une de ces peines seulement.
 
-La peine est portée d'un an à cinq ans de servi-tude pénale et l'amende de cent mille francs à cinq cent mille francs :
-
-2°. Lorsque celui contre lequel ou en faveur duquel le témoignage mensonger a été commis est passible d'une peine criminelle. Si l'accusé a été condamné à la servitude pénale à perpétuité, le faux témoin qui a déposé contre lui est condamné à la servitude pénale à perpétuité. §8. Du faux serment
+Section 4 De la publication et de la distribution des ecrits

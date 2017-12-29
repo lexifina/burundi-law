@@ -1,9 +1,7 @@
 # Article 597
 
-Sont punis d'une servitude pénale de deux ans à dix ans et d'une amende de cinquante mille francs à cent mille francs, les individus qui, dans un mou-vement insurrectionnel :
+Est puni d'une servitude penale de deux a dix ans et d'une amende de cinquante mille a deux cent mille francs burundais quiconque, sans intention de trahison ou d'espionnage : 1 °. S'assure, etant sans qualite, la possession d'un renseignement, obj et, document ou precede qui doit etre tenu secret dans l'interet de la defense nationale ou dont la connaissance peut conduire a la decouverte d'un secret de la defense nationale ;
 
-1° Ont fait ou aidé à faire des barricades, des retranchements ou tous autres travaux ayant pour objet d'entraver ou d'arrêter l'exercice de la force publique ;
+2°. Detruit, soustrait, laisse detruire ou soustraire, ou laisse reproduire un tel renseignement, objet, document ou precede ;
 
-2° Ont empêché, à l'aide de violences ou de menaces, l'intervention ou la réunion de la force publique ou qui ont provoqué ou facilité le rassemblement des insurgés, soit par la distribution d'ordres ou de pro-clamations, soit par le port de drapeaux ou autres signes de ralliement, soit par tout autre moyen d'appel ;
-
-3° Ont, pour faire attaque ou résistance en-vers la force publique, envahi ou occupé des édifices, postes ou autres établisse-ments publics, des maisons habitées ou non habitées. La peine est la même à l'égard du propriétaire ou du locataire qui, connaissant le but des insurgés, leur a procuré sans contrainte l'entrée desdites maisons.
+3°. P01te ou laisse porter a la connaissance d'une personne non qualifiee, ou du public un tel renseignement, obj et, document ou precede, ou en a etendu la divulgation.

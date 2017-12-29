@@ -1,3 +1,7 @@
 # Article 433
 
-Est puni des mêmes peines prévues à l'article 431, celui qui a cédé à une personne dépositaire de l'autorité publique, chargée d'une mission de ser-vice public ou investie d'un mandat public électif qui sollicite, sans droit, directement ou indirecte-ment, des offres, des promesses, des dons, des pré-sents ou des avantages quelconques pour user de son influence dans les conditions visées à l'article précédent.
+Commet une infraction a la reglementation de change quiconque : 1 °. Viole une obligation ou interdiction relative aux transferts de fonds, aux declarations d'avoirs, a la detention ou au commerce des metaux precieux ou pierres precieuses ;
+
+2°. Offre de vendre ou d'acheter des devises, especes, valeurs, meme lorsque ces offres ne s'accompagnent d'aucune remise ou presentation;
+
+3°. Offre ses services a titre d'intermediaire, soit pour mettre en rapport vendeurs et acheteurs, soit pour faciliter les negociations meme lorsque cette entremise n'est pas remuneree.

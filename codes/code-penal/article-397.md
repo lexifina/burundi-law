@@ -1,9 +1,3 @@
 # Article 397
 
-1°. Les parents en ligne directe et leurs con-joints de l'auteur ou du complice de l'in-fraction qui motivait la poursuite, ainsi que ses frères et sœurs et leurs conjoints ;
-
-Le fait, pour quiconque, connaissant la preuve de l'innocence d'une personne détenue provisoire-ment ou jugée pour un crime ou délit, de s'abstenir volontairement d'en apporter aussitôt le témoignage aux autorités judiciaires ou administratives est puni d'un mois à un an de servitude pénale et de cin-quante mille francs à deux cent mille francs d'amende. Est exempté de peine, celui qui apporte son té-moignage tardivement mais spontanément. Sont exemptés des dispositions du premier ali-néa :
-
-2°. L'auteur ou le complice de l'infraction qui motivait la poursuite, ses parents en ligne directe et leurs conjoints ;
-
-3°. Les alliés jusqu'au second degré. §6. Du refus de déposer
+Celui qui a frappe l'une ou l'autre personne visee a !'article precedent dans l'exercice ou a !'occasion de l'exercice de ses fonctions, est puni d'une servitude penale de d'un an a trois ans et d'une amende de cent mille a trois cent mille francs burundais. Si les coups portes ont occasionne une mutilation ou une infirmite permanente, la servitude penale est portee de trois ans a dix ans et l'amende de cent mille francs a trois cent mille francs. Siles coups portes, sans intention de donner la mort, l'ont pourtant causee, la servitude penale est portee de quinze ans a trente ans et d'une amende de cent mille a cinq cent mille francs burundais.

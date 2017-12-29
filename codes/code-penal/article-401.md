@@ -1,3 +1,5 @@
 # Article 401
 
-Le fait d'user de promesses, offres, présents, manœuvres ou artifices au cours d'une procédure judiciaire en cours afin de déterminer autrui soit à faire ou délivrer une fausse déposition, une fausse déclaration ou d'une fausse attestation est puni de deux ans à cinq ans de servitude pénale et d'une amende de cinquante mille francs à cent mille francs. §10. Des menaces ou intimidations dirigées contre les témoins
+Sont exemptes de la peine prevue par le precedent article ceux qui ont fait connaitre l'auteur ou l'imprimeur ainsi que les crieurs, afficheurs, vendeurs, ou distributeurs, qui ont fait connaitre la personne de qui ils tiennent l'ecrit incrimine.
+
+CHAPITRE III DES ENTRA VES A L'ADMINISTRATION ET ATTEINTES A L'AUTORITE DE LA JUSTICE Section 1 Des entraves a la saisine de la justice §1. De la disparition des preuves

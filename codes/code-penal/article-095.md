@@ -1,3 +1,3 @@
 # Article 95
 
-L'exécution des condamnations aux restitutions, aux dommages-intérêts et aux frais peut être pour-suivie par la voie de la contrainte par corps.
+Toute condamnation penale est prononcee sans prejudice des restitutions et dommages-interets qui peuvent etre dus aux parties, a leur demande ou a celle du Ministere Public.

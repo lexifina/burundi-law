@@ -1,3 +1,3 @@
 # Article 234
 
-Est puni d'une servitude pénale d'un an à cinq ans et d'une amende de cinquante mille francs à cent mille francs quiconque a méchamment mutilé un cadavre humain.
+Sont consideres comme ayant participe a l'epreuve superstitieuse non constitutive d'infraction visee a !'article precedent, ceux qui ont prete leur concours selon les modes de participation prevus par le present code et ceux qui, de quelque fac;on que ce soit, ont a dessein fait nattre la resolution de reclamer, d'ordonner ou de pratiquer l'epreuve.

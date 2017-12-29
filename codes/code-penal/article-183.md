@@ -1,3 +1,5 @@
 # Article 183
 
-Toute personne condamnée du chef d'une in-fraction commise au Burundi peut être réhabilitée.
+En cas de condamnation a une ou plusieurs peines complementaires, !'effacement ne peut intervenir qu'apres avoir execute ces demieres.
+
+Section 2 De la rehabilitation

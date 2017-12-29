@@ -1,5 +1,3 @@
 # Article 170
 
-La grâce n'éteint pas les peines prononcées contre le génocide, les crimes contre l'humanité et les crimes de guerre.
-
-CHAPITRE VI DE L'AMNISTIE
+Lorsqu'elle est generale, la grace est proposee a la diligence du Ministre ayant la Justice dans ses attributions ; la requete en est presentee par le condamne ou tout interesse agissant en son nom lorsqu'elle est individuelle.

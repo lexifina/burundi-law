@@ -1,3 +1,3 @@
 # Article 417
 
-Commet une infraction à la réglementation de change quiconque : 1. 2. Offre de vendre ou d'acheter des devises, espèces, valeurs, même lorsque ces offres ne s'accompagnent d'aucune remise ou pré-sentation; Viole une obligation ou interdiction rela-tive aux transferts de fonds, aux déclara-tions d'avoirs, à la détention ou au com-merce des métaux précieux ou pierres pré-cieuses ; 3.
+Est puni de six mois A deux ans de servitude penale et d'une amende de dix mille a cinquante mille francs burundais, quiconque a menace ou intimide des temoins en raison de leurs depositions en justice. 7 §11. De la denaturation de traductions par un expert

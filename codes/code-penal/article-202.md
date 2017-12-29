@@ -1,3 +1,3 @@
 # Article 202
 
-Celui qui ordonne ou incite publiquement à commettre le crime de génocide, le crime contre l'humanité ou le crime de guerre encourt la peine de servitude pénale à perpétuité.
+L'auteur ou coauteur de l'un quelconque des actes constitutifs du crime de genocide, des crimes contre l'humanite et des crimes de guerre est puni de la peine de servitude penale a perpetuite. 7 I - -

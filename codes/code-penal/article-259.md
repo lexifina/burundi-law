@@ -1,13 +1,3 @@
 # Article 259
 
-La soustraction frauduleuse d'eau et d'électricité au préjudice d'autrui est assimilée au vol.
-
-1° . Le fait d'empêcher tout ou partie de l'eau ou d'électricité à utiliser de passer par l'ap-pareillage de comptage ; Constituent des actes de soustraction fraudu-leuse d'eau ou d'électricité :
-
-2° . Le fait d'installer un dispositif permettant d'empêcher le compteur d'enregistrer la consommation d'eau ou d'électricité ;
-
-3° . Le fait, par quelque procédé que ce soit, de reculer les index indiqués par l'appareil-lage de comptage ;
-
-4° . Le fait de manipuler l'appareillage de comptage en vue de l'empêcher d'enregis-trer toute la quantité d'eau ou d'électricité effectivement consommée;
-
-5° . Le fait de s'alimenter en eau ou électricité au moyen d'un branchement sans avoir souscrit à l'abonnement correspondant au-près du distributeur.
+Est puni d'une servitude penale de huit jours a deux ans et d'une amende de dix mille a cent mille francs burundais, celui qui, sans ordre de l'autorite et hors les cas ou la loi permet d'entrer dans le domicile des particuliers centre leur volonte, s'est introduit dans une maison, une chambre ou un logement habite par autrui ou leurs dependances, soit a l'aide de menaces ou de violences centre les personnes, soit au moyen d'effraction, d'escalade ou de fausses cles. Tout fonctionnaire de l'ordre administratif, tout magistrat, tout officier de police judiciaire ou agent de force publique qui, agissant en cette qualite, s'est introduit dans le domicile des particuliers contre le gre de ceux-ci hors les cas prevus et sans les fonnalites prescrites par la loi, est puni d'une servitude penale d'un an a deux ans et d'une amende de cinquante mille a cent mille francs burundais.

@@ -1,3 +1,3 @@
 # Article 568
 
-Est coupable de trahison et puni de la servitude pénale à perpétuité, tout Murundi qui porte les armes contre le Burundi.
+Les peines prevues a !'article precedent sont applicables a toute personne qui fait office d'intermediaire, a un titre quelconque, entre les personnes se livrant habituellement a la prostitution et les individus qui exploitent ou remunerent la prostitution d'autrui. /

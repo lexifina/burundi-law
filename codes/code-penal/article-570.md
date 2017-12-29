@@ -1,9 +1,19 @@
 # Article 570
 
-Est coupable de trahison et puni de la servitude pénale à perpétuité, tout Murundi qui, en temps de guerre:
+Les peines prevues par les dispositions de la presente section sont portees au double lorsque l'une des circonstances ci-apres est etablie en la cause : 1 ° . L'infraction a ete commise a l'egard d'une personne de moins de dix-huit ans ;
 
-1° Provoque des militaires ou des marins à passer au service d'une puissance étran-gère, leur en facilite les moyens ou fait des enrôlements pour une puissance en guerre avec le Burundi ;
+2° . L'infraction a ete commise a l'egard d'une personne non consentante ;
 
-2° Entretient des intelligences avec une puissance étrangère ou avec des agents en vue de favoriser les entreprises de cette puissance contre le Burundi ;
+3°. L'infraction a ete commise a l'egard d'une personne dont la particuliere vulnerabilite due a son dge, a une maladie, a une infirmite, a une deficience physique ou psychique ou a un etat de grossesse, est apparente ou connue de son auteur ;
 
-3° Participe sciemment à une entreprise de démoralisation de l'Armée ou de la Na-tion ayant pour objet de nuire à la défense nationale.
+4°. L'infraction a ete commise par une bande organisee ou par plusieurs personnes agissant comme auteurs, coauteurs ou complices ;
+
+5°. L'auteur de l'infraction a agi par ruse, menaces, ou violences;
+
+6° . L'infraction a ete commise par un ascendant de la victime ;
+
+7° . L'infraction a ete commise par une personne qui a autorite sur la victime ;
+
+8° . L'infraction a ete commise par un serviteur de la victime ;
+
+9° . L'infraction a ete commise par un fonctionnaire public ou un ministre du culte. §4. Du racolage

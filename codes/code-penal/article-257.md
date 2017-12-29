@@ -1,5 +1,5 @@
 # Article 257
 
-Pour toutes les infractions prévues à ce chapitre, le juge peut prononcer, aux frais du condamné, la publication du jugement à titre de peine complé-mentaire.
+Est puni d'une servitude penale d'un an a cinq ans, celui qui, par violences, ruses ou menaces, a sequestre ou fait sequestrer, a enleve ou fait enlever une personne quelconque. Si l'enlevement OU la sequestration a ete execute, soit avec l'aide d'un uniforme OU d'un insigne reglementaire ou paraissant tel, soit sous un faux nom ou sur un faux ordre de l'autorite publique, la peine est la servitude penale de dix a vingt ans.
 
-TITRE II DES INFRACTIONS CONTRE LES PROPRIETES CHAPITRE I DES VOLS ET DES EXTORSIONS Section 1 Du vol simple
+La meme peine est applicable si l'enlevement a ete opere a l'aide d'un moyen de transport motorise ou si la victime a subi des menaces de quelque nature que ce soit. Si l'enlevement ou la sequestration a ete executee par un membre des corps de defense et de securite, le coupable est puni de la servitude penale de vingt a trente ans En tout etat de cause, lorsque la personne enlevee ou sequestree a ete soumise a une exigence de ran9on, a des actes de barbarie ou lorsque ces actes ont cause la mort, le coupable est puni de la servitude penale a perpetuite.

@@ -1,5 +1,3 @@
 # Article 311
 
-Les dispositions des deux précédents articles ne s'appliquent pas à toutes autres personnes qui au-raient participé au vol ou recel des objets volés.
-
-Section 12 Des effets sans provisions
+Est puni d'une servitude penale de six mois a cinq ans et d'une amende de cinq cent mille a un million de francs burundais ou d'une de ces peines seulement, quiconque a vendu ou donne en hypotheque un immeuble qui ne lui appartient pas.

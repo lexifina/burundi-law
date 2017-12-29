@@ -1,3 +1,3 @@
 # Article 565
 
-Quiconque a publiquement outragé les mœurs par des actions qui blessent la pudeur est puni d’une amende de cinquante mille francs à cent mille francs. §2. De la zoophilie
+Est puni de deux a cinq ans de servitude penale et d'une amende de cent mille a un million de francs bunmdais, quiconque, directement ou par personne interposee, dirige, gere, ou sciemment finance ou contribue a financer une maison de prostitution. §3. Des facilites en vue de la prostitution

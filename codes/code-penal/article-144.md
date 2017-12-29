@@ -1,3 +1,3 @@
 # Article 144
 
-Pour produire ses effets, le désistement doit, sauf dans les cas où la loi en dispose autrement, intervenir avant que la condamnation ne soit défini-tive.
+Le desistement est judiciaire ou extrajudiciaire. Il est tacite lorsque le plaignant a accompli des actes incompatibles avec la volonte de persister dans sa plainte.

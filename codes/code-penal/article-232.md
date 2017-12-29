@@ -1,3 +1,3 @@
 # Article 232
 
-Sont considérés comme ayant participé à l'épreuve superstitieuse non constitutive d'infrac-tion visée à l'article précédent, ceux qui ont prêté leur concours selon les modes de participation pré-vus par le présent code et ceux qui, de quelque fa-çon que ce soit, ont à dessein fait naître la résolu-tion de réclamer, d'ordonner ou de pratiquer l'épreuve.
+Sont auteurs ou complices de l'epreuve superstitieuse visee a !'article precedent, ceux qui y ont participe selon les modes de participation criminelle prevus aux articles 37 et suivants du present Code. Sont consideres egalement comme auteurs ou complices de cette meme infraction ceux qui, de quelque fac;on que ce soit, ont a dessein fait nattre la resolution de la reclamer, de l'ordonner ou de la pratiquer. N'est considere ni comme auteur ni comme complice, la personne qui a consenti a subir le mal physique constitutif de l'epreuve.

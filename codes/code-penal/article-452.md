@@ -1,7 +1,3 @@
 # Article 452
 
-Sont exemptés des peines portées par l'article précédent, les crieurs et les afficheurs qui ont fait connaître la personne de laquelle ils tiennent ces billets ou les écrits ci-dessus mentionnés. Article
-
-1° Par le Ministre de l'Intérieur, si l'émission des billets est faite et annoncée ou publiée dans plus d'une province ; 453 Sont exemptés des présentes dispositions, les lo-teries et les jeux de hasard organisés ou autorisés par les pouvoirs publics et exclusivement destinées à des actes de bienfaisance, à l'encouragement de l'industrie, des arts ou des sports ou à tout autre but d'utilité publique, lorsqu'elles ont été autorisées :
-
-2° Par le Gouverneur de province, si l'émis-sion des billets n'est faite et annoncée ou publiée que dans une province.
+Est punie d'une servitude penale de dix a vingt ans et d'une amende de cinquante mille a un million de francs burundais, toute personne depositaire de l'autorite publique, chargee d'une mission de service public, tout comptable public, tout depositaire public ou l'un de ses subordonnes, qui detruit, detoume ou soustrait un acte ou un titre, des fonds publics ou prives, des effets, pieces ou titres en tenant lieu, ou tout autre objet qui lui a ete remis en raison de ses fonctions ou de sa mission.

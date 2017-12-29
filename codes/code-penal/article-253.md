@@ -1,5 +1,3 @@
 # Article 253
 
-Quiconque a manifesté de l'aversion ou de la haine raciale ou ethnique ou aurait incité ou encou-ragé, ou commis un acte de nature à provoquer cette aversion ou cette haine, est puni d'une servi-tude pénale de six mois à deux ans et d'une amende de dix mille francs à cent mille francs ou d'une de ces peines seulement.
-
-Section 4 Des dénonciations calomnieuses
+Tout transporteur commercial qui omet de verifier que chaque passager est en possession des documents d'identite pour l'entree dans le pays de transit ou de destination considere, est puni d'une amende de cinquante mille a cent mille francs burundais ainsi que de la suspension ou du retrait de son autorisation de convoyer, ainsi que le paiement des frais de sejour, d'hebergement ou d'eloignement occasionnes par l'entree illegale sur le territoire. § 4: Des circonstances aggravantes

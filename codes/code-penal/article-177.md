@@ -1,3 +1,3 @@
 # Article 177
 
-La grâce amnistiante est la combinaison de la grâce et de l'amnistie à laquelle le législateur re-court pour introduire plus de justice dans l'applica-tion de l'amnistie.
+Le pouvoir d'interpreter les leis d 1amnistie appartient au pouvoir judiciaire et plus precisement a la juridiction qui a prononce la condamnation. L'execution des lois d'amnistie est confiee a une Commission mise en place par le Ministre ayant la Justice dans ses attributions.

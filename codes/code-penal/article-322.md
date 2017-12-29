@@ -1,3 +1,5 @@
 # Article 322
 
-Quiconque a détruit, renversé ou dégradé, par quelque moyen que ce soit, en tout ou en partie, des bâtiments, ponts, digues, chaussées, chemins de fer, appareils télégraphiques ou téléphoniques, ou autres constructions appartenant à autrui, est puni d'une servitude pénale d'un mois à cinq ans et d'une amende de dix mille francs à cent mille francs ou d'une de ces peines seulement.
+Les infractions prevues a l'article precedent ne peuvent etre poursuivies que sur plainte de la partie lesee. Le payement par l'auteur du prix et des frais avances avant le jugement par la partie plaignante ou le desistement de celle-ci eteint l'action publique.
+
+Section 11 Des dispositions particulieres

@@ -1,5 +1,5 @@
 # Article 8
 
-Toute infraction commise sur le territoire du Burundi par des Burundais ou des étrangers est, sous réserve des conventions internationales sur les immunités diplomatiques et consulaires, punie con-formément à la loi pénale du Burundi.
+Toute infraction commise sur le territoire du Burundi par des burundais ou des etrangers est, sous reserve des conventions intemationales sur· les immunites diplomatiques et consulaires, punie conformement a la loi penale du Burundi.
 
-Les immunités diplomatiques ou consulaires ne s'appliquent pas en cas de crime de génocide, crime contre l'humanité ou crime de guerre.
+Les immunites diplomatiques ou consulaires ne s'appliquent pas en cas de crime de genocide, crime centre l'humanite ou crime de guerre.

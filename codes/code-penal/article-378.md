@@ -1,3 +1,3 @@
 # Article 378
 
-Constituent des actes d'outrage les paroles, gestes ou menaces, les écrits de toute sorte ou l'en-voi d'objets quelconques adressés à une personne chargée d'une mission de service public, dans l'exercice ou à l'occasion de l'exercice de sa mis-sion et, de caractère injurieux ou diffamatoire, et de nature à porter atteinte à sa dignité ou au respect dû à la fonction dont elle est investie.
+Est puni d'une servitude penale de deux mois a deux ans et d'une amende de dix mille a trente mille francs burundais ou d'une de ces peines seulement, celui qui, etant requis par l'autorite de declarer son identite a declare com.me sienne, soit une identite qui appartient a autrui, soit une identite purement imaginaire.

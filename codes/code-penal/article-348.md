@@ -1,5 +1,5 @@
 # Article 348
 
-Toute personne qui, de l'une des manières pré-vues à l'article 345 commet un faux en écriture de commerce ou de banque, est punie d'une servitude pénale d'un an à cinq ans et d'une amende de cent mille francs à un million de francs.
+Sont punis d'une servitude penale de cinq a quinze ans et d'une amende de cent mille a cinq cent mille francs burundais ou d'une de ces peines seulement : 1 °. Ceux qui ont contrefait ou falsifie les sceaux, timbres, poin9ons ou autres marques du Burundi, d'un Etat etranger ou des administrations publiques nationales ou intemationales ;
 
-La peine peut être portée au double du maxi-mum prévu au premier alinéa lorsque le coupable de l'infraction est un banquier, un administrateur de société et, en général, une personne ayant fait appel au public en vue de l'émission d'actions, obliga-tions, bons, ports ou titres quelconques, soit d'une société, soit d'une entreprise commerciale ou indus-trielle.
+2°. Ceux qui ont frauduleusement fait usage de ces objets contrefaits ou falsifies ; 3 °. Ceux qui les ont sciemment exposes ou mis en vente.

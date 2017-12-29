@@ -1,3 +1,3 @@
 # Article 35
 
-La décision qui admet les circonstances atté-nuantes les indique, les énumère et les motive.
+La decision qui admet les circonstances attenuantes les indique, les enumere et les motive.

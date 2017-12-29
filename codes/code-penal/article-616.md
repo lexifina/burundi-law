@@ -1,3 +1,5 @@
 # Article 616
 
-Est également qualifié d'acte de terrorisme le fait de financer une entreprise terroriste, en fournis-sant, en réunissant ou en gérant des fonds, des va-leurs ou des biens quelconques ou en donnant des conseils à cette fin, dans l'intention de voir ces fonds, valeurs ou biens utilisés ou en sachant qu'ils sont destinés à être utilisés, en tout ou partie, en vue de commettre l'un quelconque des actes de ter-rorisme prévus sous ce chapitre, indépendamment de la survenance éventuelle d'un tel acte.
+Est puni de la peine de servitude penale a perpetuite, quiconque, en vue de troubler l'Etat par l'un des attentats prevus aux articles 609 et 611, par l'envahissement, ou le partage des proprietes publiques ou privees, ou encore en faisant attaque ou resistance envers la force publique agissant centre les auteurs de ces infractions, s'est mis a la tete des bandes armees ou y a exerce un commandement quelconque.
+
+La meme peine est appliquee a ceux qui ont dirige l'association, leve ou fait lever, organise ou fait organiser les bandes.

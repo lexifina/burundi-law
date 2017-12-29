@@ -1,3 +1,3 @@
 # Article 102
 
-En même temps qu'il prononce une peine prin-cipale autre que la servitude pénale, le juge peut ordonner le placement de l'enfant en conflit avec la loi dans une famille d'accueil ou dans une institu-tion spécialisée qu'il détermine.
+Lorsque les biens du condamne sont insuffisants pour couvrir les condamnations a l'amende, aux restitutions et aux dommages-interets, les deux demieres condamnations ont la preference.

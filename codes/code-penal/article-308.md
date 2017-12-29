@@ -1,5 +1,3 @@
 # Article 308
 
-Les infractions prévues à l'article 307 ne peu-vent être poursuivies que sur plainte de la partie lésée. Le payement par l'auteur du prix et des frais avancés avant le jugement par la partie plaignante ou le désistement de celle-ci éteint l'action pu-blique.
-
-Section 11 Des dispositions particulières
+Quiconque a frauduleusement, soit detoume, soit dissipe au prejudice d'autrui, des effets, deniers, marchandises, billets, quittances, ecrits de toute nature contenant ou operant obligation, disposition ou decharge, et qui lui avaient ete remis a la condition de les rendre ou d'en faire un usage ou un emploi determine, est puni d'une servitude penale de deux mois a trois ans et d'une amende de cinquante mille francs a deux cent mille francs ou d'une de ces peines seulement.

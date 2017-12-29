@@ -1,3 +1,3 @@
 # Article 149
 
-Le délai de prescription de l'action publique des crimes commis contre des mineurs ne commence à courir qu'à partir de la majorité civile de ces der-niers.
+La prescription commence a courir le jour ou tous les elements constitutifs de l'infraction sont reunis en cas d'infractions instantanees ; elle court du jour ou l'etat delictueux a cesse en matiere d'infractions continues ou continuees. I

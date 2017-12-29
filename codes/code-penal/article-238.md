@@ -1,3 +1,3 @@
 # Article 238
 
-La provocation en duel est punie d'une amende de dix mille francs à trente mille francs.
+Est puni par des peines prevues a !'article precedent, quiconque a detruit ou degrade des tombeaux ou pierres sepulturales. §3. De l'anthropophagie

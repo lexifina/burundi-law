@@ -1,5 +1,21 @@
 # Article 585
 
-Le complot contre la vie ou contre la personne du Chef de l’Etat est puni d’une servitude pénale de dix ans à quinze ans et d’une amende de cinquante mille francs à deux cent mille francs si quelque acte a été commis pour en préparer l’exécution. S’il y a eu proposition faite et non agréées de former un complot contre la vie ou contre la per-sonne du Chef de l’Etat, celui qui a fait une telle proposition est puni d’une servitude pénale d’un an à cinq et d’une amende de dix mille francs à cin-quante mille francs.
+Pour ce qui est des in.fractions d'attentat a la pudeur et du viol, le juge prononce, en plus de la peine principale, au moins l'une des peines complementaires suivantes:
 
-Section 2 Des attentats, complots et autres infractions contre l’autorité de l’Etat et l’intégrité du territoire
+1°.
+
+La publication de la condamnation;
+
+2°.
+
+La presentation du condamne au public;
+
+3°. L'interdiction d'exercer des droits civiques, civils et de famille;
+
+4°. L'interdiction de sejour;
+
+5°.
+
+Le suivi socio- judiciaire. Si 1~ j uge pro nonce la peine prevue au point 1 °, l'identite de la victime n'est ni publiee ni diffusee au public.
+
+Section 4 Du harcelement sexuel

@@ -1,11 +1,3 @@
 # Article 454
 
-Sont également
-
-1° Les opérations financières de l'Etat, faites avec primes ou remboursables par la voie du sort ; exemptées :
-
-2° Les opérations financières de mêmes na-tures faites par les puissances étrangères, lorsque l'émission des titres relatifs à ces opérations a été autorisée par le Président de la République ou son délégué ;
-
-3° Les opérations financières de même na-ture faites par les communes, ainsi que les opérations des sociétés faisant acces-soirement des remboursements avec primes par la voie du sort, lorsqu'elles ont été autorisées par le Président de la Ré-publique ou son délégué.
-
-Section 3 Des concours de pronostics
+Est punie d'une servitude penale de dix a vingt ans et d'une amende de cinquante mille a un million de francs burundais, toute personne depositaire de l'autorite publique, chargee d'une mission de service public ou investie d'un mandat public electif, tout comptable public, tout depositaire public ou l'un de ses subordonnes, qui commet a des fins frauduleuses des irregularites dans !'execution des comptes et budgets de l'Etat, des administrations publiques, des collectivites locales, des etablissements publics, des societes a participation publique ou d'economie mixte, des organismes bancaires, des unites autogerees de consommation, de production industrielle ou agricole, de tout organisme de droit prive assurant la gestion d'un service public. Les poursuites sont engagees centre tous ceux qui ont pris part a !'infraction en ayant connaissance de la non authenticite des especes ou valeurs. '9 ,' §5. Du favoritisme

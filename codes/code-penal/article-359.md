@@ -1,3 +1,3 @@
 # Article 359
 
-Est punie d'une amende de dix mille francs à trente mille francs, toute personne qui, obligée de faire les déclarations de naissance ou de décès, ne les fait pas dans un délai légal, ou celle qui, convo-quée par l'officier de l'état civil pour faire des dé-clarations de naissance ou de décès, refuse de com-paraître ou de témoigner.
+Est puni d'une servitude penale d'un an a dix ans et d'une amende de cinquante mille a cent mille francs burundais, tout magistrat, tout fonctionnaire ou officier public qui, en redigeant des actes de sa fonction, en denature frauduleusement la substance ou les circonstances, soit en ecrivant les conventions autres que celles qui ont ete tracees ou dictees par les pa1iies, soit en constatant comme vrais des faits qu'il savait faux, soit en attestant faussement que les faits avaient ete avoues ou s'etaient passes en sa presence, soit en omettant ou en modifiant volontairement des declarations re9ues par lui.

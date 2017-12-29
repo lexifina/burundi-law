@@ -1,5 +1,7 @@
 # Article 603
 
-Est puni d'une servitude pénale de dix ans à vingt ans et d'une amende de cinquante mille francs à deux cent mille francs quiconque a porté atteinte à l'économie ou à la sécurité nationale en volant, en détruisant, en renversant ou en dégradant, par quelque moyen que ce soit, en tout ou en partie, des bâtiments, ponts, digues, chaussée, chemins de fer, appareils télégraphiques ou téléphoniques ou autres constructions appartenant à l'Etat ou aux autres or-ganes étatiques ou para-étatiques.
+Les peines prevues aux articles 593 a 596, 600 et 601, 1 ° sont portees au double si !'auteur de l'infraction est un Burundais.
 
-Section 7 Des Définitions portant sur les dispositions, des sections 1 à 6
+La peine portee a l'article 597 est la servitude penale de trente ans si !'auteur de !'infraction est un Burundais.
+
+Section 3 Du mercenariat

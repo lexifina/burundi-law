@@ -1,3 +1,3 @@
 # Article 524
 
-Quand il a été statué sur la garde d'un enfant par décision de justice exécutoire, le père, la mère ou toute autre personne qui ne représente pas l'enfant à ceux qui ont le droit de le réclamer, ou qui l'enlève de chez ceux auxquels sa garde a été confiée ou des lieux où ceux-ci l'avaient placé, est puni d'un mois à un an de servitude pénale et de vingt mille francs à cinquante mille francs d'amende ou d'une de ces peines seulement.
+Est vagabond, toute personne qui erre sans exercer de profession ou de metier, sans posseder de moyens de subsistance et qui ne justifie pas d'un domicile certain. / Le vagabond est puni d'une servitude penale de quatorze jours a deux mois et d'une amende de cinq a dix mille francs burundais ou d'une de ces peines seulement.

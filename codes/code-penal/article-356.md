@@ -1,7 +1,3 @@
 # Article 356
 
-1°. Est puni d'une servitude pénale de deux mois à deux ans et d'une amende de cinquante mille francs à cent mille francs ou de l'une de ces deux peines seulement quiconque:
-
-2°. Etablit sciemment une attestation ou un certificat relatant des faits matériellement inexacts ; Falsifie ou modifie d'une façon quelconque une attestation ou un certificat originaire-ment sincère ;
-
-3°. Fait sciemment usage d'une attestation ou d'un certificat inexact ou falsifié.
+Toute personne qui a publiquement porte une decoration, un ruban, ou autre insigne d'un ordre qui ne lui appartient pas, est punie d'une servitude penale de huit jours a un mois et d'une amende de dix mille a trente mille francs burundais ou d'une de ces peines seulement. CHAPITREV DES FAUX COMMIS EN ECRITURE ET DANS LES DEPECHES ELECTRONIQUES Section 1 De la definition

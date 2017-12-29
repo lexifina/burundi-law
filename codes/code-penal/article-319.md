@@ -1,3 +1,5 @@
 # Article 319
 
-Sont punis d'une servitude pénale de dix ans à vingt ans et d'une amende de cent mille francs à cinq cent mille francs, les propriétaires exclusifs des choses désignées aux deux précédents articles qui y ont mis le feu dans une intention méchante ou frauduleuse. Celui qui, dans l'intention de commettre l'un des faits prévus aux précédents articles, a mis le feu à des objets quelconques placés de manière à le communiquer à la chose qu'il voulait détruire est puni comme s'il avait directement mis le feu à cette dernière chose.
+Celui qui a recele en tout ou en partie les choses obtenues a l'aide d'une infraction est punie d'une servitude penale de six mois a cinq ans et d'une amende de vingt mille a cent mille francs burundais ou d'une de ces peines seulement.
+
+Section 9 Du eel frauduleux

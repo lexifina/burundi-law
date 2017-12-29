@@ -1,5 +1,9 @@
 # Article 463
 
-Les dispositions des articles 460 et 461 sont ap-plicables à toute personne qui, directement ou par personne interposée, a en fait exercé la gestion d'une société à responsabilité limitée sous le cou-vert ou en lieu et place de ses représentants légaux.
+Les jeux de hasard sont ceux dans lesquels le hasard est !'element essentiel et preponderant et predomine sur l'adresse, l'egalite ou les combinaisons des joueurs qui y engagent, dans l'espoir de realiser un gain appreciable, des sommes d'argent relativement considerables eu egard a leurs facultes contributives.
 
-Section 3 Des infractions en rapport avec le contrôle des sociétés
+La tenue des jeux de hasard consiste dans le fait d'organiser ou faciliter la passion d'autrui pour ces jeux, en vue d'en tirer un profit pecuniaire personnel.
+
+Les jeux de hasard sont interdits dans les lieux publics ou ouverts au public, clans tous les lieux non clotures ou le public peut avoir vue directement, ainsi que dans tous autres lieux, meme prives, ou quiconque, desireux de s'adonner aujeu est admis librement a penetrer.
+
+Les jeux de hasard sont interdits aux mineurs de moins de dix-huit ans.

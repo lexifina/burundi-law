@@ -1,3 +1,3 @@
 # Article 190
 
-En cas de rejet de la demande, une nouvelle demande ne peut être introduite avant l'expiration d'un délai de deux années, à moins que le rejet de la première n'ait été motivé par l'insuffisance du délai d'épreuves ; en ce cas, la demande peut être renou-velée dès l'expiration de ce délai.
+Le condamne adresse la demande de rehabilitation a l'Officier du Ministere Public de sa residence. Cette demande precise la date de la condamnation et les lieux ou le condamne a reside depuis sa liberation. L'Officier du Ministere Public precede a une enquete de moralite sur le condamne. II se fait delivrer une expedition des jugements de condamnation, un extrait du registre des lieux de detention ou la peine a ete subie et constatant quelle a ete la conduite du condamne ainsi qu'un bulletin du easier judiciaire. 11 transmet les pieces avec son avis au Procureur General pres la Cour d'Appel.

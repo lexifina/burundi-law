@@ -1,5 +1,5 @@
 # Article 269
 
-L'extorsion en bande organisée est punie de vingt ans de servitude pénale et d'une amende de cent mille francs à cinq cent mille francs.
+Est qualifie harcelement, le fait de proceder a des appels telephoniques malveillants et reiteres, d'adresser a autrui des lettres anonymes ou tracts ou de lui proferer des menaces de toute sorte en vue de troubler sa tranquillite. Quiconque a harcele une personne au sens de l'alinea precedent est puni d'une peine de servitude penale d'un mois a deux ans et d'une amende de dix mille a cent mille francs burundais.
 
-La peine est portée à trente ans de servitude pé-nale lorsque l'extorsion est précédée, accompagnée ou suivie de violences sur autrui ayant entraîné une mutilation ou une infirmité permanente. L'extorsion en bande organisée est punie de ser-vitude pénale de trente ans lorsqu'elle est commise avec usage ou menace d'une arme quelconque.
+Section 6 De· la disposition commune

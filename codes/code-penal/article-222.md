@@ -1,3 +1,3 @@
 # Article 222
 
-Celui qui, intentionnellement a mutilé le corps d'une personne, un de ses membres ou de ses or-ganes ou rendu ce membre ou cet organe impropre à sa fonction, ou a causé à une personne une inca-pacité de travail, une infirmité ou une maladie men-tale permanentes, ou a défiguré une personne d'une façon grave et permanente, est puni d'une servitude pénale de dix ans à vingt ans et d'une amende de cent mille francs à cinq cent mille francs. Sont assimilées à la mutilation les pratiques d'excision.
+Si les coups ou les blessures ont cause une maladie ou une incapacite de travail permanente ; ou s'il en est resulte la perte de l'usage absolu d'un organe ou une mutilation grave, ou s'ils ont ete portes contre une femme enceinte et dont !'auteur connaissait l'etat, les peines sont une servitude penale de deux a dix ans et une amende de cinquante mille a deux cent mille francs burundais.

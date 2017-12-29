@@ -1,3 +1,3 @@
 # Article 99
 
-La contrainte par corps n'est ni exercée ni main-tenue contre les condamnés qui ont atteint leur soixantième année ou atteint d'une maladie incu-rable à un stade très avancé constaté par une Com-mission Médicale ad hoc.
+La duree de la contrainte par corps est proportionnelle au montant des sommes dues a raison de six mois par tranche ou partie de tranche de cent mille francs. /

@@ -1,11 +1,19 @@
 # Article 555
 
-Commet un viol, soit à l'aide de violences ou menaces graves ou par contrainte à l'encontre d'une personne, directement ou par l'intermédiaire d'un tiers, soit par surprise, par pression psychologique, soit à l'occasion d'un environnement coercitif, soit en abusant d'une personne qui, par le fait d'une ma-ladie, par l'altération de ses facultés ou par toute autre cause accidentelle aurait perdu l'usage de ses sens ou en aurait été privé par quelques artifices, et même si la victime est l'époux de cette personne :
+Sont considerees cornme inceste et punies d'une servitude penale de deux a cinq ans, les relations sexuelles entre : 1 °. Parents en ligne descendante et ascendante directe, que les liens de parente soient legitimes, naturels ou adoptifs ;
 
-1° Tout homme, quel que soit son âge, qui in-troduit son organe sexuel, même superfi-ciellement dans celui d'une femme ou toute femme, quel que soit son âge, qui a obligé un homme à introduire, même su-perficiellement, son organe sexuel dans le sien ;
+2°. Freres et sceurs germains, consanguins ou uterins ; 3 °. Une personne et un enfant de ses freres ou sreurs germains, consanguins ou uterins, ou avec un descendant de celui-ci;
 
-2° Tout homme qui a fait pénétrer, même su-perficiellement, par la voie anale, la bouche ou tout autre orifice du corps d'une femme ou d'un homme son organe sexuel, toute autre partie du corps ou tout autre objet quelconque ;
+4°.
 
-3° Toute personne qui introduit, même super-ficiellement, toute autre partie du corps ou un objet quelconque dans le sexe féminin ;
+Le paratre ou la maratre et le descendant de l'autre conjoint. Dans tousles cas, si l'inceste est commis par une personne majeure avec un mineur de moins de dix-huit ans, la peine encourue par l'auteur est celle prevue pour le viol avec violences.
 
-4° Toute personne qui oblige à un homme ou une femme de pénétrer, même superficiel-lement, son orifice anal, sa bouche par un organe sexuel ; Est puni de cinq ans à quinze ans de servitude pénale et d'une amende de cinquante mille francs à cent mille francs.
+La condamnation prononcee contre l'auteur de !'infraction comporte :
+
+1°. La perte de l'autorite parentale ou de la tutelle legale;
+
+2°. L'interdiction des droits civiques, civils et de famille ;
+
+3°. La publication de la condamnation ;
+
+4°. La presentation du condamne au public. §2. De l'abandon de famille

@@ -1,5 +1,5 @@
 # Article 62
 
-Lorsque la chose à confisquer n'a pas été saisie ou ne peut être représentée, la confiscation est or-donnée en valeur. Pour le recouvrement de la somme représentative de la valeur de la chose à confisquer, les dispositions relatives à la contrainte par corps sont applicables.
+Lorsque la chose a confisquer n'a pas ete saisie ou ne peut etre representee, la confiscation est ordonnee en valeur. Pour le recouvrement de la somme representative de la valeur de la chose a confisquer, les dispositions relatives a la contrainte par corps sont applicables.
 
-La chose confisquée est, sauf dispositions parti-culières contraires prévoyant sa destruction ou son attribution, dévolue à l'Etat ; elle demeure néan-moins grevée, à concurrence de sa valeur, des droits réels licitement constitués au profit des tiers.
+La chose confisquee est, sauf dispositions particulieres contraires prevoyant sa destruction ou son attribution, devalue a l'Etat; elle demeure neanmoins grevee, a concurrence de sa valeur, des droits reels licitement constitues au profit des tiers.

@@ -1,5 +1,5 @@
 # Article 504
 
-Est puni d'une servitude pénale d'un mois maximum et d'une amende de dix mille francs à cinquante mille francs ou d'une de ces peines seu-lement, celui qui s'est rendu coupable de bruits et tapage nocturnes de nature à troubler la tranquillité des habitants.
+Le condamne qui contrevient a !'obligation de s'eloigner de certains lieux ou d'une certaine region ou d'habiter dans un lieu determine prevue aux articles 74 a 77, est puni d'une servitude penale de six mois maximum.
 
-TITRE VIII DES INFRACTIONS CONTRE LA FAMILLE ET LA MORALITE PUBLIQUE CHAPITRE I DES INFRACTIONS CONTRE L'ORDRE DES FAMILLES Section 1 De l'avortement
+CHAPITRE VI D'AUTRES FAITS SUSCEPTIBLES DE PORTER ATTEINTE A LA SECURITE PUBLIQUE Section 1 Des stupeflants

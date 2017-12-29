@@ -1,5 +1,5 @@
 # Article 181
 
-En cas de condamnation à une ou plusieurs peines complémentaires, l'effacement ne peut in-tervenir qu'après avoir exécuté ces dernières.
+La grace amnistiante efface ou reduit les condamnations penales ; elle laisse subsister les autres effets de l'action publique ou de la condamnation.
 
-Section 2 De la réhabilitation
+CHAPITRE VIII DE L'EFFACEMENT DES PEINES ET DE LA REHABILITATION DES CONDAMNES Section 1 De /'effacement des peines

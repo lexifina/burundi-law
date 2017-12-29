@@ -1,9 +1,7 @@
 # Article 460
 
-Sont punis de cinquante mille francs à cinq cent mille francs d'amende, les gérants, directeurs géné-raux, directeurs, membres du directoire ou du con-seil de surveillance, ou administrateurs de sociétés qui :
+Les personnes morales coupables de l'une des infractions prevues par le present chapitre peuvent encourir egalement au moins une des peines complementaires suivantes : 1 °. La confiscation speciale telle qu'elle est prevue par le present code ;
 
-1° N'ont pas établi à chaque exercice le bilan et les autres documents comptables exi-gibles et un rapport sur les opérations de l'exercice ;
+2°. Pour une duree de cinq ans au maximum : l'interdiction d'exercer directement ou indirectement l'activite professionnelle ou sociale clans laquelle ou a !'occasion de l'exercice de laquelle !'infraction a ete commise; la fermeture des etablissements de l'entreprise ayant' servi a commettre les faits incrimines ; !'exclusion des marches publics ;
 
-2° Ont refusé ou négligé de communiquer aux associés et aux actionnaires avant l'assemblée générale le bilan et les autres documents exigibles pour apprécier leur gestion ;
-
-3° Ont refusé ou négligé d'établir le procès-verbal de délibération d'une assemblée générale ; ont omis de faire publier dans le délai réglementaire les délibérations entraînant modification des statuts, des pouvoirs des gérants, directeurs généraux, directeurs, membres du directoire ou du conseil de surveillance, ou administra-teurs de sociétés, ou du capital social en ce qui concerne les sociétés de capitaux.
+3°. L'affichage ou la diffusion de la decision prononcee.

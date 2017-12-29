@@ -1,3 +1,3 @@
 # Article 347
 
-Dans les cas visés au présent chapitre, celui qui fait usage de la pièce qu'il savait fausse, est puni d'une servitude pénale d'un an à dix ans et d'une amende de cinquante mille francs à cent mille francs. §2. Des faux en écriture privée, de com-merce ou de banque
+Sont punis comme coupables de tromperie telle que prevue a l'article 317, ceux qui ont donne ou offert en paiement des jetons, medailles, pieces metalliques, imprimes ou formules, obtenus par un precede quelconque et presentant par leur forme exterieure avec les monnaies ou billets au porteur ayant cours legal au Burundi ou a l'etranger, une ressemblance de nature a en faciliter !'acceptation en lieu et place des valeurs imitees. CHAPITREII DE LA CONTREFA<;ON OU, FALSIFICATION DES SCEAUX, DES TIMBRES, POIN<;ONS OU AUTRES MARQUES DE L'AUTORITE

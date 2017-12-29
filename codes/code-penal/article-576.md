@@ -1,7 +1,17 @@
 # Article 576
 
-Est puni d'une servitude pénale d'un an à cinq ans et d'une amende de cinquante mille francs à cent mille francs quiconque :
+Le minimum des peines portees par les articles de la presente section est double : 1 °. Lorsque l'attentat est commis par un ascendant ou descendant legitime, nature! ou adoptif de la victime ;
 
-1°. S'introduit sous un déguisement ou un faux nom, ou en dissimulant sa qualité ou sa na-tionalité, dans un ouvrage de défense, poste, dépôt ou magasin militaire, dans un bâ-timent de guerre ou un bâtiment de commerce employé pour la défense nationale, dans un éta-blissement militaire ou dans un établissement ou chantier intéressant la défense nationale ;
+2°. Lorsque l'attentat est commis par une personne ayant autorite sur la victime;
 
-2°. Même sans se déguiser, ou sans dissimuler son nom, sa qualité ou sa nationalité, a or-ganisé d'une manière occulte un moyen quelconque de correspondance ou de transmission à distance de nature à nuire à la défense nationale.
+3°. Lorsque l'attentat est commis par une personne qui a abuse de l'autorite que lui conferent ses fonctions ;
+
+4°. Lorsque l'attentat a ete commis par des medecins, chirurgiens, accoucheurs, envers les personnes con:fiees a leurs soins ;
+
+5°. Lorsque l'attentat a la pudeur est commis sur une personne vulnerable en raison d'une maladie, d'une infirmite ou d'une deficience physique ou mentale ou d'un etat de grossesse;
+
+6°. Lorsque l'attentat a la pudeur est commis sous la menace d'une arme;
+
+7°. Lorsque l'attentat est commis par un ministre du culte.
+
+Section 3 Du viol

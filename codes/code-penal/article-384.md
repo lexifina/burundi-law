@@ -1,5 +1,3 @@
 # Article 384
 
-Quiconque, par voies de fait, s'est opposé à l'exécution de travaux ordonnés ou autorisés par le pouvoir compétent, est puni d'une servitude pénale de huit jours à deux mois et d'une amende de dix mille francs à trente mille francs ou d'une de ces peines seulement. Si l'opposition à ces travaux a lieu par attrou-pement et violences, voies de fait ou menaces, les coupables sont punis d'une servitude pénale de deux à trois ans et d'une amende de trente mille francs à cinquante mille francs ou d'une de ces peines seulement.
-
-Section 4 De la publication et de la distribution des écrits
+Lorsqu'un mandataire de l'Etat, un officier public ou un executeur d'un mandat de justice ou des decisions judiciaires ou de tout autre ordre ou decision de l'autorite, a, sans motif legitime, use ou fait user des violences envers les personnes dans l'exercice ou a l'occasion de l'exercice de ses fonctions, il est puni d'une servitude penale d'un an a cinq ans et d'une amende de cinquante mille a cent mille francs burundais ou d'une de ces peines seulement.

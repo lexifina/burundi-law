@@ -1,5 +1,3 @@
 # Article 252
 
-Quiconque a injurié publiquement une personne est puni d'une servitude pénale d'un mois à un an et d'une amende de dix mille francs à cent mille francs ou d'une de ces peines seulement.
-
-Section 3 De l'aversion raciale
+Quiconque divulgue ou laisse connaitre sans y etre habilite, une information obtenue dans le cadre de ses fonctions officielles et qui permet d'identifier une victime ou un temoin de !'infraction prevue a !'article 246, est punide servitude penale de six mois a trois ans et d'une amende de cinquante mille a cent mille francs burundais.

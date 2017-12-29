@@ -1,3 +1,3 @@
 # Article 575
 
-Est puni d'une servitude pénale de six mois à un an et d'une amende de cinquante mille francs à cent mille francs, quiconque, sans intention de trahison ou d'espionnage, a porté à la connaissance d'une personne non qualifiée ou du public, une informa-tion militaire non rendue publique par l'autorité compétente et dont la divulgation est manifeste-ment de nature à nuire à la défense nationale.
+Tout attentat a la pudeur commis sans violences, ruse ou menaces sur la personne ou a l'aide de la personne d'un enfant age ou apparemment age de moins de dix-huit ans, est puni d'une servitude penale de cinq a quinze ans et d'une amende de cinquante mille a deux cent mille francs burundais. L'age de l'enfant peut etre determine notamment par examen medical a defaut d'etat civil. Si l'attentat a ete commis avec violences, ruse ou menaces, la peine de servitude penale est de cinq ans a vingt ans.

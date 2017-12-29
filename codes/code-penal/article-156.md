@@ -1,3 +1,5 @@
 # Article 156
 
-Les délais des dispositions de ce chapitre cou-rent de la date du jour où le jugement ou l'arrêt rendu est définitif et coulé en force de chose jugée.
+Les peines de servitude penale en matiere criminelle se prescrivent par un delai egal au double de la peine prononcee sans que ce delai ne depasse vingt ans.
+
+Les peines perpetuelles se prescrivent par trente ans.

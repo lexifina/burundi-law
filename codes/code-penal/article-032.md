@@ -1,3 +1,3 @@
 # Article 32
 
-Nul crime ni délit ne peut être excusé si ce n'est dans les cas déterminés par la loi.
+Nul crime ni delit ne peut etre excuse si ce n'est dans les cas determines par la loi.

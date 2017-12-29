@@ -1,3 +1,5 @@
 # Article 320
 
-Sont punis d'une servitude pénale de deux mois à un an et d'une amende de cinquante mille francs à deux cents mille francs ou d'une de ces peines seu-lement, ceux qui, sans préjudice des dispositions relatives à la réglementation sur l'incendie des herbes et végétaux sur pied, ont, par défaut de pré-voyance et de précaution, mis le feu à des forêts, bois et récoltes sur pied ou coupés.
+Sant punis d'une servitude penale de huit jours a deux ans et d'une amende de dix mille a cinquante mille francs burundais ou d'une de ces peines seulement, ceux qui, ayant trouve une chose mobiliere appartenant a autrui, ou en ayant obtenu par hasard la possession, l'ont frauduleusement celee ou livree a des tiers.
+
+Section 10 De la grivelerie

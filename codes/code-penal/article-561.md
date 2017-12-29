@@ -1,3 +1,3 @@
 # Article 561
 
-L'ordre hiérarchique ou le commandement d'une autorité légitime civile ou militaire n'exonère nul-lement l'auteur d'une infraction relative aux vio-lences sexuelles de sa responsabilité.
+Constitue un acte de prostitution le fait de livrer son corps au plaisir d'autrui et d'en faire un metier. §1. De l'incitation a la debauche et a la prostitution

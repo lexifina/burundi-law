@@ -1,27 +1,23 @@
 # Article 60
 
-Les peines complémentaires applicables aux personnes physiques sont :
+Les peines complementaires applicables aux personnes physiques sont : 1 °.
 
-2°.
+La confiscation speciale ;
 
-La confiscation spéciale ;
+2°. L'interdiction;
 
-3°. L'interdiction ;
+3°. Le suivi socio-judiciaire;
 
 4°.
 
-Le suivi socio-judiciaire ;
+La mise a la disposition du Gouvemement;
 
-5°.
-
-La mise à la disposition du Gouvernement ;
+5°. La fermeture d'etablissement;
 
 6°.
 
-La publicité de la condamnation sauf si l'auteur de l'infraction est un mineur de moins de dix-huit ans ;
+La publicite de la condamnation sauf si !'auteur de !'infraction est un mineur de moins de dix-huit ans ;
 
-La fermeture d'établissement ;
+7°. Le retrait temporaire ou definitif du permis de conduire ;
 
-7°.
-
-La présentation du condamné au public. 1. De la confiscation spéciale
+8°. La presentation du condamne au public. 1. De la confiscation speciale

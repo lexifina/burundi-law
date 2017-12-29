@@ -1,3 +1,11 @@
 # Article 316
 
-Sont punis d'une servitude pénale à perpétuité, ceux qui ont mis le feu soit à des édifices, navires, magasins, ou tous autres lieux quelconques servant à l'habitation soit à tous les lieux, même inhabités, et contenant une ou plusieurs personnes au moment de l'incendie, si, d'après les circonstances, l'auteur a dû présumer qu'il s'y trouvait une ou plusieurs per-sonnes au moment de l'infraction.
+Les peines sont de deux ans a cinq ans de servitude penale et d'une amende de cent mille a un million de francs burundais ou d'une de ces peines seulement lorsque l'escroquerie est realisee: 1 °. Par une personne qui fait appel au public en vue de !'emission de titres ou en vue de la collecte de fonds a des fins d'entraide humanitaire ou sociale ;
+
+2°. Par une personne depositaire de l'autorite publique ou chargee d'une mission de service public, dans l'exercice de ses fonctions ou de sa mission;
+
+3°. Par une personne qui s'approprie indOment la qualite d'une pcrsonne depositaire de l'autorite publique ou chargee d'une mission de service public ;
+
+4°. Au prejudice d'une personne vulnerable en raison de son age, sa maladie, son infirmite, sa deficience physique ou psychique apparente ou connue de son auteur ;
+
+5°. En bande organisee. §2. De la tromperie

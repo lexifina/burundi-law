@@ -1,3 +1,5 @@
 # Article 337
 
-Ceux qui, dans un but de fraude, ont fait subir aux timbres poste ou cartes postales du Burundi ou des Etats étrangers ou des organisations internatio-nales une altération ou une préparation quelconque ou qui ont, avec ou sans intention frauduleuse, con-trefait ces timbres ou ces cartes, sont punis d'une amende de dix mille francs à cent mille francs pour chaque cas.
+Est puni d'une servitude penale d'un an a cinq ans et d'une amende de dix mille a cent mille francs burundais ou d'une de ces peines seulement, quiconque a detruit ou degrade des signes commemoratifs des monuments, des statues ou autres objets destines a l'utilite ou a la decoration publique.
+
+Section 3 De la destruction et de la degradation d'arbres, de recoltes ou d'autres proprietes

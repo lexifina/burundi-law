@@ -1,3 +1,5 @@
 # Article 406
 
-Sans préjudice de l'application de l'article 14 de la loi n° 1/12 du 18 avril 2006 portant mesures de prévention et de répression de la corruption et des infractions connexes, le fait de dénoncer à l'autorité judiciaire ou administrative des faits mensongers constitutifs d'un crime ou d'un délit qui ont exposé les autorités judiciaires à d'inutiles enquêtes est pu-ni d'un mois à trois mois de servitude pénale et d'une amende de cinquante mille francs à cent mille francs ou d'une de ces peines seulement. §2. Des bris de scellés
+Ne sont pas concemes par les dispositions penales prevues sous ce paragraphe, les ascendants, les descendants, les epoux ou epouses meme divorces, les freres ou sreurs et allies au deuxieme degre des auteurs ou complices de !'homicide, des coups et blessures sauf si leur responsabilite individuelle est etablie.
+
+Section 2 Des entraves a l'exercice de la justice §1. Du deni de justice et de la violation des delais de procedure

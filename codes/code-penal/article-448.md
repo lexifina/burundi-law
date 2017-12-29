@@ -1,7 +1,3 @@
 # Article 448
 
-Est puni d'un an à deux ans de servitude pénale et d'une amende de cinquante mille francs au maximum ou d'une de ces peines seulement:
-
-2° Quiconque a joué à des jeux de hasard dans ces mêmes endroits et conditions.
-
-Section 2 Des loteries
+Est punie d'une servitude penale de cinq a dix ans et d'une amende de cinquante mille a cinq cent mille francs burundais, toute personne depositaire de l'autorite publique, chargee d'une mission de service public ou investie d'un mandat public electif, qui a sollicite ou agree, sans droit, a tout moment, directement ou indirectement, pour son propre compte ou pour le compte d'autrui, des offres, des promesses, des dons, des presents ou des avantages quelconques pour user ou avoir use de son influence reelle ou supposee en vue de faire obtenir d'une autorite ou d'une administration publique des distinctions, des emplois, des marches ou toute autre decision favorable.

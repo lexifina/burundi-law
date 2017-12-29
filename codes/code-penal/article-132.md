@@ -1,3 +1,3 @@
 # Article 132
 
-La réintégration a lieu, en vertu de l'ordonnance de révocation, pour l'achèvement du terme d'incarcération que l'exécution de la peine compor-tait encore à la date de la libération.
+La liberation definitive est acquise au condamne si la revocation n'est pas intervenue avant l'expiration d'un delai egal au double du terme d'incarceration que celui-ci avait encore a subir a la date a laquelle la mise en liberte a ete ordonnee en sa faveur.

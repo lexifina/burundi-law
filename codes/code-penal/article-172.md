@@ -1,3 +1,3 @@
 # Article 172
 
-L'amnistie est en principe générale ; toutefois, elle peut être limitée à certaines catégories d'infrac-tions.
+La grace n'eteint pas les peines prononcees contre le genocide, les crimes centre l'humanite et les crimes de guerre. CHAPITREVI DE L'AMNISTIE

@@ -1,3 +1,5 @@
 # Article 372
 
-Est qualifié de rébellion toute attaque, toute ré-sistance avec violences ou menaces envers les dé-positaires ou agents de l'autorité ou de la force pu-blique, agissant pour l'exécution des lois, des ordres ou ordonnances de l'autorité publique, ju-gements ou autres actes exécutoires.
+Les faux reprimes au present chapitre, lorsqu'ils sont commis au prejudice du Tresor Public ou d 1un tiers sont punis suivant leur nature, soit comme faux en ecriture publique ou authentique, soit comme faux en ecriture privee, de commerce ou de banque.
+
+Section 3 Des faux commis dans Jes dep€ches electroniques

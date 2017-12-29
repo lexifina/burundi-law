@@ -1,5 +1,3 @@
 # Article 258
 
-Quiconque a soustrait frauduleusement une chose qui ne lui appartient pas est coupable de vol.
-
-La soustraction frauduleuse d'impulsions télé-phoniques au préjudice d'autrui est assimilée au vol.
+Est puni des peines prevues par et selon les dispositions de !'article precedent, celui qui a enleve ou fait enlever, arrete ou ·fait arreter, detenu ou fait detenir des personnes quelconques pour les vendre comme esclaves, ou qui a dispose des personnes placees sous son autorite dans le meme but. 7 Section 3 De la violation de domicile

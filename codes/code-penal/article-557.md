@@ -1,15 +1,7 @@
 # Article 557
 
-Le viol est puni de vingt ans à trente ans et d'une amende de cent mille francs à cinq cent mille francs :
+Est puni de deux mois a six mois de servitude penale et d'une amende de dix mille a cinquante mille francs burundais ou d'une de ces peines seulement, quiconque, ayant ete condamne par une decision judiciaire coulee en force de chose jugee, a foumir une pension alimentaire a son conjoint, a ses descendants ou a ses ascendants est volontairement demeure plus de deux mois sans en acquitter les tennes.
 
-1° Lorsqu'il est commis par plusieurs per-sonnes agissant en qualité d'auteur ou de complice ;
+Le defaut de payement est presume volontaire jusqu'a preuve du contraire. L'insolvabilite qui resulte de l'inconduite habituelle, de la paresse, de l'ivrognerie ou des engagements pris apres la saisine du tribunal n'est en aucun cas un motif d'excuse valable pour le debiteur.
 
-2° Lorsque l'auteur est porteur d'une arme ;
-
-3° Lorsqu'il a causé à la victime une altéra-tion grave de sa santé et/ou laissé de sé-quelles physiques et/ou psychologiques graves notamment une mutilation, une in-firmité permanente ou la transmission d'une maladie.
-
-4° Lorsqu'il est commis avec usage ou me-nace d'une arme ;
-
-5° Lorsque le viol a été commis sur un en-fant de moins de 12 ans ;
-
-6° Lorsqu'il est commis en public.
+Section 5 Des violences domestiques

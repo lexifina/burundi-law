@@ -1,3 +1,5 @@
 # Article 265
 
-Est puni d'une servitude pénale de six mois à cinq ans et d'une amende de cinquante mille francs à cent mille francs, celui qui a extorqué, à l'aide de violences ou menaces, soit des fonds, valeurs, ob-jets mobiliers, obligations, billets, promesses, quit-tances, soit la signature ou la remise d'un document quelconque contenant ou opérant obligation, dispo-sition ou décharge.
+•1 Quiconque a injurie publiquement une personne est puni d'une servitude penale d'un mois a un an et d'une amende de dix mille a cent mille francs burundaisou d'une de ces peines seulement.
+
+Section 3 De !'aversion raciale

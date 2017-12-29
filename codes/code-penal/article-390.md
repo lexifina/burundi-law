@@ -1,3 +1,3 @@
 # Article 390
 
-Quiconque a recelé ou fait receler, caché ou fait cacher le cadavre d'une personne à des fins de féti-chisme tuée par homicide, ou morte des suites de coups et blessures, est puni de trois mois à deux ans de servitude pénale et d'une amende de vingt mille francs à cent mille francs.
+En cas de rebellion avec bande ou attroupement, les rebelles sans fonction ni emploi dans la bande qui se sont retires au premier avertissement de l'autorite publique ou meme depuis, s'ils ont ete saisis hors du lieu de la rebellion sans nouvelle resistance et sans armes sont punis d'une servitude penale d'un mois a six mois et d'une amende de dix mille a cinquante mille francs burundais ou d'une de ces peines seulement.

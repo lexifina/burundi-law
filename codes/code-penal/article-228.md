@@ -1,5 +1,5 @@
 # Article 228
 
-Est puni des peines prévues à l'article 226 celui qui a, involontairement, causé à autrui une maladie ou une incapacité de travail permanente en lui ad-ministrant des substances qui sont de nature à don-ner la mort ou à altérer gravement sa santé.
+Quiconque a involontairement cause la mart d'une personne est puni d'une servitude penale de trois mois a deux ans et d'une amende de cinquante mille a cinq cent mille francs burundais ou d'une de ces peines seulement.
 
-CHAPITRE V DES EPREUVES SUPERSTITIEUSES ET DES PRATIQUES BARBARES Section 1 Des épreuves superstitieuses
+Section 2 Des lesions corporelles involontaires

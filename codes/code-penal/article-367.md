@@ -1,3 +1,5 @@
 # Article 367
 
-La servitude pénale est d'un an à cinq ans et d'une amende de cent mille francs à cinq cent mille francs ou d'une de ces peines seulement si le cou-pable a utilisé la violence, a requis ou ordonné, fait requérir ou ordonner l'action ou l'emploi de la force publique pour s'opposer à l'exécution ordonnée.
+Les peines prevues a l'article precedent sont appliquees a : 1 °. Celui qui, sciemment, fait usage desdits documents contrefaits, falsifies ou alteres ;
+
+2°. Celui qui fait usage d'un des documents vises a !'article precedent, sachant que les mentions qui y figurent sont devenues incompletes ou inexactes.

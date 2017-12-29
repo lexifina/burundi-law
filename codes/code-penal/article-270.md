@@ -1,5 +1,5 @@
 # Article 270
 
-L'extorsion est punie de la servitude pénale à perpétuité et de cent mille francs à cinq cent mille francs d'amende, lorsqu'elle est précédée, accom-pagnée ou suivie de violences ayant entraîné la mort.
+Pour toutes les infractions prevues a ce chapitre, le juge peut prononcer, aux frais du condamne, la publication du jugement a titre de peine complementaire.
 
-Section 5 Du chantage
+TITRE II DES INFRACTIONS CONTRE LES PROPRIETES CHAPITREI DES VOLS ET DES EXTORSIONS Section 1 Du vol simple

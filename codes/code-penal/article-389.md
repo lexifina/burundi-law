@@ -1,3 +1,5 @@
 # Article 389
 
-Sont punis de six mois à deux ans de servitude pénale et d'une amende de dix mille francs à cin-quante mille francs ou d'une de ces peines seule-ment, ceux qui ont recelé ou fait receler des per-sonnes qu'ils savaient être poursuivies ou condam-nées du chef d'une infraction que la loi punit d'une servitude pénale de cinq ans au moins.
+Si la rebellion a ete commise par plusieurs personnes et par suite d'un concert prealable, la servitude penale est portee d'un an a cinq ans et l'amende est de dix mille a cent mille francs burundais.
+
+La servitude penale est portee de cinq ans a dix ans et l'amende de cinquante mille a cent cinquante mille francs burundais a l'encontre des rebelles qui ont fait usage d'armes ou en ont ete trouves porteurs.

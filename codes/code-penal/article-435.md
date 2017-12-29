@@ -1,3 +1,5 @@
 # Article 435
 
-Est punie d'une servitude pénale de dix ans à vingt ans et d'une amende de cinquante mille francs à un million de francs, toute personne dépositaire de l'autorité publique, chargée d'une mission de service public, tout comptable public, tout déposi-taire public ou l'un de ses subordonnés, qui détruit, détourne ou soustrait un acte ou un titre, des fonds publics ou privés, des effets, pièces ou titres en te-nant lieu, ou tout autre objet qui lui a été remis en raison de ses fonctions ou de sa mission.
+Independamment des peines prevues a l'article precedent, i1 est procede a la confiscation du corps du delit. Lorsque, pour une cause quelconque, le corps du delit n'a pu etre saisi ou n'est pas represente, le delinquant est condamne a une amende d'un montant egal a la valeur du corps du delit.
+
+CHAPITRE II DE LA CORRUPTION ET DES INFRACTIONS CONNEXES Section 1 De la corruption Sous-section 1 De la corruption des fonctionnaires publics §1. De la corruption passive

@@ -1,3 +1,9 @@
 # Article 23
 
-Sont assimilées aux personnes morales visées à l'article 21 Si l'infraction est punie de la servitude pénale à perpétuité, l'auteur de la tentative impossible est puni de dix ans de servitude pénale.
+Sont assimilees aux personnes morales visees a !'article 21 : 1?. Les associations momentanees ; ·
+
+2°. Les societes civiles ou commerciales en formation;
+
+3°. Les associations sans but lucratif ou mutualistes en formation;
+
+4°. Les associations de fait.

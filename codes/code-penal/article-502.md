@@ -1,3 +1,3 @@
 # Article 502
 
-Les débiteurs de boissons qui ont contrevenu aux dispositions réglementaires en la matière sont punis d'une amende de vingt mille francs à cent mille francs.
+Si !'infraction a ete commise par une personne preposee a la conduite ou a la garde des detenus, la peine est la servitude penale de deux a cinq ans et d'une amende de dix mille a cinquante mille francs burundais.

@@ -1,3 +1,3 @@
 # Article 369
 
-Lorsqu'un mandataire de l'Etat, un officier pu-blic ou un exécuteur d'un mandat de justice ou des décisions judiciaires ou de tout autre ordre ou déci-sion de l'autorité, a, sans motif légitime, usé ou fait user des violences envers les personnes dans l'exer-cice ou à l'occasion de l'exercice de ses fonctions, il est puni d'une servitude pénale d'un an à cinq ans et d'une amende de cinquante mille francs à cent mille francs ou d'une de ces peines seulement.
+Quiconque, sans qualite, etablit sous le nom d'un fonctionnaire ou officier public, un certificat de bonne conduite, d'indigence ou relatant d'autres circonstances propres a appeler la bienveillance, ou des certificats destines a lui procurer credit ou secours, est puni d'une servitude penale de six mois a deux ans et d'une amende de dix mille a cinquante mille francs burundais ou d'une de ces peines seulement. •

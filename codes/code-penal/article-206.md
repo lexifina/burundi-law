@@ -1,13 +1,3 @@
 # Article 206
 
-L'infraction est punie de la servitude pénale de vingt ans lorsqu'elle est commise
-
-1°. Sur un mineur de moins de dix-huit ans ; :
-
-2°. Sur une personne vulnérable en raison de son âge, de son état de santé, d'une infirmi-té, d'une déficience physique ou psychique ou d'un état de grossesse ;
-
-3°. Sur un témoin, une victime ou une partie civile, soit pour l'empêcher de dénoncer les faits, de porter plainte ou de déposer en jus-tice, soit en raison de sa dénonciation de sa plainte ou de sa déposition.
-
-4°. Par plusieurs personnes agissant en qualité d'auteurs ou de complices ;
-
-5°. Avec usage ou menace d'une arme.
+Est considere comme torture tout acte par lequel une douleur ou des souffrances aigues, physiques ou mentales sont intentionnellement infligees a une personne aux fins notamment d'obtenir d'elle ou d'une tierce personne des renseignements ou des aveux, de la punir d'un acte qu'elle ou une tierce personne a commis ou est soup9onnee d'avoir commis, de l'intimider ou de faire pression sur elle ou d'intimider ou de faire pression sur une tierce personne, ou pour tout autre motif fonde sur une forme de discrimination quelle qu'elle soit, lorsqu'une telle douleur ou de telles souffrances sont infligees par un agent public ou toute autre personne agissant a titre officiel ou a son instigation ou avec son consentement expres ou tacite. Ce terme ne s'etend pas a la douleur ou aux souffrances resultant uniquement de sanctions legitimes, inherentes a ces sanctions ou occasionnees par elles.

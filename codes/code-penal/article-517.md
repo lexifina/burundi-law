@@ -1,3 +1,3 @@
 # Article 517
 
-Est puni des mêmes peines toute personne qui est intervenue comme intermédiaire en obtenant une adoption pour autrui sans être membre d'un organisme préalablement agréé à cette fin, a obtenu une adoption contrevenant aux dispositions de la loi en la matière.
+Les debiteurs de boissons qui ont contrevenu aux dispositions reglementaires en la matiere sont punis d'une amende de vingt mille a cent mille francsburundais.

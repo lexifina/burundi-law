@@ -1,11 +1,3 @@
 # Article 590
 
-Sont punis d'une servitude pénale de cinq ans à vingt ans et d'une amende de cinquante mille francs à deux cent mille francs :
-
-1° Ceux qui, sans droit ou motif légitime, ont pris un commandement militaire quelconque
-
-2° Ceux qui, contre l'ordre du Gouverne-ment, ont retenu un tel commandement;
-
-3° Ceux qui ont tenu leur armée ou troupe rassemblée après que le licenciement ou la séparation en a été ordonnée.
-
-Section 3 Des attentats et complots tendant à porter le mas-sacre, la dévastation et le pillage
+Quiconque fait des relations sexuelles avec une personne de meme sexe est puni d'une servitude penale de trois mois a deux ans et d'une amende de cinquante mille a cent mille francs burundais ou d'une de ces peines seulement. / TITRE IX DES ATTEINTES A LA SURETE DE L'ETAT CHAPITREI DES ATTEINTES A LA SURETE EXTERIEURE DE L'ETAT Section 1 De la trahison et de l'espionnage

@@ -1,3 +1,5 @@
 # Article 306
 
-1. S'est fait servir, dans un établissement à ce destiné, des boissons ou des aliments qu'il y a consommés en tout ou en partie ; De la grivèlerie
+Sont punis des peines prevues a l'article precedent, ceux qui ont stipule, soit avec le failli, soit avec toutes autres personnes, des avantages particuliers a raison de leur vote dans la declaration de faillilt,, ou qui ont fait un traite particulier duquel resulterait, en leur faveur, un avantage a la charge de la masse.
+
+Section 3 De l'organisationfrauduleuse de l'insolvabilite

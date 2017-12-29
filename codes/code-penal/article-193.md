@@ -1,3 +1,3 @@
 # Article 193
 
-La réhabilitation est révoquée de plein droit si le condamné réhabilité commet, dans les cinq ans, une infraction passible d'une servitude pénale égale ou supérieure à cinq ans, et suivie d'une condamna-tion à l'emprisonnement ; à cet effet, le Ministère Public près la juridiction qui a prononcé la con-damnation à l'emprisonnement doit informer le Procureur Général, lequel saisit lui-même la Cour d'Appel aux fins de faire constater la révocation de la réhabilitation, la partie ou son conseil étant dû-ment convoqués. En cas de révocation, la réhabilitation est considérée comme n'ayant jamais été accordée.
+Mention de l'arret pronon9ant la rehabilitation est faite en marge du jugement de condamnation et au easier judiciaire.

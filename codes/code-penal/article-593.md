@@ -1,5 +1,7 @@
 # Article 593
 
-Est puni de la peine de servitude pénale à perpé-tuité, quiconque, en vue de troubler l'Etat par l'un des attentats prévus aux articles 586 et 588, par l'envahissement, ou le partage des propriétés pu-bliques ou privées, ou encore en faisant attaque ou résistance envers la force publique agissant contre les auteurs de ces infractions, s'est mis à la tête des bandes armées ou y a exercé un commandement quelconque.
+Est coupable de trahison et puni de la servitude penale a perpetuite, tout Burundais qui, en temps de guerre : 1 °. Provoque des militaires ou des marins a passer au service d'une puissance etrangere, leur en facilite les moyens ou fait des enrolements pour une puissance en guerre avec le Burundi;
 
-La même peine est appliquée à ceux qui ont di-rigé l'association, levé ou fait lever, organisé ou fait organiser les bandes.
+2°. Entretient des intelligences avec une puissance etrangere ou avec des agents en vue de favoriser les entreprises de cette puissance centre le Burundi ;
+
+3°. Participe sciemment a une entreprise de demoralisation de l'Annee ou de la Nation ayant pour objet de nuire a la defense nationale.

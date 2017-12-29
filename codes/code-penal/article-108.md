@@ -1,19 +1,5 @@
 # Article 108
 
-Lorsque la loi le prévoit, les Cours et Tribunaux peuvent prononcer une ou plusieurs peines sui-vantes :
+Pour les personnes morales ayant le statut de societe commerciale, le juge applique les peines suivantes : 1 °. Lorsque la loi prevoit pour !'infraction une ·peine privative de liberte a perpetuite, le juge applique une amende egale a la moitie du chiffre d'affaire de l'exercice precedent. 7 I
 
-1°. La dissolution ;
-
-2°. L'interdiction, à titre définitif ou pour une durée de cinq ans au plus, d'exercer directe-ment ou indirectement une ou plusieurs acti-vités professionnelles ou sociales ;
-
-3°. La fermeture définitive ou pour une durée de cinq ans au plus des établissements ou de l'un ou de plusieurs établissements de l'en-treprise ayant commis l'infraction au sens de l'article 21 ;
-
-4°. L'exclusion des marchés publics soit à titre dé-finitif soit pour une durée n'excédant pas cinq ans ;
-
-5°. L'interdiction, pour une durée de cinq ans au plus, de faire appel public à l'épargne ;
-
-6°. L'interdiction, pour une durée d'une année au plus, d'émettre des chèques ou d'utiliser des cartes de paiement,
-
-7°. La confiscation de la chose qui a servi ou était destinée à commettre l'infraction ou de la chose qui en est le produit ;
-
-8°. La publicité de la condamnation.
+2°. Lorsque la loi prevoif pour l'infraction une peine privative de liberte a temps, le juge condamne a une amende minimale egale au vingtieme du chiffre d'affaire de l'exercice precedent pendant que le maximum s'eleve a une amende egale a un quart du chiffre d'affaire de l'exercice precedent.

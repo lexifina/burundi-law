@@ -1,3 +1,5 @@
 # Article 577
 
-Est puni d'une servitude pénale d'un an à cinq ans et d'une amende de cinquante mille francs à cent mille francs, quiconque entretient avec les agents d'une puissance étrangère, des intelligences de nature à nuire à la situation militaire, politique ou économique du Burundi.
+Est repute viol avec violences tout acte de penetration sexuelle, de quelque nature qu'il soit et de quelque moyen que ce soit, commis par une personne penalement responsable sur un mineur de moins de dix-huit ans meme consentant. Est egalement repute viol avec violences, le seul fait du rapprochement charnel des sexes commis sur un mineur de moins de dix-huit ans, meme consentant.
+
+Le viol domestique est puni d'une servitude penale de huit jours et une amende de dix mille a cinquante mille francs burundais ou d'une de ces peines seulement.

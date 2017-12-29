@@ -1,5 +1,5 @@
 # Article 91
 
-Bulletin Officiel du Burundi dans une ou plusieurs autres publications de presse ou dans un ou plusieurs services de communication audiovisuelle ou par affichage dans les lieux qu'il détermine, le tout aux frais du condamné.
+• essee OU d'office a . demande d'une partie mt!~ation soit publiee etermint!s par la 101, it la r ue la dt!cision de cond ou lusieurs autres , D~ia~!n c:,, !ibunal, _le jduge ~:~~~~::°~nL1 du Burundiu:i:~::uditvisuelle ou par I appre ar extra1ts ans . rs services de comm inte~ral~men1~upf.sse ou dans un o_u pl~s\:~t aux frais du condamnt!. ffet par la decision de pubhcat10ns ]' x qu'il dOtenmne, e fix6e a cet e affichage dans !es ieu . euvent exceder la somm n mois. . a la Les frais de publicar:~::e ~'affichage puisse exct!.de~ u publication, celle-ci est frute damnation sans que , a payer les fra1s e con . , d condamne d'incapac1te u
 
-Les frais de publication ne peuvent excéder la somme fixée à cet effet par la décision de condam-nation sans que la durée d'affichage puisse excéder un mois. En cas d'incapacité du condamné à payer les frais de publication, celle-ci est faite à la diligence du Ministère public. 7. De la présentation du condamné au public
+• d condulre En casdu Ministere public. ' e ou dOfinitif du permIS e diligence 7. Du retrait tempora1r

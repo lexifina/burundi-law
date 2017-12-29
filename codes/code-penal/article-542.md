@@ -1,3 +1,3 @@
 # Article 542
 
-Est puni de deux ans à cinq ans de servitude pé-nale et d'une amende de cent mille francs à un mil-lion de francs, quiconque, directement ou par per-sonne interposée, dirige, gère, ou sciemment fi-nance ou contribue à financer une maison de prosti-tution. §3. Des facilités en vue de la prostitution
+Quiconque a utilise, recrute ou offert un enfant a des fins de prostitution, de production de materiel ou de spectacles pomographiques est puni d'une servitude penale de trois ans a cinq ans et d'uhe amende de cent mille a cinq cent mille francs burundais.

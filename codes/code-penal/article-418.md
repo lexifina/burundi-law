@@ -1,3 +1,3 @@
 # Article 418
 
-Est punie de deux mois à deux ans de servitude pénale et d'une amende égale à la valeur légale du corps du délit ayant fait l'objet de l'infraction, toute personne qui commet l'une des infractions à la ré-glementation de change visées à l'article précédent. En cas de récidive, la peine de servitude pénale est fixée selon l'article 115.
+Le fait pour un expert en toute matiere, de denaturer ou de falsifier, dans ses rapports ecrits ou ses exposes oraux, les donnees ou les resultats de l'expertise est puni d'un an a cinq ans de servitude penale et d'une amende de cinquante mille a cent mille francs burundais. §12. Du refus d'obtemperer par un expert

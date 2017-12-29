@@ -1,3 +1,3 @@
 # Article 544
 
-Est punie d'une servitude pénale d'un an à trois ans et d'une amende de vingt mille francs à cinquante mille francs, toute personne qui, d'une manière quelconque, aide, assiste ou pro-tège sciemment la prostitution d'autrui, ou le raco-lage en vue de la prostitution.
+Est puni des peines prevues a !'article precedent toute personne qui a utilise un enfant a des activiLes sexuelles contre une remuneration ou toute autre forme d'avantage.

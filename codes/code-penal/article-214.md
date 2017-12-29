@@ -1,3 +1,5 @@
 # Article 214
 
-Le meurtre commis par le moyen de substances qui peuvent donner la mort plus ou moins promp-tement de quelque manière que ces substances aient été employées ou administrées est qualifié d'empoisonnement. Il est puni de la peine de servi-tude pénale à perpétuité.
+Le meurtre du pere, de la mere ou autres ascendants legitimes ainsi que le meurtre du pere ou de la mere naturelle est qualifie de parricide. Il est puni de servitude penale a perpetuite. Est egalement puni de servitude penale a perpetuite le meurtre commis sur ses enfants, freres ou sceurs legitimes ou naturels.
+
+Le meurtre comrnis par les pere et/ou mere legitimes ou naturels sur un enfant nouveau-ne est qualifie d'infanticide. II est puni de la servitude penale a perpetuite.

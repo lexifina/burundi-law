@@ -1,3 +1,3 @@
 # Article 227
 
-S'il n'est résulté des manquements cités à l'ar-ticle précédent que des coups ou blessures, le cou-pable est puni d'une servitude pénale d'un mois à un an et d'une amende de dix mille francs à cin-quante mille francs, ou d'une de ces peines seule-ment.
+Est coupable de !'homicide involontaire celui qui a cause la mort par defaut de prevoyance ou de precaution, par maladresse, imprudence, inattention, negligence ou manquement a une obligation de securite ou de prudence imposee par la loi ou le reglement, mais sans intention d'attenter a la vie d'autrui.

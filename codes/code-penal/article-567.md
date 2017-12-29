@@ -1,5 +1,3 @@
 # Article 567
 
-Quiconque fait des relations sexuelles avec la personne de même sexe est puni d'une servitude pénale de trois mois à deux ans et d'une amende de cinquante mille francs à cent mille francs ou d'une de ces peines seulement.
-
-TITRE IX DES ATTEINTES A LA SURETE DE L'ETAT CHAPITRE I DES ATTEINTES A LA SURETE EXTERIEURE DE L'ETAT Section 1 De la trahison et de l'espionnage
+Est punie d'une servitude penale d'un an a trois ans et d'une amende de vingt mille a cinquante mille francs burundais, toute personne qui, d'une maniere quelconque, aide, assiste ou protege sciemment la prostitution d'autrui, ou le racolage en vue de la prostitution.

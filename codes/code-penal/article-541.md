@@ -1,3 +1,3 @@
 # Article 541
 
-Est puni de six mois à cinq ans de servitude pé-nale et d'une amende de cinquante mille francs à deux cents mille francs quiconque, par menace, pression, manoeuvre ou tout autre moyen, entrave l'action de prévention, d'assistance ou de rééduca-tion entreprise par des organismes qualifiés en fa-veur de personnes se livrant à la prostitution ou en danger de prostitution. §2. Du proxénétisme
+Le fait d'inciter directement un enfant a commettre un acte illicite ou susceptible de compromettre sa sante ou sa moralite ou son developpement est puni de deux a cinq ans de servitude penale et d'une amende de dix mille a vingt mille francs burundais.

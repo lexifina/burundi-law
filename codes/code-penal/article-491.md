@@ -1,3 +1,3 @@
 # Article 491
 
-Sont punis d'une servitude pénale d'un an à cinq ans et d'une amende de cent mille francs à deux cent cinquante mille francs ou de l'une de ces peines seulement, ceux qui ont contrevenu aux dis-positions réglementaires concernant les substances classées comme stupéfiants.
+Toute autre personne faisant partie de !'association ou celle ayant sciemment et volontairement foumi a la bande des renseignements, du materiel, des lieux de retraite ou de reunion ou toute autre aide utile a la perpetration et a la consommation des infractions objets de !'association, est condamnee a une servitude penale de deux a cinq ans.

@@ -1,5 +1,3 @@
 # Article 386
 
-Sont exemptés de la peine prévue par le précé-dent article ceux qui ont fait connaître l'auteur ou l'imprimeur ainsi que les crieurs, afficheurs, ven-deurs, ou distributeurs, qui ont fait connaître la per-sonne de qui ils tiennent l'écrit incriminé.
-
-CHAPITRE III DES ENTRAVES A L'ADMINISTRATION ET ATTEINTES A L'AUTORITE DE LA JUSTICE Section 1 Des entraves à la saisine de la justice §1. De la disparition des preuves
+Tout mandataire ou fonctionnaire public revoque, destitue, suspendu, qui, apres en avoir eu connaissance officielle, a continue l'exercice de ses fonctions est puni d'une servitude penale d'un mois a six mois et d'une amende de cinquante mille a cent mille francs burundais ou d'une de ces peines seulement. I I CHAPITRE II DES ATTEINTES A L'ADMINISTRATION PUBLIQUE COMMISES PAR DES PARTICULIERS Section 1 De la rebellion

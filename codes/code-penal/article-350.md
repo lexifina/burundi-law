@@ -1,3 +1,5 @@
 # Article 350
 
-Dans les cas visés au présent chapitre, celui qui a fait usage de la pièce qu'il savait fausse, est puni des peines réprimant le faux suivant les distinctions prévues à l'article 348. §3. Des faux commis dans certains docu-ments administratifs et certificats
+Sont punis d'une peine de cinq a dix ans de servitude penale et d'une amende de cent mille a cinq cent mille francs burundais ou d'une de ces peines seulement : / 1 °. Ceux qui ont contrefait ou falsifie !es sceaux, timbres ou autre marque d'une autorite quelconque, soit d'un etablissement prive, de banque, d'industrie ou de commerce, soit d'un particulier ;
+
+2°. Ceux qui ont fait usage de ces sceaux, timbres ou autres marques d'autorite ainsi contrefaits ou falsifies.

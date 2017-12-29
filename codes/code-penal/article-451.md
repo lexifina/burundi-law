@@ -1,7 +1,3 @@
 # Article 451
 
-Sont punis des mêmes
-
-1°. peines :
-
-2°. Ceux qui, par des avis, annonces, affiches, ou par tout autre moyen de publication, ont fait connaître l'existence des loteries ou fa-cilité l'émission de leurs billets. Ceux qui ont placé, colporté ou distribué des billets de loterie ; Dans tous les cas, les billets, avis, annonces ou affiches sont saisis et détruits.
+Est puni d'une servitude penale de trois a cinq ans et d'une amende de cinquante mille a cinq cent mille francs burundais, quiconque sollicite ou agree, sans droit, a tout moment, directement ou indirectement, des offres, des dons, des presents ou avantages quelconques pour user ou avoir use de son influence reelle ou supposee en vue de faire obtenir d'une autorite ou d'une administration publique des distinctions, des emplois, des marches ou toute autre decision favorable. Est puni des memes peines le fait de ceder aux sollicitations prevues a l'alinea precedent, OU de proposer sans droit, a tout moment, directement ou indirectement, des offres, des promesses, des dons, des presents ou des avantages quelconques pour qu'une personne use ou ait use de son influence reelle ou supposee en vue de faire obtenir d'une autorite ou d'une administration publique des distinctions, des emplois, des marches ou toute autre decision favorable. §3. De la soustraction et du detournement des biens

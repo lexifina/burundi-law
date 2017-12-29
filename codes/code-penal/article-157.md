@@ -1,3 +1,3 @@
 # Article 157
 
-La peine complémentaire se prescrit dans le même délai que la peine dont elle est l'accessoire.
+Les peines prononcees contre les crimes de genocide, les crimes centre l'humanite et les crimes de guerre sont imprescriptibles.

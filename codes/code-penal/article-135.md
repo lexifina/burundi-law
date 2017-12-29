@@ -1,3 +1,3 @@
 # Article 135
 
-La peine est dite incompressible lorsque le con-damné est tenu d'exécuter la totalité TITRE IV DE L'EXTINCTION DE L'ACTION PUBLIQUE, DES PEINES ET DE L'EFFACEMENT DE CONDAMNATIONS CHAPITRE I DES DISPOSITIONS GENERALES
+La prescription des peines ne court pas pendant que le condamne se trouve en liberte conditionnelle en vertu d'un ordre de liberation qui n'a pas ete revoque.

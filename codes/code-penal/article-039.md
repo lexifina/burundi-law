@@ -1,3 +1,3 @@
 # Article 39
 
-Celui qui, intentionnellement, a décidé une per-sonne à commettre une infraction encourt, si celle-ci a été commise, la peine applicable à l'auteur de l'infraction.
+Celui qui, intentionnellement, a decide une personne a commettre une infraction encourt, si celle-ci a ete commise, la peine applicable a !'auteur de !'infraction.

@@ -1,3 +1,3 @@
 # Article 236
 
-Est puni par des peines prévues à l'article précé-dent, quiconque §3. De l'anthropophagie
+Est puni d'une servitude penale d'un an a cinq ans et d'une amende de cinquante mille a cent mille francs burundais quiconque a mechamment mutile un cadavre humain.

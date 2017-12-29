@@ -1,5 +1,5 @@
 # Article 256
 
-Est qualifié harcèlement, le fait de procéder à des appels téléphoniques malveillants et réitérés, d'adresser à autrui des lettres anonymes ou tracts ou de lui proférer des menaces de toute sorte en vue de troubler sa tranquillité. Quiconque a harcelé une personne au sens de l'alinéa précédent est puni d'une peine de servitude pénale d'un mois à deux ans et d'une amende de dix mille francs à cent mille francs.
+L'infraction prevue par !'article 246 puniede servitude penale a perpetuite et d'une amende de sept cent cinquante mille a vingt millions francs burundais dans le cas ou !'infraction cause la mort de la victime, y compris la mort par suicide.
 
-Section 6 De la disposition commune
+Section 2 De l'enlevement

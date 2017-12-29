@@ -1,3 +1,9 @@
 # Article 360
 
-Les mêmes peines sont appliquées à ceux qui ont donné la mission de commettre les fausses dé-clarations mentionnées à l'alinéa précédent, si cette mission a reçu son exécution. Sont punies d'une servitude pénale de deux mois à deux ans et d'une amende de dix mille francs à cinquante mille francs ou d'une de ces peines seu-lement, les fausses déclarations faites devant les officiers de l'état civil quant aux énonciations que doivent contenir les actes, soit par les personnes obligées par la loi de faire les déclarations, de nais-sance ou de décès, soit par celles qui auraient été convoquées par l'officier de l'état civil pour faire une déclaration d'état civil, soit par toutes autres personnes qui, sans être tenues de faire les déclara-tions ont volontairement comparu devant l'officier de l'état civil.
+Est punie d'une servitude penale d'un an a cinq ans et d'une amende de dix mille a cinquante mille francs burundais, toute personne, autre que celles designees a 1 'article precedent qui commet un faux en ecriture authentique ou publique : l O
+
+• Soit par contrefa9on ou alteration d'ecritures ou de signatures ;
+
+2°. Soit par fabrication de conventions, dispositions, obligations ou decharges, ou par leur insertion ulterieure dans ces actes ;
+
+3°. Soit par addition, omission ou alteration de clauses, de declarations ou de faits que ces actes avaient pour objet de recevoir et de constater; 4 °. Soit par supposition ou substitution de personnes.

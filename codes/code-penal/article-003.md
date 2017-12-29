@@ -1,3 +1,3 @@
 # Article 3
 
-La loi pénale est d'interprétation stricte.
+La loi penale est d'intelJ)retation stricte.

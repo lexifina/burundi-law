@@ -1,39 +1,41 @@
-# Loi n°1/05 du 22 avril 2009
+# Loi n°1/27 du 29 décembre 2017
 
-PORTANT REVISION DU CODE PENAL LE PRESIDENT DE LA REPUBLIQUE,
+Portant révision du Code pénal
 
-Vu la Constitution de la République du Burundi ;
+LE PRESIDENT DE LA REPUBLIQUE,
 
-Vu le Décret–Loi N°1/91 du 2 Août 1971 por-tant Régime des Armes à feu et leurs minutions ; Revu le Décret–Loi N°1/6 du 4 Avril 1981 por-tant Réforme du Code Pénal ;
+Vu la Constitution de la Republique du Burundi;
 
-Vu le Décret–Loi N°1/029 du 28 Juillet 1989 portant Ratification de la Convention sur la Charte Africaine des Droits de l'Homme et des Peuples ;
+Vu la Loi n°1/005 du 16 juin 2000 portant Adhesion de la Republique du Burundi a la Convention sur l'imprescriptibilite des crimes de guerre et des crimes centre l'humanite;
 
-Vu le Décret–Loi N°1/009 du 14 Mars 1990 por-tant Ratification du Pacte International relatif aux droits civils et politiques du 16 Décembre 1966 ;
+Vu la Loi n°1/004 du 8 mai 2003 portant Repression du crime de genocide, du crime centre l'humanite et du·crime de guerre;
 
-Vu le Décret–Loi N°1/032 du 16 Août 1990 portant Ratification de la Convention relative aux droits de l'Enfant du 20 Novembre 1989 ;
+Vu la Loi n°1/08 4u 17 mars 2095 portant Code de l'Organisation et de la Competence Judiciaires ; . .. :~· .... , •· · · ·.
 
-Vu le Décret–Loi N°1/006 du 4 Avril 1991 por-tant Ratification de la Convention sur l'élimination de toutes les formes de discriminations à l'égard des Femmes du 18 Décembre 1979 ;
+Vu la Loi n?J/Qq du 15 mars,2006 sur le; ·Faillites; ...... '
 
-Vu le Décret–Loi N°1/47 du 31 Décembre 1992 portant Adhésion à la Convention contre la torture et autres peines ou traitements cruels, inhumains ou dégradants, adoptée à New York le 10 décembre 1984 ;
+Vu Ia Loi n°1/08 du 15 mat's 2006 Relative au Concordat Judiciaire de l'Entreprise en difficultes ; · · · .::.
 
-Vu le Décret–Loi N°1/045 du 9 Juillet 1993 portant Dispositions Générales du Code de Com-merce ;
+Vu la Loi n°1/12 du 18 avril- 2006 portant Mesures de Prevention et de Repression de la Corruption et des -Infractions Connexes ; : r
 
-Vu la Loi N°1/002 du 6 Mars 1996 portant Code des Sociétés Privées et Publiques ;
+Vu la Loi n° 1/14 du 28 aoflt 2009 portant Regime des Armes legeres et de petits calibres ; '•
 
-Vu la Loi N°1/015 du 20 Juillet 1999 portant Réforme du Code de Procédure Pénale ;
+Vu la Loin° 1/01 du 16 janvier 2015 portant Revision de la Loi n°1/07 du 26 avril 2010 portant Code de Commerce ;
 
-Vu la Loi N°1/005 du 16 Juin 2000 portant Ad-hésion de la République du Burundi à la Conven-tion sur l'imprescriptibilité des crimes de guerre et des crimes contre l'humanité ;
+Vu la Loi n° 1/09 du 30 mai 2011 portant Code des Societes Privees et a Participation Publique;
 
-Vu la Loi N°1/004 du 8 Mai 2003 portant Ré-pression du crime de génocide, du crime contre l'humanité et du crime de guerre ;
+Vu la Loin° 1/10 du 03 avril 2013 portant Revision du Code de Procedure Penale;
 
-Vu la Loi N°1/011 du 30 Août 2003 portant Adhésion de la République du Burundi au Statut de la Cour Pénale Internationale ;
+Vu la Loin° 1/28 du 29 octobre 2014 portant Repression de la Traite des Etres Humains et Protection des Victimes de la Traite ;
 
-Vu la Loi N°1/08 du 17 Mars 2005 portant Code de l'Organisation et de la Compétence Judi-ciaires ;
+Vu le Decret-loi n°1/029 du 28 juillet 1989 portant Ratification de la Convention sur la Charte Africaine des Droits de !'Homme et des Peuples ;
 
-Vu la Loi N°1/07 du 15 Mars 2006 sur les Fail-lites ;
+Vu le Decret-loi n°1/009 du 14 mars 1990 portant Ratification du Pacte lntemational relatif aux droits civils et politiques du 16 Decembre 1966 ;
 
-Vu la Loi N°1/12 du 18 Avril 2006 portant Me-sures de Prévention et de Répression de la Corrup-tion et des Infractions Connexes ;
+Vu le Decret-loi n°1/032 du 16 aout 1990 ·portant Ratification de la Convention relative aux Droits de l'Enfant du 20 novembre 1989 ;
 
-Le Conseil des Ministres ayant délibéré ;
+Vu le Decret-loi n°1/006 du 4 avril 1991 portant Ratification de la Convention sur !'elimination de toutes les formes de discriminations a l'egard des Femmes du 18 decembre 1979
 
-1°. Les lois de compétence et d'organisation ju-diciaires, tant qu'un jugement au fond n'a pas été rendu au premier degré ; L'Assemblée Nationale et le Sénat ayant adopté ; PROMULGUE LIVRE PREMIER DES INFRACTIONS ET DE LA REPRESSION EN GENERAL TITRE I DES DISPOSITIONS GENERALES CHAPITRE I DE L'INFRACTION EN GENERAL
+Vu le Decret-loi n°1/47 du 31 decembre 1992 portant Adhesion a la Convention centre la torture et autres peines ou traitements cruels, inhumains ou degradants, adoptee a New York le 10 decembre 1984 ; Revu la loi n°1/05 du 22 avril 2009 portant Revision du Code Penal;
+
+Le Conseil des Ministres ayant delibere ; L'Assemblee Nationale et le Senat ayant adopte ; PROMULGUE: ····-!z ---i ' LIVRE PREMIER DES INFRACTIONS ET DE LA REPRESSION EN GENERAL TITRE I DES DISPOSITIONS GENERALES CHAPITREI DE L'INFRACTION EN GENERAL

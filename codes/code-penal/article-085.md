@@ -1,3 +1,3 @@
 # Article 85
 
-Lorsque le condamné est libéré conditionnelle-ment, la peine de la mise à la disposition du Gou-vernement prend cours à la date de la libération conditionnelle. Son exécution est suspendue en cas de révocation de la libération conditionnelle, à par-tir de l'arrestation.
+Lorsque le condamne est libere conditionnellement, la peine de la mise a la disposition du Gouvemement prend cours a la date de la liberation conditionnelle. Son execution est suspendue en cas de revocation de la liberation conditionnelle, a partir de l'arrestation.

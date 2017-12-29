@@ -1,3 +1,3 @@
 # Article 103
 
-Dans tous les cas où le juge pourrait prononcer une peine de servitude pénale inférieure ou égale à une année, il y est substitué un travail d'intérêt gé-néral dont la durée ne dépasse pas deux cent qua-rante heures. Dans l'application du présent article, un mois de servitude pénale correspond à vingt heures de tra-vail d'intérêt général.
+En cas de concurrence de l'amende avec les frais de justice dus a l'Etat, les payements faits par les condamnes sent imputes en premier lieu sur ces frais. §4. Des mesures de protection et de sauvegarde applicables aux enfants mineurs ages de 15 a 18 ans

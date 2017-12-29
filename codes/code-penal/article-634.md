@@ -1,0 +1,3 @@
+# Article 634
+
+Est exempte de la peine encourue celui qui, avant execution ou tentative d'une infraction centre la surete de l'Etat, en donne le premier connaissance aux autorites administratives ou judiciaires. L'exemption de la peine est egalement facultative si la denonciation intervient apres la consommation ou la tentative de !'infraction mais avant l'ouverture des poursuites. L'exemption de la peine est egalement facultative a l'egard du coupable qui, apres l'ouverture des poursuites, permet l'arrestation des auteurs et complices de la meme infraction, ou d'autres infractions de meme nature ou de meme gravite.

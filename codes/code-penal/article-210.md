@@ -1,3 +1,3 @@
 # Article 210
 
-Sont qualifiés volontaires, l'homicide commis et les lésions causées avec le dessein d'attenter à la personne d'un individu Le meurtre ayant pour objet soit de préparer ou de faciliter un délit ou un crime, soit de favoriser la fuite ou d'assurer l'impunité de l'auteur ou du com-déterminé ou de celui qui est trouvé ou rencontré, quand même ce dessein serait dépendant de quelque circonstance ou de quelque condition et lors même que l'auteur se se-rait trompé sur la personne de celui qui a été vic-time de l'attentat.
+Aucune circonstance exceptionnelle, quelle qu'elle soit, qu'il s'agisse de l'etat de guerre ou de menace de guerre, d'instabilite politique interieure ou de tout autre etat d'exception, ne peut etre invoquee pour justifier la torture et autre peine ou traitements cruels, inhumains ou degradants. L'ordre d'un superieur ou d'une autorite publique ne peut etre invoque pour justifier la torture.

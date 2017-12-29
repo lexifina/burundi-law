@@ -1,3 +1,3 @@
 # Article 215
 
-Est puni d'une servitude pénale d'un an à vingt ans et d'une amende de cent mille francs à un mil-lion de francs, quiconque a administré volontaire-ment des substances qui peuvent donner la mort ou qui, sans être de nature à donner la mort, peuvent cependant altérer gravement la santé.
+Le meurtre comrnis avec premeditation est qualifie d'assassinat. Il est puni de la servitude penale a perpetuite. Il y a premeditation quand le dessein de realiser !'homicide a ete forme avant l'action.

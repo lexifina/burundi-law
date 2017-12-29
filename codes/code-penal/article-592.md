@@ -1,5 +1,7 @@
 # Article 592
 
-Le complot formé dans l'un des buts mentionnés à l'article précédent est puni d'une servitude pénale de dix ans à quinze ans et d'une amende de cin-quante mille francs à deux cent mille francs, si quelque acte a été commis ou commencé pour en préparer l'exécution. S'il y a eu proposition faite et non agréée de former un complot pour arriver à l'une des fins mentionnées à l'article 588, celui qui a fait une telle proposition est puni d'une servitude pénale de cinq ans à dix ans et d'une amende de cinquante mille francs à cent mille francs.
+Est coupable de trahison et puni de la servitude penale a perpetuite, tout Burundais qui : 1 °. Entretient des intelligences avec une puissance etrangere ou avec ses agents, pour engager cette puissance a entreprendre des hostilites centre le Burundi ou pour lui en procurer les moyens ;
 
-Section 4 De la participation à des bandes armées
+2°. Livre a une puissance etrangere ou a ses agents des ouvrages de defense, pastes, ports, magasins, materiels, munitions, vaisseaux, batiments ou appareils de navigation aerienne appartenant au Burundi ;
+
+3°. En vue de nuire a la defense nationale, detruit ou deteriore un navire, un appareil de navigation aerienne, un materiel, une fourniture, une construction ou une installation quelconque, ou qui, dans le meme but, y apporte soit avant, soit apres leur achevement, des malfa9ons de nature a les endommager ou a provoquer un accident.

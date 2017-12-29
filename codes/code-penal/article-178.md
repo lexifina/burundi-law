@@ -1,3 +1,3 @@
 # Article 178
 
-Le législateur fixe dans une loi d'amnistie les faits délictueux auxquels doit s'étendre la mesure d'indulgence, mais il laisse au Chef de l'Etat le soin de déterminer ensuite, par voie de grâce indivi-duelle, quels sont, parmi les auteurs des faits pré-vus, les seuls bénéficiaires d'amnistie.
+L'amnistie eteint l' action publique ; efface ou reduit toute condamnation de nature penale mais laisse subsister les dispositions n'ayant pas de caractere repressif ; elle ne peut etre opposee aux droits de I1Etat et des tiers. Les amendes deja per9ues et les frais payes restent acquis au tresor. I CHAPITRE VII DE LA GRACE AMNISTIANTE

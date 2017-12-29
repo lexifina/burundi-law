@@ -1,3 +1,3 @@
 # Article 489
 
-Constituent des stupéfiants au sens des disposi-tions de la présente section les substances ou plantes classées comme telles en application des dispositions de l'ordonnance du Ministre ayant la santé publique dans ses attributions.
+Les memes personnes sont punies de cinq a dix ans de servitude penale si l'association a ete formee seulement en vue de perpetrer des infractions punissables de moins de dix ans de servitude penale. /

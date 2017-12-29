@@ -1,5 +1,5 @@
 # Article 341
 
-Toute personne qui a publiquement porté une décoration, un ruban, ou autre insigne d'un ordre qui ne lui appartient pas, est punie d'une servitude pénale de huit jours à un mois et d'une amende de dix mille francs à trente mille francs ou d'une de ces peines seulement.
+Est puni d'une servitude penale d'un an a cinq ans et d'une amende de cent mille a un million de francs burundais, quiconque entreprend sans autorisation prealable toute activite susceptible de porter atteinte aux especes animales rares, menacees ou en voie de disparition, ainsi qu'a leur milieu nature!.
 
-CHAPITRE V DES FAUX COMMIS EN ECRITURE ET DANS LES DEPECHES ELECTRONIQUES Section 1 De la définition
+Section 5 De l'enlevement, du deplacement ou du depassement des bornes

@@ -1,3 +1,3 @@
 # Article 273
 
-Est réputée maison habitée, tout édifice, tout appartement, tout logement, toute loge, toute ca-bane, même mobile, ou autre lieu servant à l'habita-tion. §3. Des dépendances d'une maison habitée
+Commet le vol d'usage celui qui centre· le gre du proprietaire se sert d'une chose appartenant a autrui pendant un temps limite, puis l'abandonne ou la lui restitue.

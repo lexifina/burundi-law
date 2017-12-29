@@ -1,5 +1,7 @@
 # Article 476
 
-Sont exemptés des peines prévues à l'article précédent, ceux des coupables qui, avant toute ten-tative d'infraction faisant l'objet de l'association et avant toute poursuite, ont révélé aux autorités pu-bliques l'existence de ces bandes et les noms de leurs chefs ou responsables.
+Sont punis de cinquante mille a cinq cent mille francs burundais d'amende, les gerants, directeurs generaux, directeurs, membres du directoire ou du conseil de surveillance, ou administrateurs de societes qui : 1 °. N'ont pas etabli a chaque exercice le bHan et les autres documents comptables exigibles et un rapport sur les operations de l'exercice ;
 
-CHAPITRE II DES MENACES D'ATTENTAT CONTRE LES PERSONNES OU CONTRE LES PROPRIETES
+2°. Ont refuse ou neglige de communiquer aux associes et aux actionnaires avant l'assemblee generale le bilan et les autres documents exigibles pour apprecier leur gestion;
+
+3°. Ont refuse OU neglige d'etablir le proces-verbal de deliberation d'une assemblee generale ; ont omis de faire publier dans le delai reglementaire les deliberations entra1nant modification des statuts, des pouvoirs des gerants, directeurs generaux, directeurs, membres du directoire ou du conseil de surveillance, ou administrateurs de societes, ou du capital social en ce qui concerne les societes de capitaux.

@@ -1,3 +1,5 @@
 # Article 274
 
-Sont réputées dépendances d'une maison habi-tée, les cours, basses-cours, jardin et tous autres terrains clos, ainsi que les granges, étables, écuries et tous autres édifices qui y sont enfermés, quel qu'en soit l'usage, quand même ils formeraient un enclos particulier dans l'enclos principal.
+En !'absence de l'une ou l'autre des circonstances aggravantes specifiees a !'article 275 ci-apres, le vol tel que prevu aux articles 271, 272 et 273 ci-avant est puni d'une servitude penale de deux a cinq ans et d'une amende de dix mille a cent mille francs burundais ou d'une de ces peines seulement.
+
+Section 2 Du vol qualifie

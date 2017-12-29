@@ -1,3 +1,3 @@
 # Article 588
 
-Quiconque, hors les cas prévus aux articles 590 et 591, a entrepris par quelque moyen que ce soit, de porter atteinte à l'intégrité du territoire national, est puni d'une servitude pénale d'un an à cinq ans et d'une amende de cinquante mille francs à cent mille francs.
+Quiconque a publiquement outrage les mreurs par des actions qui blessent la pudeur est puni d'une amende de cinquante mille francs a cent mille francs. §2. De la zoophilie

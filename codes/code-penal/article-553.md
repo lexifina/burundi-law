@@ -1,19 +1,3 @@
 # Article 553
 
-Le minimum des peines portées par les articles de la présente section est doublé
-
-1° Lorsque l'attentat est commis par un as-cendant ou descendant légitime, naturel ou adoptif de la victime ;
-
-2° Lorsque l'attentat est commis par une personne ayant autorité sur la victime ;
-
-3° Lorsque l'attentat est commis par une personne qui a abusé de l'autorité que lui confèrent ses fonctions ;
-
-4° Lorsque l'attentat a été commis par des médecins, chirurgiens, accoucheurs, en-vers les personnes confiées à leurs soins ;
-
-5° Lorsque l'attentat à la pudeur est com-mis sur une personne vulnérable en rai-son d'une maladie, d'une infirmité ou d'une déficience physique ou mentale ou d'un état de grossesse ;
-
-6° Lorsque l'attentat à la pudeur est com-mis sous la menace d'une arme ;
-
-7° Lorsque l'attentat est commis par un ministre du culte.
-
-Section 3 Du viol
+Quiconque, etant engage dans les liens du mariage, en aura contracte un ou plusieurs autres, avant la dissolution du precedent, sera, puni du chef de polygamie ou de polyandrie, d'une servitude penale de six mois a deux ans et d'une amende de vingt mille a cent mille francs burundais. En aucun cas le conjoint dans une telle union ne peut etre considere comme personnage a charge au sens de la legislation fl.scale, sociale ou administrative. §3. Du Concubinage

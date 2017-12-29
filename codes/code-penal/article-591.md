@@ -1,3 +1,3 @@
 # Article 591
 
-L'attentat dont le but a été de porter le massacre est puni de servitude pénale à perpétuité. L'attentat dont le but a été de porter la dévasta-tion ou le pillage est puni de servitude pénale de quinze ans à vingt ans.
+Est coupable de trahison et puni de la servitude penale a perpetuite, tout Burundais qui porte les annes centre le Burundi.

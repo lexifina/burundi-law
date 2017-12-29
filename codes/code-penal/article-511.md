@@ -1,5 +1,5 @@
 # Article 511
 
-Les sanctions pénales prévues aux articles pré-cédents ne sont pas applicables lorsque la grossesse a été interrompue par un médecin diplômé, avec le consentement écrit de la personne enceinte et sur avis conforme d'un second médecin diplômé, en vue d'écarter un danger impossible à détourner au-trement et menaçant la vie de la mère ou menaçant sérieusement sa santé d'une atteinte grave et per-manente. Si la personne enceinte est incapable de mani-fester sa volonté, le consentement écrit de son re-présentant légal est requis. Dans l'exercice de l'action publique et lors de la condamnation éventuelle en vertu des dispositions des articles 508 à 510, il est tenu compte des exi-gences sociales du milieu dans lequel le fait a été accompli. Il n'y a pas d'infraction lorsque la grossesse a été interrompue par décision de deux médecins en cas d'urgence ou d'impossibilité de recueillir la mani-festation de la volonté de la personne enceinte ou de la personne autorisée à la représenter.
+Sont punis des peines portees par !'article precedent: 1 °. Ceux qui, par un moyen quelconque, ont provoque l'un des deli ts reprimes par les articles 504 a 508 alors meme que cette provocation n'ait pas ete suivie d'effet, ou qui !es ont presentes sous un jour favorable ;
 
-Section 2 Des infractions contre l'enfant
+2°. Ceux qui, par un moyen quelconque, ont provoque, alors meme que cette provocation n'aurait pas ete suivie d'effet, a l'usage de substances presentees comme ayant !es effets de substances ou plantes stupefiantes.

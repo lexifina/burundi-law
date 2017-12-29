@@ -1,5 +1,3 @@
 # Article 140
 
-La peine peut aussi être modifiée ou effacée par la grâce, la libération conditionnelle ou la réhabilitation.
-
-CHAPITRE II DU DESISTEMENT DE LA PLAINTE
+L'action publique peut aussi s'eteindre par transaction et par desistement de la plainte lorsque la loi en dispose expressement.

@@ -1,3 +1,3 @@
 # Article 201
 
-Quiconque conçoit ou planifie le crime de gé-nocide, le crime contre l'humanité et le crime de guerre est passible de la peine de servitude à perpé-tuité.
+Rien dans les points 3 et 5 de !'article precedent n'affecte la responsabilite d'un gouvernement de maintenir ou retablir l'ordre public ou de defendre !'unite et l'integrite territoriale par tous les moyens legitimes.

@@ -1,9 +1,7 @@
 # Article 620
 
-Les actes réglementaires pris en exécution de la loi, les règlements d'administration et de police de l'autorité publique et des pouvoirs locaux ne peu-vent établir des sanctions autres que les amendes administratives :
+Sent punis d'une servitude penale de deux a dix ans et d'une amende de cinquante milles a cent mille francs burundais, les individus qui, dans un mouvement insurrectionnel : 1 °. Ont fait ou aide a faire des barricades, des retranchements ou tous autres travaux ayant pour objet d'entraver ou d'arreter l'exercice de la force publique ;
 
-1° Ne dépassant pas une amende de cin-quante mille francs pour les décrets ;
+2°. Ont empeche, a l'aide de violences ou de menaces, !'intervention ou la reunion de la force publique ou qui ont provoque ou facilite le rassemblement des insurges, soit par la distribution d'ordres ou de proclamations, soit par le port de drapeaux ou autres signes de ralliement, soit par tout autre moyen d'appel ; 3 °. Ont, pour faire attaque ou resistance env.ers la force publique, envahi ou occupe des edifices, postes ou autres etablissements publics, des maisons habitees ou non habitees.
 
-2° Ne dépassant pas une amende de vingt mille francs, pour les ordonnances;
-
-3° Ne dépassant pas une amende de cinq mille francs, pour les actes des pouvoirs locaux. Il est fait exception, aux dispositions précé-dentes, en ce qui concerne les amendes administra-tives pour les infractions dans les domaines fiscal et douanier, ainsi que dans la réglementation de change ou de caractère économique.
+La peine est la meme a l'egard du proprietaire ou du locataire qui, connaissant le but·des insurges, leur a procure sans contrainte l'entree desdites maisons.

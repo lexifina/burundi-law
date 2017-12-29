@@ -1,3 +1,3 @@
 # Article 117
 
-Il n'y a pas de récidive, lorsque la peine pronon-cée pour la première infraction a été effacée par l'amnistie ou si le condamné a été irrévocablement réhabilité.
+Quiconque ayant ete, par decision definitive, condamne pour une infraction a une peine superieure ou egale a une annee de servitude penale, a com.mis, dans un delai de cinq ans apres !'expiration de cette peine ou sa prescription, une infraction qui doit etre punie de la servitude penale de plus de deux mois, est condamne au double de la peine portee par la loi. Aliicle 118 Si la premiere condamnation etait la servitude penale a perpetuite et que la seconde infraction est passible de la meme peine, le condamne ne peut pretendre a la liberation conditionnelle qu'apres une periode de surete de trente ans.

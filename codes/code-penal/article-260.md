@@ -1,5 +1,5 @@
 # Article 260
 
-Commet le vol d'usage celui qui contre le gré du propriétaire se sert d'une chose appartenant à autrui pendant un temps limité, puis l'abandonne ou la lui restitue. En l'absence de l'une ou l'autre des circons-tances aggravantes spécifiées à l'article 262 ci-après, le vol tel que prévu aux articles 258, 259 et 260 ci-avant est puni d'une servitude pénale de deux mois à cinq ans et d'une amende de dix mille francs à cent mille francs ou d'une de ces peines seulement.
+Tout individu qui, hors les cas prevus par !'article precedent, penetre centre la volonte de !'occupant dans une maison, un appartement, une chambre, une case, une cabane, un logement ou leurs dependances cloturees, est puni d'une servitude penale de huit jours a un mois et d'une amende de trente mille francs burundais ou d'une de ces peines seulement.
 
-Section 2 Du vol qualifié
+Section 4 De la violation du secret des correspondances

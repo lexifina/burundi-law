@@ -1,5 +1,5 @@
 # Article 537
 
-Est puni de servitude pénale d'un an à deux ans toute personne qui expulse du toit familial son con-joint, son enfant ou toute personne dont il a la garde qui n'est pas à mesure de se prendre en charge.
+Quiconque a en}eve OU fait enlever, detourne OU fait detoumer, deplace OU fait deplacer des enfants des lieux ou ils etaient mis par ceux ayant l'autorite parentale sur eux ou par des personnes auxquelles ils avaient ete con.fies, est puni d'un an a cinq ans de servitude penale et d'une amende de dix mille a cent mille francs burundais.
 
-CHAPITRE II DES INFRACTIONS CONTRE LES BONNES MŒURS Section 1 De la prostitution
+La servitude penale est portee de cinq a dix ans si les faits ont ete com.mis avec violence, fraude ou menaces. Elle est portee de dix ans a vingt ans si les coupables ont agi dans le but de se faire une ran9on ou d'obtenir }'execution d'un ordre ou d'une condition. Si l'enlevement a ete suivi de la mort de l'enfant, les coupables sont punis de la servitude penale a perpetuite. Est puni des memes peines le pere ou la mere qui aura enleve ou fait enlever, deplace ou 'fait deplacer un enfant sans le consentement de l'autre. Est puni d'une servitude penale de cinq a dix ans le pere ou toute autre personne qui enleve ou fait enlever, deplace ou fait deplacer un enfant encore au sein matemel, sans le consentement de la mere de l 'enfant. / ,/

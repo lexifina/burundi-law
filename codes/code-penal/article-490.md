@@ -1,3 +1,3 @@
 # Article 490
 
-La culture, la vente, le transport, la détention et la consommation des stupéfiants sont interdits sauf dans les cas et les conditions déterminés par l'or-donnance du Ministre ayant la santé publique dans ses attributions.
+Quiconque ayant sciemment et volontairement fomni a la bande ou association des a1mes et munitions, des vehicules, est puni de cinq a dix ans de servitude penale.

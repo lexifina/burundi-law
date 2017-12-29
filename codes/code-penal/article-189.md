@@ -1,3 +1,3 @@
 # Article 189
 
-La Cour est saisie par le Procureur Général et se prononce dans les deux mois sur les réquisitions de ce dernier, la partie ou son conseil entendu ou dû-ment convoqué.
+Si la partie lesee ne peut etre retrouvee ou si elle refuse de recevoir la somme due, celle-ci est consignee dans une caisse publique. Si la partie ne se presente pas dans un delai de cinq ans pour se faire attribuer la somme consignee, cette somme est versee au tresor a la diligence du juge qui a prononce la condamnation.

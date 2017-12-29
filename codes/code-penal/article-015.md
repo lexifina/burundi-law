@@ -1,3 +1,3 @@
 # Article 15
 
-La tentative d'infraction est punie de la moitié de la peine du délit ou du crime consommé. Si l'infraction consommée est punie de la servi-tude pénale à perpétuité l'auteur de la tentative est puni de quinze ans de servitude pénale.
+La tentative d'infraction est punie de la moitie de la peine du delit ou du crime consomme. Si !'infraction consommee est punie c;ie la servitude penale a perpetuite l'auteur de la tentative est puni de quinze ans de servitude penale.

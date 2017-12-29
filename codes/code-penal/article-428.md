@@ -1,3 +1,3 @@
 # Article 428
 
-Est puni des mêmes peines, celui qui a cédé à une personne visée à l'article précédent qui solli-cite, à tout moment, directement ou indirectement, des offres, des dons, des présents ou des avantages quelconques pour accomplir ou s'abstenir d'accom-plir un acte visé par le même article, en violation de ses obligations légales, contractuelles ou profes-sionnelles.
+Est puni de six mois a deux ans de servitude penale et d'une amende de cinquante mille a cent mille francs burundais quiconque, a l'aide de menaces, violences, voies de fait ou manreuvres frauduleuses, a amene ou maintenu une cessation concertee de travail dans le but de forcer la hausse ou la baisse des salaires ou de porter atteinte au libre exercice de l'industrie ou du travail.

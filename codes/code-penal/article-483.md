@@ -1,21 +1,5 @@
 # Article 483
 
-Est considérée comme détenue toute personne :
+Celui qui commet un faux, en introduisant clans un systeme informatique, en modifiant ou en effa9ant des donnees, qui sont stockees, traitees ou transmises par un systeme informatique, ou en modifiant par tout moyen technologique !'utilisation possible des donnees dans un systeme informatique, et par la modifie la po1tee juridique de telles donnees, est puni de la servitude penate de cinq a vingt ans et d'une amende de cinquante mille a cent mille francs burundais. Celui qui fait usage des donnees ainsi obtenues, tout en sachant que celles-ci sont fausses, est puni comme s'il etait l'auteur du faux.
 
-1° Qui est placée en garde à vue ;
-
-2° Qui se trouve en instance ou en cours de présentation à l'autorité judiciaire à l'issue d'une garde à vue ou en exécution d'un mandat d'amener ou d'arrêt ;
-
-3° Qui s'est vue notifier un mandat de dépôt ou un mandat d'arrêt continuant de pro-duire effet ;
-
-4° Qui exécute une peine privative de liberté ou qui a été arrêtée pour exécuter cette peine ;
-
-5° Qui est placée sous écrou extraditionnel ;
-
-6° Qui, pour des raisons de santé, est placée dans un établissement sanitaire ou hospi-talier ;
-
-7° Qui, condamnée, se soustrait au con-trôle auquel elle est soumise alors qu'elle avait bénéficié d'une mesure d'assouplissement ;
-
-8° Qui, condamnée, refuse de réintégrer l'établissement pénitentiaire à l'issue d'une permission de sortie ;
-
-9° Qui, condamnée, est soumise à une me-sure de sûreté.
+Section 2 De lafraude informatique

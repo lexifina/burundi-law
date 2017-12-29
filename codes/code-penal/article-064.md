@@ -1,3 +1,3 @@
 # Article 64
 
-La confiscation générale portant sur la totalité du patrimoine présent et futur du condamné est in-terdite. 2. De l'interdiction
+La confiscation generale portant sur la totalite du patrimoine present et futur du condarnne est interdite. 2. De !'interdiction

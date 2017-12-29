@@ -1,7 +1,5 @@
 # Article 314
 
-Dans les cas visés aux deux précédents articles, la peine applicable ne dépasse pas le quart du maximum de l'emprisonnement et de l'amende pré-vus par ces articles ou d'une de ces peines seule-ment, si le porteur a été désintéressé avant que le tribunal ait été saisi.
+Est puni d'une servitude penale de six mois a cinq ans et d'une amende de cent mille a cinq cent mille francs burundais, quiconque a frauduleusement utilise a son profit ou au profit d'un tiers, les services d'engages mis sous ses ordres par le maitre en vue d'un travail a executer pour celui-ci ou pour autrui.
 
-Le juge prononce en même temps le retrait du chéquier à l'émetteur pour une durée ne dépassant pas une année.
-
-CHAPITRE III DE LA DESTRUCTION, DE LA DEGRADATION, DES DOMMAGES Section 1 De l'incendie
+Section 7 De l'escroquerie et de la tromperie §1. De l'escroquerie

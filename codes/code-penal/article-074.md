@@ -1,3 +1,3 @@
 # Article 74
 
-de la peine principale. L'interdiction de séjour consiste dans la défense faite à un condamné de paraître dans certains lieux déterminés par le juge.
+L'interdiction de sejour consiste dans la defense faite a un condamne de paraltre dans certains lieux determines par le juge.
