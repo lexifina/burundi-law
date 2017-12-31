@@ -1,0 +1,3 @@
+# Article 12
+
+A l’issu des activités Géomantiques, le prestataire doit réserver une copie au Bureau de Centralisation Géomatique (BCG) avec des métadonnées (enseignement sur les méthodes et instruments utilisés, conditions d’accès et le révérenciel WGS 84UTM zone 35sud, le Word géode sic system 1984 Universal Transverse Mercator) afin d’alimenter le système d’information géographique(SIG) national sans pour autant porter atteinte à la confidentialité de certaines données. En aucun cas la copie déposée au Bureau de Centralisation Géomatique (BCG) ne sera publiée sans accord préalable du propriétaire

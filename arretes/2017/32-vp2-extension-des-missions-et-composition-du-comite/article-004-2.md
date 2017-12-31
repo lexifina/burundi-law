@@ -1,0 +1,3 @@
+# Article 4 2
+
+Le dossier de demande de visa Géomatique est constitué des éléments ci-après: *Une lettre de demande de visa Géomatique, *Un document présentant la méthodologie à suivre pour la réalisation du projet, *Les documents attestant les compétences en Géomatique du personnel aligné au projet, *Une Attestation de nécessité de l’étude signée par le Ministère Sectoriel. Un modèle du Procès-Verbal, comportant la date, le mois et l’année de la tenue de la séance d’analyse de ladite demande de visa Géomatique de l’organe demandeur avec signatures des membres siégeant; Le contenu des pièces présentées dans le cadre de cette demande.

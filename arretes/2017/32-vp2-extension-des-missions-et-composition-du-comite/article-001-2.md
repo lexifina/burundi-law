@@ -1,0 +1,3 @@
+# Article 1 2
+
+Il est institué au Burundi un Visa Géomatique qui garantit l’authenticité de l’intérêt général et de conformité technique pour toute étude Géomatique SIG (Système d’Information Géographique) entreprise sur le territoire national. Un visa Géomatique est une autorisation écrite délivrée, sur demande, sous forme de code alphanumérique, par le Bureau de Centralisation Géomatique, à toute personne désireuse d’entreprendre une étude Géomatique et attestant que cette étude respecte les normes et méthodes reconnues, que ce soit au niveau de son organisation ou de la publication des données qui en sont issues.
