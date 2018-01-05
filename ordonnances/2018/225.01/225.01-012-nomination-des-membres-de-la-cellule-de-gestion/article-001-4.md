@@ -1,0 +1,3 @@
+# Article 1 4
+
+Sont nommés membres de la Cellule de Gestion des Marchés Publics (CGMP) de la Municipalité de Bujumbura, les personnes dont les noms suivent: KINSHASA Christophe: Président; NTUNGA Ferdinand: Membre; MUCOMWIZA Jean Marie: Membre; BIZIMANA Désiré: Membre; NZOYISABA Claver: Membre; NSABIMANA Gérard: Membre; NDAYIZEYE Godelieve: Membre; SINDIMWO Carine: Membre; NZEYIMANA Apollinaire: Membre; BUCUMI Jean Bosco: Membre; NTAHIMPEREYE Jean Claude: Membre; BANA Anatole: Membre; KAZATSA Candide: Membre; MINANI Léonard: Membre; NIYUHIRE Jacqueline: Membre; NIYIKORA Salvator: Membre; NTIRANDEKURA Jean Claude: Membre.

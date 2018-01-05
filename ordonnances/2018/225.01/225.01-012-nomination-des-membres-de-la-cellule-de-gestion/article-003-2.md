@@ -1,0 +1,3 @@
+# Article 3 2
+
+Sont nommés membres de la Cellule de Gestion des Marchés Publics au SEP/CNPS: 1. Monsieur Arcade NIMUBONA: Président 2. Monsieur Désiré NIYIBURANA; 3. Madame Francine MUNEZERO; 4. Docteur Paul-Claudel RUBEYA; 5. Madame Edwige NYAWAKIRA; 6. Madame Noémie-Claire SINIREMERA; 7. Madame Marie Goreth NIZIGIYIMANA; 8. Madame Rosalie SINDAYIKENGERA; 9. Madame Médiatrice NDORICIMPA; 10 Madame Francine MUTUYEYEZU; 11. Madame Marie Chantal NIYUHIRE; 12. Madame Evelyne KANYAMUNEZA; 13. Madame Romaine HARERIMANA; 14. Madame Aline NEGAMIYE; 15. Madame Jeanne NKUNZIMANA. 16. Monsieur Félix NTAKARUTIMANA; 17. Monsieur Benoît BUTOYI; 18. Madame Céline BARUMPUNDE.
