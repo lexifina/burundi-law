@@ -1,0 +1,5 @@
+# Article 12
+
+A l’instar de tout citoyen et dans la mesure de sa condition physique, sensorielle, mentale et sociale, toute personne handicapée a des devoirs envers la famille, la communauté, la société, l’Etat et les autres collectivités publiques. Ces devoirs sont notamment: - préserver et renforcer la réconciliation et l’unité nationale; - respecter les lois, les règlements et les institutions de la République; - préserver le développement harmonieux de sa famille et œuvrer en faveur de sa cohésion; - respecter et assister les membres de la famille en cas de nécessité; - veiller, dans ses relations avec la société, à la préservation et au renforcement des valeurs culturelles burundaises et à contribuer à l’établissement d’une société normalement saine; - s’acquitter de ses obligations civiques; - accomplir avec conscience, probité, dévouement et loyauté tout mandat lui confié pour l’intérêt général; - contribuer à la sauvegarde de la paix, de la démocratie et de la justice sociale; - contribuer par son travail à la construction et à la prospérité du pays.
+
+Chapitre III Des intervenants et de la nature de leurs interventions Section 1 Des intervenants
