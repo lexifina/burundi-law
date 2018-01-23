@@ -1,0 +1,3 @@
+# Article 2 2
+
+Les personnes bénéficiaires de l’indemnité d’ajustement salariale sont tous les fonctionnaires et agents de la fonction publique ainsi que les personnels des établissements publics à caractère administratif, industriel et/ou commercial, les administrations personnalisées de l’Etat et les administrations à caractère social, dont les salaires sont inférieurs à ceux des fonctionnaires enseignants de même niveau et même ancienneté régis par le Statut Général des Fonctionnaires. Cette indemnité ne concerne pas les personnels de l’Armée, de la Police, du secteur de la santé publique et les Magistrats.
