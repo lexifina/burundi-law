@@ -1,0 +1,3 @@
+# Article 45
+
+Un membre du personnel civil frappé d’une sanction disciplinaire peut introduire par écrit une réclamation endéans huit jours ouvrables à compter de la date de la notification de la sanction auprès de l’autorité qui l’a prononcé et celui-ci dispose de huit jours pour réagir. S’il n’obtient pas la satisfaction, il peut introduire par écrit endéans douze jours un recours auprès de l’autorité hiérarchiquement supérieure à celle qui a prononcé la sanction qui dispose de trente jours pour réagir. Toutefois, le recours hiérarchique ne peut se faire au-delà de l’autorité investie du pouvoir de nomination.

@@ -1,0 +1,3 @@
+# Article 54
+
+Le Ministre ayant la Défense Nationale dans ses attributions peut mettre en disponibilité pour motif de convenance personnelle, un personnel civil qui le demande par écrit. La durée de mise en disponibilité pour convenance personnelle est de trois ans renouvelable une fois pour les membres de la Catégorie d’Exécution et de Collaboration, cinq ans non renouvelable pour les membres de la Catégorie de Direction. La durée de mise en disponibilité pour convenance personnelle peut être interrompue sur demande écrite de l’intéressé. Au tenue de la durée de sa mise en disponibilité pour convenance personnelle, le personnel civil qui ne regagne pas son service dans Cinq jours calendriers depuis la date présumée est considéré comme déserteur.

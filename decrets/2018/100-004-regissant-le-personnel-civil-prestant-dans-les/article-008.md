@@ -1,0 +1,3 @@
+# Article 8
+
+Le personnel civil du Ministère de la Défense Nationale et des Anciens Combattants comprend les catégories suivantes: - La catégorie de direction correspondant à celle des officiers, dont les membres sont titulaires d’au moins un diplôme de licence ou équivalent; - La catégorie de collaboration correspondant à celle des sous- officiers dont les membres sont titulaires d’au moins un diplôme du cycle supérieur des humanités générales ou équivalent; - La catégorie d’exécution correspondant à celle des hommes de rang dont les membres ont pour niveau de formation, au moins le cycle inférieur des humanités ou équivalent.

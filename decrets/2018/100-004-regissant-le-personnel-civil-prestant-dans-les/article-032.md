@@ -1,0 +1,3 @@
+# Article 32
+
+Le congé de maternité est accordé de droit au Personnel civil féminin à l’occasion de son accouchement. Sa durée est de 14 semaines, réparties en deux tranches, une avant et une après l’accouchement. Le médecin traitant détermine la durée respective des deux tranches La tranche du congé qui se situe après l’accouchement ne peut être inférieur à six semaines. Pendant la période d’allaitement, la femme a droit à deux heures d’allaitement par jour pendant les six premiers mois et à une heure d’allaitement par jour pendant les six mois suivants, à compter de la fin du congé de maternité.
