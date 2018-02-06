@@ -1,0 +1,3 @@
+# Article 3 16
+
+Toutes dispositions antérieures contraires à cette ordonnance sont abrogées.

@@ -1,0 +1,3 @@
+# Article 21
+
+Le BRC comprend autant de cellules que de besoin et a notamment pour missions de: - exécuter les instructions du chef de service en matière de recherche et de collecte des informations; - préparer le plan de recherche et de collecte des informations sur toute activité pouvant mettre en cause la défense nationale; - tenir à jour le journal de situation sécuritaire; - tenir à jour le dossier des groupes armés ayant des incidences sécuritaires sur le Burundi; - identifier les menaces potentielles; - tenir à jour la base de données des informations sécuritaires collectées; - préparer les domaines de renforcement de capacité en matière de renseignement; - préparer le plan d’action annuel du bureau; - préparer le budget du Bureau.

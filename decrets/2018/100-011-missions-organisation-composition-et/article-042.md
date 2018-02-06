@@ -1,0 +1,3 @@
+# Article 42
+
+La BLFDNB a notamment pour missions de: - exécuter les instructions du chef de service logistique; - commander, administrer et coordonner les services techniques et l’unité de défense; - assurer la défense des installations de la BLFDNB; - participer à la réception des matériels et équipements commandés; - participer à la gestion des stocks de la FDNB; - veiller au respect des normes de stockage et à l’état des magasins de la FDNB; - prendre des mesures préventives contre le vol et l’incendie; - réparer des armes de la FDNB; - tenir à jour les documents de gestion; - Participer à la formation des spécialistes en AMMO.

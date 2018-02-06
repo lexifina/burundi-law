@@ -1,0 +1,3 @@
+# Article 18
+
+Le BA comprend autant de cellules que de besoin et a notamment pour missions de: - exécuter les instructions du chef de service en matière de l’archivage des documents; - veiller à la conservation des textes légaux et réglementaires régissant la FDNB; - participer à la révision du cadre légal de la FDNB; - mettre en place des mesures de sécurité physique, de conservation et d’accessibilité aux archives en tenant compte de leur degré de classification; - mettre en place la chaîne de traitement des archives en vue de permettre leur traçabilité; - instaurer un système d’archivage électronique; - participer au renforcement des capacités du personnel de gestion des archives; - Préparer le plan d’action annuel du bureau; - préparer le budget du bureau.

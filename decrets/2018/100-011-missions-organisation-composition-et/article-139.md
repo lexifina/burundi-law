@@ -1,0 +1,3 @@
+# Article 139
+
+L’ESA a notamment pour missions de : - exécuter les instructions du commandant de la Force Aérienne en matière de formation; - commander, coordonner et administrer l’Ecole et la compagnie de défense; - préparer les critères de sélection des candidats aviateurs; - participer à la sélection des candidats aviateurs; - préparer les blocs programmes; - organiser la formation des sous-officiers candidats aviateurs; - assurer la défense et la protection des installations de l’école; - participer à la protection de l’environnement; - participer aux missions de secours et d’assistance en cas de désastres et de catastrophes.

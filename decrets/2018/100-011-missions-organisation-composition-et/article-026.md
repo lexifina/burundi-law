@@ -1,0 +1,3 @@
+# Article 26
+
+Le BAP comprend autant de cellules que de besoin et a notamment pour missions de: - exécuter les instructions du chef de service en matière d’analyse et production du renseignement; - préparer le plan d’analyse et de production du renseignement; - étudier les menaces potentielles et préparer une note de renseignement - centraliser, examiner, traiter les données recueillies et préparer le bulletin de renseignement; - préparer les domaines de renforcement de capacité en matière d’analyse et de production du renseignement; - préparer le plan d’action annuel du bureau; - préparer le budget du Bureau.

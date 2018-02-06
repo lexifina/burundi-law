@@ -1,0 +1,3 @@
+# Article 3 2
+
+Sont membres du Comité Technique de l’Enquête nationale sur la situation nutritionnelle et la mortalité au Burundi de 2018: 1. Deux représentants de l’ISTEEBU dont l’un est coordonnateur Technique de l’enquête: Président et l’autre coordonnateur chargé de la Méthodologie et Opérations de Terrain: Secrétaire 2. Deux techniciens de PRONIANUT dont l’un est coordonnateur responsable du volet nutrition: Vice-président et l’autre: Membre; 3. Un technicien de DSNIS: Membre; 4. Deux techniciens de l’UNICEF: Membres; 5. Un technicien de l’Agence Américaine pour le Développement International (USAID/FFP): Membre; 6. Un technicien de l’OCHA: Membre; 7. Un technicien de l’INSP: Membre.

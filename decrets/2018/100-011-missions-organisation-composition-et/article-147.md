@@ -1,0 +1,3 @@
+# Article 147
+
+Le Bureau chargé des systèmes d’information et des communications « B6 » en sigle a notamment pour missions de : - exécuter les instructions du commandant de la Force de la Marine en matière des SIC - participer à l’élaboration des instructions de la Force de la Marine; - assurer les transmissions au sein des unités de la Force de la Marine; - assurer la maintenance des appareils des SIC : - préparer les spécifications techniques et logiques des matériels et équipements des SIC à acquérir; - participer à l’élaboration du plan d’approvisionnement dans le domaine des SIC; - participer à l’élaboration du budget de fonctionnement de l’Etat major de la Force de la Marine.

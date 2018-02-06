@@ -1,0 +1,3 @@
+# Article 105
+
+Le bureau chargé de la logistique «B4 » en sigle a notamment pour missions de: - exécuter les instructions du commandant de la Force Terrestre en matière de la logistique; - participer à l’élaboration des instructions de la Force Terrestre; - participer à l’élaboration des plans d’approvisionnement logistique; - élaborer des plans de distribution logistique aux unités de la Force Terrestre; - participer au processus des marchés publics; - faire le suivi de la gestion des caisses production, des cantines et mess des unités de la force Terrestre; - préparer le budget de fonctionnement de l’Etat-major de la Force Terrestre; - préparer le budget de la Force Terrestre.

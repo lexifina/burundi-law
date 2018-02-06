@@ -1,0 +1,3 @@
+# Article 123
+
+Le CFMP a notamment pour missions de : - exécuter les instructions du commandant de la Force Terrestre; - commander, administrer et coordonner les services techniques et la sous-unité de défense; - former les bataillons en matière des OMP; - assurer la logistique des bataillons en formation de pré-déploiement; - actualiser et harmoniser les programmes de formation conformément aux standards internationaux; - organiser des formations des formateurs en OMP; - organiser des recyclages visant le renforcement des capacités des instructeurs du CFMP; - entretenir un partenariat avec les autres centres ayant la même vocation; - assurer la défense des installations CFMP; - préparer le budget de fonctionnement du CFMP;

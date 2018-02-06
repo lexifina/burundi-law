@@ -1,0 +1,3 @@
+# Article 46
+
+L’unité GnTvx a notamment pour missions de: - exécuter les instructions du chef de service logistique; - commander, administrer et coordonner les sous-unités techniques et la sous-unité de défense; - exécuter des activités de production; - participer à des travaux d’intérêt public; - participer aux missions de secours et d’assistance en cas de désastres et de catastrophes; - élaborer les spécifications techniques des engins de génie travaux à acquérir; - participer au processus des marchés publics dans le domaine des engins de génie travaux; - préparer le budget des engins de génie travaux de la FDNB.

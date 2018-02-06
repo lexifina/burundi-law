@@ -1,0 +1,3 @@
+# Article 148
+
+Le Bureau du moral et des relations publiques « B9 » en sigle a notamment pour missions de : - exécuter les instructions du commandant de la Force de la Marine en matière du moral et des relations publiques; - participer à l’élaboration des instructions de la Force de la Marine; - planifier des activités visant à renforcer le moral et la cohésion des militaires de la Force de la Marine; - assurer la liaison et la collaboration avec les partenaires de la Force de la Marine; - coordonner la participation des unités de la Force de la Marine aux activités de développement communautaire et de la protection de l’environnement lacustre; - participer l’élaboration du budget de fonctionnement de l’Etat-major de la Force de la Marine.

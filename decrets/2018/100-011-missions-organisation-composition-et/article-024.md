@@ -1,0 +1,3 @@
+# Article 24
+
+Le BSM comprend autant de cellules que de besoin et a notamment pour missions de: - exécuter les instructions du chef de service en matière de sûreté à la FDNB; - préparer un plan opérationnel de sûreté à la FDNB - détecter toute forme de menaces physiques contre le personnel, les installations, les infrastructures et les équipements militaires; - préparer des mesures de prévention et de lutte contre toute forme de corruption, de détournement et de malversation au sein de la FDNB; - préparer les mesures de lutte contre les facteurs susceptibles de porter atteinte au moral des militaires; - préparer les domaines de renforcement de capacité en matière de cureté militaire; - Préparer le plan d’action annuel du bureau; - préparer le budget du Bureau.

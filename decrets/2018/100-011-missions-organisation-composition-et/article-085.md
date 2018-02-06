@@ -1,0 +1,3 @@
+# Article 85
+
+Le BRP comprend autant de cellules que de besoin et a notamment pour missions de: - exécuter les instructions du chef de service en matière des relations publiques; - préparer les directives en matière des relations publiques; - préparer des mécanismes de gestion de litiges en cas de contentieux civile-militaire; - préparer un plan de coopération avec les autres partenaires en matière des relations publiques; - préparer des activités civile-militaires visant la promotion de l’image de la FDNB; - préparer un plan de participation aux activités de développement communautaires et de la protection de l’environnement; - préparer le plan d’action annuel; - préparer le budget du bureau.

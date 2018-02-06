@@ -1,0 +1,3 @@
+# Article 154
+
+Le BIL a notamment pour missions de: - exécuter les instructions du commandant de la Force de la Marine; - commander, coordonner et administrer les unités subordonnées; - participer à la défense de la côte lacustre contre toute incursion armée; - assurer la sécurisation des lacs du Nord; - élaborer et exécuter les programmes d’instruction; - assurer l’entretien des embarcations dotées au BIL; - exécuter les missions de lutte contre le trafic lacustre illégal; - participer à des activités de développement communautaire et de protection de l’environnement lacustre; - participer aux opérations de secours et d’assistance en cas de désastres et de catastrophes lacustres.

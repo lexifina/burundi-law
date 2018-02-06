@@ -1,0 +1,3 @@
+# Article 36
+
+Le BAp comprend autant de cellules que de besoin et a notamment pour missions de: - exécuter les instructions du chef de service logistique; - préparer les instructions du service logistique en matière des approvisionnements; - préparer les plans d’approvisionnement logistique; - faire le suivi de l’exécution des plans d’approvisionnement logistique; - élaborer les spécifications techniques du matériel de bureau à acquérir; - participer au processus des marchés publics en matériel de bureau; - préparer le budget du matériel de bureau de la FDNB; - préparer le plan d’action annuel du bureau; - préparer le budget du bureau.

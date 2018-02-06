@@ -1,0 +1,3 @@
+# Article 99
+
+La Force Terrestre a notamment pour missions de: - exécuter les orientations du C/FDNB; - exécuter les directives de l’EMG/FDNB; - participer à la sauvegarde de l’intégrité du territoire national terrestre; - commander et administrer les unités de la Force Terrestre; - coordonner les activités de l’Etat- Major de la Force Terrestre; - planifier et coordonner la formation aux OMP; - participer dans les opérations humanitaires; - participer à la lutte contre le terrorisme, les trafics illicites et la prolifération des armes légères et de petit calibre; - participer à la protection de l’environnement.
