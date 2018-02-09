@@ -1,0 +1,3 @@
+# Article 9
+
+L’Etat est assigné par le biais du Ministre ayant le cas litigieux sous sa responsabilité. L’assignation est signée pour réception par le Ministre lui-même ou son délégué. L’assignation est ensuite transmise, accompagnée des éléments de défense, à la direction des affaires juridiques et du contentieux dans un délai ne dépassant pas 15 jours. L’assignation des institutions visées à l’article 3 du présent décret est signée par le premier responsable dudit service ou son délégué. L’assignation d’une Commune est signée par l’Administrateur Communal ou son délégué. Toutefois, la signification d’un jugement ou d’un arrêt est adressée à l’avocat de l’Etat en charge du dossier qui en informe sans délai le Ministère ou l’institution concernée.
