@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommés Membre du comité de gestion de crise pour la prévention et la riposte contre les épizooties au Burundi. 1. Ir NKURUNZIZA Serges: Président; 2. Mr MBONABUCA Thérance: Vice-Président; 3. Dr NSANGANIYUMWAMI Déogratias: Secrétaire; 4. Ir NDABEMEYE Gérard: Membre; 5. Ir NDIKUMASABO Clément: Membre; 6. Dr MINANI Isaac: Membre; 7. Mr HAVYARIMANA Dismas: Membre; 8. Mme SAMANDARI Béatrice: Membre; 9. C P. NTEMAKO Antoine: Membre; 10. Mr GAHUNGU Richard: Membre; 11. Dr NTAHIRAJA Maurice: Membre; 12. NDORIMANA Emmanuel: Membre; 13. Dr KARIBWAMI Alain Désiré: Membre; 14. Dr RUHANA Mirindi BISIMWA: Membre; 15. NAHIMANA Libérât: Membre.
