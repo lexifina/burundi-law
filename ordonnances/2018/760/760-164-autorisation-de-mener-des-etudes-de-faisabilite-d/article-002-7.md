@@ -1,0 +1,3 @@
+# Article 2 7
+
+Le Directeur Général de l’Administration de l’Enseignement Fondamental et Post Fondamental; le Directeur Général des Ressource Humaines et le Directeur Général des Bureaux Pédagogiques sont chargés chacun en ce qui le concerne de l’exécution de la présente ordonnance qui entre en vigueur le jour de sa signature.

@@ -1,0 +1,5 @@
+# Article 7 2
+
+Des tâches du chef du sous services de promotion de don de sang Le sous service d’accueil des donneurs s’occupe de: - L’accueil et l’orientation des donneurs - La gestion des fiches des donneurs - La confection des cartes de donneurs - La gestion de la base de données des donneurs Le sous service de sélection des donneurs s’occupe de: - Le counseling pré-don; - L’anamnèse médicale; - L’examen physique et prise des paramètres vitaux; - Enregistrement et identification; - Prise de position par: rapport à l’acceptation ou refus des donneurs (acceptation, refus temporaire ou définitif) - Remise du matériel de prélèvement aux donneurs acceptés - Prélèvement, conservation et distribution des poches de sang - Transmission du rapport hebdomadaire Le sous service de remise de résultats s’occupe de: - Le Counseling post don; - La remise des résultats; - La référence du donneur au service de prise en charge clinique si nécessaire.
+
+Section 2 Du service de laboratoire Le service de laboratoire comprend - Le sous service de prélèvement - Le sous service sérologie - Le sous service d’immuno-hématologie

@@ -1,0 +1,3 @@
+# Article 2 19
+
+La Cellule de Gestion des Marchés Publics de l’API est composée des personnes suivantes: 1. Monsieur Léonard SENTORE, Directeur de l’API, Président; 2. Monsieur Déogratias MBONIMPA, Secrétaire; 3. Monsieur David KAMANA, membre; 4. Monsieur Stany NGENDAKUMANA, membre; 5. Monsieur Mechack MOSOZI, membre; 6. Monsieur Vespucci SENGOGA, membre; 7. Monsieur Nahum BIGIRIMANA, membre 8. Monsieur David MUVUNYI, membre; 9. Madame CIZA Antonine BATUNGWA-NAYO, membre; 10. Madame Diane KARIBWAMI, membre; 11. Madame Ella Belyse ZINARYAKUNZE, membre; 12. Madame Imelde NDATIRAMASO, membre; 13. Madame Florence IRAMBONA, membre.

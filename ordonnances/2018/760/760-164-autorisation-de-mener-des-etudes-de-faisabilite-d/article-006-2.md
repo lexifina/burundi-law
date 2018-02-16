@@ -1,0 +1,3 @@
+# Article 6 2
+
+Du chef de promotion de don de sang et de ses attributions Les activités du service promotion de don de sang sont coordonnées, contrôlées et supervisées par un chef de service. Il est nommé par le Directeur Technique sur proposition du Responsable du CRTS, Ses attributions sont les suivantes: - La sensibilisation et le recrutement des donneurs; - La fidélisation des donneurs; - La planification des congés annuels; - La cotation au premier degré du personnel sous sa responsabilité; - La promotion de l’assurance qualité; - La promotion de l’hygiène dans son service; - La production des rapports périodiques; - L’encadrement des stagiaires affectés à son service. - La participation aux réunions du Conseil de Direction
