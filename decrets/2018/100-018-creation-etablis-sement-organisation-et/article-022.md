@@ -1,0 +1,3 @@
+# Article 22
+
+Les dépenses de l’Institut comprennent notamment: - Toute dépense de fonctionnement ou d’investissement nécessaire à la réalisation de ses missions; - Les rémunérations du personnel ainsi que les charges sociales et fiscales y afférentes; - Les frais d’acquisition, de location et d’entretien des biens meubles et immeubles ainsi que le renouvellement de l’équipement technique nécessaire à la réalisation de ses missions; - Les engagements extraordinaires adoptés par le Conseil d’Administration et approuvés par le Ministre ayant l’Enseignement Supérieur et la Recherche Scientifique dans ses attributions; - Toute autre dépense nécessaire à la réalisation de ses missions.
