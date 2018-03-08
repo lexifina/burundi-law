@@ -1,0 +1,3 @@
+# Article 3
+
+L’autorité du Conseil s’exerce dans les domaines ci -après: - les sociétés et entreprises de communication sur le Net; - les entreprises de communication audiovisuelles, publiques et privées; - les journaux et publications périodiques, publics et privés; - les journalistes et techniciens d’information; - les cinémas; - la publicité; - les agents de distribution de presse et de communication; - les librairies qui vendent ou mettent à la disposition du public des contenus médiatiques. Tous les médias internationaux ou étrangers, publiés ou diffusés sur le Territoire national, quelles que soient les modalités de leur mise à la disposition du public, rentrent également dans le champ d’application de l’autorité du CNC.
