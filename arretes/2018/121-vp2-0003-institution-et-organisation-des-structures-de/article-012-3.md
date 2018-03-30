@@ -1,0 +1,15 @@
+# Article 12 3
+
+Le présent arrêté entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 26/3/2019 Le Premier Vice-Président de la République Gaston SINDIMWO (sé)
+
+Le Deuxième Vice-Président de la République Dr. Joseph BUTORE (sé)
+
+Le Ministre des Finances, du Budget et de la Coopération au Développement Economique Dr. Domitien NDIHOKUBWAYO (sé)
+
+Le Ministre des Affaires Etrangères Hon. Ezéchiel NIBIGIRA (sé) Tarif de vente, d’abonnement et frais d’insertion au Bulletin Officiel du Burundi. VENTE ET ABONNEMENT 1. Voie ordinaire Fbu/an Fbu/N° Au Burundi: - retrait par l’abonné lui-même 120.000 Fbu 9.000 Fbu - livraison à domicile ou au bureau 150.000 Fbu 9.000 Fbu Autres pays: - livraison à l’agence ou au bureau de liaison 150.000 Fbu 9.000 Fbu 2. Voie aérienne République Démocratique du Congo et République du Rwanda 134.000 Fbu 9.750 Fbu Afrique 136.800 Fbu 9.875 Fbu Europe, Proche et Moyen Orient 176.400 Fbu 12.250 Fbu Amérique, Extrême Orient 199.200 Fbu 13.125 Fbu Le coût d’insertion est calculé comme suit: 6.000 FBU par douze lignes indivisibles et moins de douze lignes. Sauf exception, l’acquisition d’un ou plusieurs numéros du Bulletin Officiel du Burundi ainsi que l’abonnement à ce périodique sont à titre onéreux. Le paiement est préalable à la livraison et s’effectue au moyen d’un simple versement de 70% à l’OBR et de 30% au compte du Centre d’Etudes et de Documentations Juridiques "C.E.D.J." tel que fixé par l’Ordonnance Conjointe n°550/540/1090 du 18 Août 2015. 3. Insertion Outre les actes du Gouvernement, sont Insérés au Bulletin Officiel du Burundi: Les publications légales, extraits et modification des actes ainsi que les communications ou avis des Cours et Tribunaux.
+
+Les assignations et les significations à domicile inconnu des Cours et Tribunaux sont publiées à titre onéreux.
+
+Les demandes d’insertion au Bulletin Officiel du Burundi doivent être adressées au Directeur du Centre d’Etudes et de Documentations Juridiques accompagnées du paiement du coût indiqué ci-dessus. 4. Bulletin objet d’un code: 15.000 FBU Pour tout renseignement relatif au Bulletin Officiel .du Burundi, adressez-vous au Centre d’Etudes et de Documentations Juridiques, Avenue de Luxembourg n°4, B.P. 7379 Bujumbura, téléphone 22252637. O.M. N°550/540/1090 du 18 Août 2015 Imprimé au Centre d’Etudes et de Documentations Juridiques

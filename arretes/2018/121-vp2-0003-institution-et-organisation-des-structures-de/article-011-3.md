@@ -1,0 +1,3 @@
+# Article 11 3
+
+Toutes dispositions antérieures contraires au présent arrêté sont abrogées.
