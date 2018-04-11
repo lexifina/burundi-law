@@ -1,0 +1,3 @@
+# Article 3 5
+
+Le Cahier de charge du comité de Pilotage est le suivant:  Coordonner avec les partenaires toutes les activités de la Campagne,  Informer et sensibiliser la Communauté éducative sur l’exécution et la pérennisation des acquis de la Campagne:  Organiser en collaboration avec les Directions Provinciales de l’Enseignement, les services et les partenaires des ateliers et des séminaires dans le cadre du déroulement de la Campagne;  Superviser les formations, la construction, la réhabilitation et équipement des écoles:  Suivre la mise en œuvre des activités de la Campagne 2018 et contribuer à l’évaluation des Campagnes précédentes.
