@@ -1,0 +1,3 @@
+# Article 4
+
+Les expressions et les termes visés dans le présent décret sont entendus dans le sens ci-après: - véhicule: Tout moyen de transport par terre ainsi que tout matériel roulant agricole ou industriel; - le déchaussement: destruction de la chaussée par la démolition de sa structure due aux rayures causées par une partie métallique d’un véhicule suite à une panne, ou arrachement de la couche de roulement provoquée par un freinage brusque d’un véhicule en excès de vitesse; - l’arrachement: dégradation causée à la chaussée bitumée par le déversement ou le dépôt, suivant le cas, du carburant, huiles ou graissages ou tout autre produit et/ou objet réputé dangereux pour la chaussée; - la barricade: entassement de matériaux et d’objets

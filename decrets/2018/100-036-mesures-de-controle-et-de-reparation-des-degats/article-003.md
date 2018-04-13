@@ -1,0 +1,3 @@
+# Article 3
+
+Les parties sensibles du réseau routier pouvant subir des dégradations causées par les usagers de la route sont notamment: - les fossés et les systèmes de drainage ou d’assainissement; - les chaussées; - les trottoirs, les accotements et les bordures; - les bandes d’ensoleillements; - les talus; - les ouvrages de soutènement/protection (gabions, murs de soutènements, passerelles,…) - les ouvrages d’art, de publicité, des signes commémoratifs, des monuments, des statues ou autres objets destinés à l’utilité ou à la décoration publique; - les dispositifs de sécurité et de signalisation; - les stations de pesage; - les postes de péages et leurs dépendances; - les barrières ponctuelles; - les bacs et ponts.
