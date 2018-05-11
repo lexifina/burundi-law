@@ -1,3 +1,3 @@
 # Article 149
 
-Si le destinataire de l’exploit est une personne morale, il est remis à son représentant légal, à son fondé de pouvoir ou à toute per-sonne habilitée à cet effet qui en reçoit une copie.
+Le rapport de l’expert n’a que valeur d’un avis qui ne lie pas le Magistrat instructeur lorsque l’expert a excédé sa mission, le Magistrat instructeur écart son rapport, en tout ou en partie

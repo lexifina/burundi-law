@@ -1,9 +1,19 @@
 # Article 118
 
-Le cautionnement est remboursé en cas de classement sans suite de l’affaire, de mainlevée de la détention, du retrait du bénéfice de la liberté provisoire, ou d’acquittement.
+Le témoin prête serment avant de déposer. Le serment est ainsi conçu: «je jure de dire la vérité, toute la vérité et rien que la vérité ». Toutefois, l’Officier du Ministère Public peut imposer la forme de serment dont l’emploi, d’après les coutumes locales, paraît le plus propre à garantir la sincérité de la déposition Ne peuvent être reçues sous la foi du serment les dépositions
 
-Le remboursement du cautionnement consigné lors de la mise en liberté provisoire est ordonné par l’Officier du Ministère Public près la juridic-tion qui l’a décidée. En cas de fuite, le cautionnement est acquis au Trésor public, sans préjudice des droits de la partie civile et après déduction des frais aux-quels le défaut de se présenter aura pu donner lieu.
+1° du père, de la mère ou de tout autre ascendant de l’accusé;
 
-Le remboursement est fait par la juridiction compétente en cas de cautionnement opéré par le juge.
+2° du fils, de la fille ou de tout autre descendant en ligne directe ainsi que des enfants adoptifs de l’accusé et de ceux dont il est le tuteur
 
-Section 2 De la liberté provisoire
+3° des frères et sœurs
+
+4° des alliés au premier degré
+
+5° de l’époux ou de l’épouse
+
+6° de la partie civile
+
+7° des mineurs
+
+8° du domestique de l’accusé

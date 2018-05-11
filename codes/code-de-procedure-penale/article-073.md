@@ -1,3 +1,3 @@
 # Article 73
 
-L’Officier du Ministère Public fait comparaître l’inculpé afin qu’il fournisse des explications sur les faits qui lui sont reprochés. Sous peine de nullité, l’inculpé doit être informé de ses droits conformément aux articles 10 ali-néa 5 et 95.
+Les décisions du Procureur de la République prises en application de l’article précédent précisent l’infraction qui motive le recours à cès opérations, la localisation exacte ou la description détaillée des systèmes de traitement automatisé de données ainsi que la durée des opérations.

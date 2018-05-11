@@ -1,3 +1,5 @@
 # Article 265
 
-Les pièces d’instruction et l’expédi-tion du jugement dont appel sont transmises le plus rapidement possible par le greffier de la juridiction qui a rendu le jugement au greffier de la juridiction qui doit connaître de l’appel et au plus tard dans les 15 jours de la date d’appel.
+L’arrestation immédiate peut être ordonnée s’il y a lieu de craindre que le condamné ne tente de se soustraire à l’exécution de la peine et que celle-ci soit de trois mois de servitude pénale au moins. Elle peut même être ordonnée quelle que soit la durée de la peine prononcée, si des circonstances graves exceptionnelles, qui sont indiquées dans le jugement, le justifient. Tout en ordonnant l’arrestation immédiate, le tribunal peut ordonner que le condamné, s’il le demande, soit néanmoins mis en liberté provisoire sous les mêmes conditions et charges que celles prévues à l’article 163, jusqu’au jour où le jugement acquiert force de chose jugée. L’Officier du Ministère Public peut faire incarcérer le condamné qui manque aux charges qui lui ont été imposées. Si le condamné conteste être en défaut, il peut adresser un recours au tribunal qui a prononcé. la condamnation. La décision rendue sur ce recours n’est pas susceptible d’appel.
+
+Le cautionnement éventuellement déposé par le condamné lui est restitué dans les conditions et. sous réserves prévues à l’article 263.

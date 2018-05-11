@@ -1,5 +1,3 @@
 # Article 79
 
-L’Officier du Ministère Public peut faire citer devant lui toute personne dont il estime l’audition nécessaire. L’inculpé et la partie civile ont également le droit de demander à l’Officier du Ministère Public d’entendre un témoin.
-
-La personne régulièrement citée est tenue de comparaître et de satisfaire à la citation.
+Les enregistrements des données informatiques sont détruits, à la diligence du Procureur de la République à l’expiration du délai de prescription de l’action publique ou en cas de décision définitive d’acquittement. Il est dressé procès-verbal de l’opération de destruction. Paragraphe 6 Les sonorisations et les fixations d’images de certains lieux ou véhicules

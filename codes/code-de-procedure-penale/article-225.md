@@ -1,3 +1,3 @@
 # Article 225
 
-L’Officier de Police Judiciaire ou l’Officier du Ministère Public en charge du dos-sier dans lequel est mis en cause un mineur de moins de dix-huit ans effectue toutes diligences et investigations utiles à la connaissance de la personnalité dudit mineur. Il peut ordonner notamment une enquête sociale sur la situation matérielle et morale de la famille, le caractère et les antécédents du mineur, sa fréquentation scolaire, son compor-tement ainsi que sur les conditions dans lesquel-les il a été élevé. L’enquête sociale prévue à l’alinéa précédent peut être effectuée, à la demande de l’autorité judiciaire en charge du dossier du mineur, par un service social ou par toute autre personne qualifiée.
+Toute personne à qui la parole est donnée doit s’exprimer avec modération et dans le respect dû à la justice. Toute injonction du président pour le maintien de l’ordre à l’audience doit être exécutée sur le champ. Paragraphe 2 De l’instruction à l’audience

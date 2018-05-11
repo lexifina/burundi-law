@@ -1,9 +1,9 @@
 # Article 316
 
-La demande de relèvement est adressée au Procureur de la République qui peut ordonner, en cas de besoin, une expertise ou une enquête pour compléter le dossier.
+L’opposition peut être faite, soit par déclaration en réponse au bas de l’original de l’acte de signification, soit par déclaration au greffe du tribunal qui a rendu le jugement, soit par lettre missive adressée au greffier du même tribunal.
 
-Le Procureur de la République transmet le dos-sier à la juridiction compétente, en y joignant un avis motivé.
+La date de la réception de la lettre missive par le greffier détermine la date à laquelle l’opposition doit être considérée comme faite.
 
-La juridiction saisie statue en Chambre de Conseil sur les conclusions du Ministère Public, le requérant ou son conseil entendu ou dûment convoqué.
+Le jour même où il reçoit la lettre missive, le greffier y inscrit la date où il l’a reçue et la fait connaître à l’opposant.
 
-Section 6 Des interdictions
+Le greffier avise immédiatement le Ministére Public de l’opposition

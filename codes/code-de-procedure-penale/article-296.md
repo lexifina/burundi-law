@@ -1,5 +1,3 @@
 # Article 296
 
-La contrainte par corps ne peut être exercée que dix jours après un commandement fait au condamné à la requête de la partie pour-suivante.
-
-Les réquisitions d’incarcération ne sont valables que jusqu’à l’expiration des délais de prescrip-tion de la peine. Cette prescription acquise, la contrainte par corps qui n’aura pas commencé à être exercée, ne pourra plus l’être.
+Sous peine de nullité du jugement à intervenir, le huis clos est obligatoire devant toute juridiction appelée à connaître d’une affaire dans laquelle un mineur est mis en cause Nonobstant les dispositions de l’alinéa précédent, sont seuls admis à assister aux débats les témoins, parents, tuteurs, avocats, assistants sociaux et les représentants des associations ou des services ayant pour objet la promotion ou la protection des droits de l’enfant.

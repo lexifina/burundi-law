@@ -1,5 +1,5 @@
 # Article 356
 
-Lorsque le délai légal expire un jour où le greffe est fermé, l’acte y est valablement reçu le plus prochain jour d’ouverture de ce greffe.
+La contrainte par corps ne peut être exercée que dix jours après. un commandement fait au condamné à la requête de la partie poursuivante.
 
-Chapitre XV Des dispositions transitoires et finales
+Les réquisitions d’incarcération ne sont valables que jusqu’à l’expiration des délais de prescription de la peine. Cette prescription acquise, la contrainte par corps qui n’aura pas commencé à être exercée, ne pourra plus l’être.

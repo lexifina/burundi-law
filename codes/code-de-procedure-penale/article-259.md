@@ -1,3 +1,5 @@
 # Article 259
 
-Il est sursis à l’exécution du juge-ment par défaut jusqu’à l’expiration du délai fixé par l’article 254 alinéa 1 et, en cas d’opposition, jusqu’au jugement sur recours. Il est de même sursis à la poursuite de la procé-dure en appel engagée par le Ministère Public, la partie civilement responsable ou la partie civile contre un jugement de condamnation prononcé par défaut à l’égard du prévenu. Lorsque le jugement n’est par défaut qu’à l’égard de la partie civilement responsable ou de la par-tie civile, l’opposition de ces dernières ne sus-pend pas l’exécution du jugement contre le prévenu.
+Le juge décide d’après la loi et son intime conviction.
+
+Les jugements sont prononcés aussitôt après la clôture’ des débats et au plus tard dans les trente jours qui suivent la prise en délibéré du dossier.

@@ -1,3 +1,3 @@
 # Article 89
 
-Les dispositions sur les visites des lieux et les perquisitions ne s’appliquent pas dans tous les cas où les lieux ou les locaux sus-pectés jouissent de la protection diplomatique.
+Les Officiers du Ministère Public peuvent charger les Officiers de Police Judiciaire d’effectuer, en se conformant à la loi, tous actes de leur compétence prévus au chapitre précédent qu’ils déterminent.

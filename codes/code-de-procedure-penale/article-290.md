@@ -1,5 +1,3 @@
 # Article 290
 
-En cas d’indemnisation de la vic-time de la torture, l’État peut exercer une action récursoire contre l’agent tortionnaire, ses co-auteurs et ses complices.
-
-Section 3 De la contrainte par corps
+Le jugè de la détention organise l’audience de contrôle de la détention préventive dans un délai ne dépassant pas quinze jours à compter du jour de sa saisine par le Ministère public ou par l’inculpé, son conseil, ses parents, son tuteur ou son gardien. L’Ordonnance autorisant la mise en détention préventive du mine.ur est valable pour quinze jours, y compris le jour où elle est rendue. A l’expiration de ce délai, la détention préventive peut être prorogée par décision motivée pour quinze jours et ainsi de suite, aussi longtemps que l’intérêt public l’exige. En tout état de cause, la détention préventive du mineur ne peut dépasser six mois.

@@ -1,3 +1,3 @@
 # Article 203
 
-Le prévenu qui, au moment du juge-ment est en état de détention préventive et qui est acquitté ou condamné à une simple amende, est mis immédiatement en liberté, nonobstant appel, à moins qu’il ne soit détenu pour une autre cause.
+La citation directe est une action par laquelle la partie lésée par une infraction met en mouvement l’action publique en saisissant directement le juge répressif en vue de la réparation civile du dommage subi et de l’application de la peine. La juridiction saisie en informe le Ministère Public.

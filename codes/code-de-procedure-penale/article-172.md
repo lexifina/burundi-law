@@ -1,5 +1,3 @@
 # Article 172
 
-Hors les cas où la loi en dispose autrement, les infractions peuvent être établies par tout mode de preuve.
-
-La défense peut rapporter la preuve contraire d’un fait retenu à sa charge.
+Deux copies sont immédiatement transmises, l’une au parquet près la juridiction ayant décidé la liberté provisoire ou la détention préventive, l’autre au parquet près la juridiction d’appel.

@@ -1,5 +1,3 @@
 # Article 221
 
-La Chambre de Cassation doit sta-tuer dans un délai de quinze jours à compter de la première audience. En cas de cassation avec renvoi, la juridiction de renvoi doit statuer dans les dix jours à compter de la première audience dans la cause renvoyée.
-
-Chapitre VIII De l’enquête préliminaire, de l’instruction, de la poursuite et du jugement des mineurs de moins de dix-huit ans Section 1 De l’enquête préliminaire et de l’instruction
+Si la personne citée ne comparaît pas, elle est jugée par défaut. Toutefois, le Ministère Public a l’obligation de présenter à l’audience le prévenu en état de détention sous peine de nullité de la procédure.

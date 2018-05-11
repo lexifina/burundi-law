@@ -1,7 +1,3 @@
 # Article 264
 
-L’appel peut être fait, soit par décla-ration en réponse au bas de l’original de l’acte de signification, soit par déclaration au greffe de la juridiction qui a rendu le jugement ou de la juri-diction qui doit connaître de l’appel, soit par let-tre missive adressée au greffier de l’une ou l’autre de ces juridictions.
-
-La date de la réception de la lettre missive par le greffier détermine, dans ce dernier cas, la date à laquelle l’appel doit être considéré comme fait.
-
-Le jour même où il reçoit la lettre missive, le greffier y inscrit la date où il l’a reçue et le fait connaître à l’appelant. L’appel est notifié par les soins du greffier aux parties qu’il concerne. Lorsque l’appelant est détenu, la date d’appel par lettre missive est déterminée par la date du visa de cette lettre missive par le responsable de l’établissement.
+Le prévenu en détention préventive dont la condamnation est déjà absorbée par la durée de sa détention préventive est aussitôt mise en liberté malgré l’appel du Ministère Public ou de la partie lésée ayant agi par voie de citation directe.

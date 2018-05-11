@@ -1,5 +1,3 @@
 # Article 310
 
-En cas d’inexécution du travail d’intérêt général, le Procureur de la République applique automatiquement la peine de servitude pénale ou d’amende prévue dans la décision dont exécution.
-
-Section 5 De l’exécution du suivi socio-judiciaire
+Après avoir entendu le Ministère Public dans ses réquisitions, la partie civile ainsi qu’éventuellement la personne civilement responsable, le tribunal reçoit le plaidoyer de culpabilité et clôture les débats. Dans ce cas, j’instruction à l’audience se poursuit selon la procédure ordinaire.

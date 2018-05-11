@@ -1,3 +1,3 @@
 # Article 50
 
-Les Officiers du Ministère Public peuvent exercer eux-mêmes tous les pouvoirs attribués aux Officiers de Police Judiciaire par le présent Code ou par les lois spéciales relati-ves à la Police Judiciaire.
+Dans le cadre de .l’exécution d’une méthode particulière de recherche, un Officier de Police Judiciaire ne peut amener un suspect à commettre d’autres infractions que celles qu’il avait l’intention de commettre.

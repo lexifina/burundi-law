@@ -1,3 +1,5 @@
 # Article 242
 
-Un recours contre la décision fixant le montant des allocations prévues à l’article 241 peut être interjeté devant la Chambre des Mineurs de la Cour d’Appel dans les formes ordi-naires.
+La juridiction peut d’office ou à la demande de l’une des parties, ordonner tout transport sur les lieux.
+
+La présence des parties sur les lieux est obligatoire au même titre que leur comparution à l’audience. Il est dressé procès-verbal de ces opérations.

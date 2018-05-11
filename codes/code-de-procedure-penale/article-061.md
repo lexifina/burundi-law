@@ -1,5 +1,3 @@
 # Article 61
 
-Lorsqu’une infraction relève de la compétence pénale personnelle de la Cour d’Appel, le Procureur Général exerce les pou-voirs attribués au Procureur de la République par les dispositions de la Section suivante.
-
-Section 4 Les attributions du Procureur de la République
+L’infiltration au sens du présent paragraphe est le fait, pour un Officier de Police Judiciaire, appelé infiltrant, d’entretenir, sous une identité fictive, des relations durables avec une ou plusieurs personnes contre lesquelles il existe des indices sérieux qu’elles commettent des infractions dans le cadre d’une organisation criminelle. L’infiltrant peut, dans des circonstances exceptionnelles et moyennant l’autorisation expresse du Procureur de la République, recourir brièvement dans le cadre d’une opération spécifique, à l’expertise d’une personne externe aux services de police si cela s’avère absolument indispensable à la réussite de sa mission.

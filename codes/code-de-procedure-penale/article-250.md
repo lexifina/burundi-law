@@ -1,3 +1,3 @@
 # Article 250
 
-Après avoir entendu le Ministère Public dans ses réquisitions, la partie civile ainsi qu’éventuellement la personne civilement res-ponsable, le tribunal reçoit le plaidoyer de culpabilité et clôture les débats. Dans ce cas, l’instruction à l’audience se pour-suit selon la procédure ordinaire.
+Les témoins doivent, sur demande du président, faire connaître leurs noms et prénoms, âge, profession et domicile, s’ils sont parents ou alliés du prévenu, de la personne civilement responsable ou de la partie civile et s’ils sont à leur service.

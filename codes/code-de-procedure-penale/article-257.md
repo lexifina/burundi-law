@@ -1,5 +1,9 @@
 # Article 257
 
-Le juge fixe le jour où l’affaire sera appelée en tenant compte des délais pour les citations.
+Nonobstant les dispositions de l’article précédent, sont admis comme moyens de preuve:
 
-Le greffier fait citer l’opposant, les témoins dont l’opposant ou le Ministère Public requiert l’audi-tion et, le cas échéant, la partie civile et la partie civilement responsable.
+1° la déposition faite au cours des différentes audiences du procès par une personne qui ne peut. être réentendue ‘pour cause de décès;
+
+2° les dépositions recueillies au cours de l’enquête préliminaire ou de l’instruction préjuridictionnelle ou après serment au cours du procès.
+
+Les critiques formulées contre les témoignages sont souverainement appréciées par le juge.

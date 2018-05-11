@@ -1,3 +1,3 @@
 # Article 233
 
-L’instruction à l’audience ainsi que le jugement suivent les règles de droit commun sous réserve des dispositions de la présente sec-tion.
+Le prévenu ne peut être contraint à témoigner contre lui-même ou de s’avouer coupable

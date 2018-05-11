@@ -1,5 +1,3 @@
 # Article 241
 
-L’autorité qui statue sur la garde du mineur détermine le montant des allocations que perçoit la personne ou l’institution à laquelle elle a été confiée. Ces dernières sont préalable-ment entendues sur les conditions de la garde ou du placement.
-
-Le montant des allocations est mis à la charge du Trésor public si ses parents ou tuteurs sont indigents.
+Le rapport d’expertise ne lie pas le juge. Le tribunal ne peut le retenir ou l’écarter comme base de condamnation que par décision motivée. En matière de violences sexuelles, tout médecin régulièrement autorisé à exercer au Burundi peut établir l’expertise de ces violences. Dans les zones où il ne peut être trouvé de médecin, les responsables des centres de santé peuvent provisoirement établir un rapport de circonstance sur ces violences sous réserve de leur confirmation par un médecin dans les quarante-huit heures à compter du jour de l’établissement dudit rapport.

@@ -1,19 +1,3 @@
 # Article 192
 
-Ne peuvent être reçues sous la foi du serment les dépositions :
-
-1° du père, de la mère ou de tout autre ascend-ant du prévenu ou de l’un des prévenus présents et impliqués dans la même affaire;
-
-2° du fils, de la fille ou de tout autre descend-ant;
-
-3° des frères et sœurs;
-
-4° des alliés au même degré;
-
-5° de l’époux et de l’épouse, même après le divorce;
-
-6° des mineurs en dessous de l’âge de seize ans;
-
-7° de la partie civile;
-
-8° du domestique de l’accusé. Toutefois les personnes visées à l’alinéa précé-dent peuvent être entendues pour donner de simples renseignements.
+Dans les cas qui requièrent célérité, le juge peut, par décision motivée dont connaissance sera donnée avec la citation au prévenu et, le cas échéant, à la partie civilement responsable, abréger le délai de 8 jours prévu à l’article 190 lorsque la peine prévue par la loi ne dépasse pas cinq ans .de servitude pénale ou ne consiste qu’en une amende.

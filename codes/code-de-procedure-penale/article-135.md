@@ -1,5 +1,3 @@
 # Article 135
 
-La juridiction de jugement est saisie des infractions de sa compétence soit par cita-tion donnée au prévenu, soit par comparution volontaire du prévenu, soit enfin par le renvoi ordonné par la Chambre de Cassation de la Cour Suprême. La personne civilement responsable est citée.
-
-La juridiction de jugement peut également être saisie par citation directe faite par la victime.
+Hors les cas d’infraction flagrante, l’Officier du Ministère Public ne peut faire procéder à aucune exploration corporelle sans une autorisation écrite du Juge, Cette autorisation n’est pas requise dans le cas du consentement exprès de la personne intéressée. Pour un mineur, la personne sous l’autorité parentale ou tutélaire de qui il se trouve donne le consentement. Le mineur âgé de 15 ans et plus doit lui aussi donner son consentement Ce consentement doit être constaté par écrit L’exploration corporelle ne peut être effectuée que par un médecin Dans tous les cas, la personne qui doit être l’objet d’une exploration corporelle peut se faire assister par un médecin de son choix ou par un parent ou allié ou par toute autre personne majeure de même sexe qu’elle ne se choisit Paragraphe 5 De la perquisition collective

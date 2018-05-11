@@ -1,3 +1,3 @@
 # Article 176
 
-Le tribunal ne peut fonder sa déci-sion sur la déposition d’un co-prévenu, à moins qu’elle ne soit corroborée par des témoignages d’un tiers non impliqué dans la cause ou par tout autre moyen de preuve.
+Lorsque l’ordonnance du premier juge refusant d’autoriser ou de proroger la mise en détention est infirmée par le juge d’appel, la durée pour laquelle l’autorisation ou la prorogation serait accordée, est fixée par le juge d’appel, sans pouvoir être supérieure à un mois. Cette durée commence à courir à partir du jour où l’ordonnance du juge d’appel est mise à exécution.

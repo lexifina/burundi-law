@@ -1,3 +1,3 @@
 # Article 129
 
-Si l’ordonnance du premier juge refusant d’autoriser ou de proroger la mise en détention est infirmée par le juge d’appel, la durée pour laquelle l’autorisation ou la proroga-tion serait accordée, est fixée par le juge d’appel, sans pouvoir être supérieure à un mois. Cette durée commence à courir à partir du jour où l’ordonnance du juge d’appel est mise à exé-cution.
+Les visites et perquisitions se font en présence de l’auteur présumé de l’infraction, de la personne au domicile ou la résidence de laquelle elles ont lieu. Lorsque les personnes visées à l’alinéa précédent sont absentes ou refusent d’y assister, l’Officier du Ministère Public se fait assister par deux personnes intègres choisies sur les lieux

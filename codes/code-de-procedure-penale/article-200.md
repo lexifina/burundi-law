@@ -1,5 +1,3 @@
 # Article 200
 
-Le juge décide d’ après la loi et son intime conviction.
-
-Les jugements sont prononcés aussitôt après la clôture des débats et au plus tard dans le mois qui suit.
+L’huissier ne peut instrumenter pour lui-même, pour son conjoint, pour ses parents, ses alliés et ceux de son conjoint, en ligne directe ni pour ses parents et alliés collatéraux, jusqu’au quatrième degré inclusivement.

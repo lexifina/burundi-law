@@ -1,5 +1,3 @@
 # Article 206
 
-L’arrestation immédiate peut être ordonnée s’il y a lieu de craindre que le condamné ne tente de se soustraire à l’exécu-tion de la peine et que celle-ci soit de trois mois de servitude pénale au moins. Elle peut même être ordonnée quelle que soit la durée de la peine prononcée, si des circonstan-ces graves et exceptionnelles, qui sont indiquées dans le jugement, le justifient. Tout en ordonnant l’arrestation immédiate, le tribunal peut ordonner que le condamné, s’il le demande, soit néanmoins mis en liberté provi-soire sous les mêmes conditions et charges que celles prévues à l’article 119, jusqu’au jour où le jugement acquiert force de chose jugée. L’Officier du Ministère Public peut faire incarcé-rer le condamné qui manque aux charges qui lui ont été imposées. Si le condamné conteste être en défaut, il peut adresser un recours au tribunal qui a prononcé la condamnation. La décision rendue sur ce recours n’est pas susceptible d’appel.
-
-Le cautionnement éventuellement déposé par le condamné lui est restitué dans les conditions et sous réserves prévues à l’article 204.
+La signification de la citation directe doit être faite dans un délai de dix jours avant l’audience.

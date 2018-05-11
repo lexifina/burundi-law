@@ -1,5 +1,3 @@
 # Article 157
 
-Lorsque le prévenu a été cité ou sommé de comparaître, l’Officier du Ministère Public peut, sur autorisation du juge et si l’infraction est punissable d’une peine de servi-tude pénale d’une année au moins, ordonner qu’il sera placé sous mandat de dépôt jusqu’au jour du jugement, sans que la durée de cette détention puisse excéder huit jours.
-
-Section 4 Des nullités de la procédure
+Il est statué sur la détention préventive par un collège de trois Juges de la juridiction compétente dans les quarante-huit heures de la tenue de l’audience en chambre de conseil, à moins que l’inculpé ne sollicite un délai supplémentaire ne dépassant pas trois jours pour assurer la défense de sa cause.

@@ -1,3 +1,3 @@
 # Article 292
 
-Seule la personne condamnée par un tribunal répressif peut être soumise à la contrainte par corps. Ses héritiers, ayants droit ou les personnes déclarées civilement responsa-bles ne peuvent pas en faire l’objet.
+L’instruction à l’audience ainsi que le jugement suivent les règles de droit commun sous réserve des dispositions de la présente section.

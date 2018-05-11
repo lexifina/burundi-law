@@ -1,3 +1,3 @@
 # Article 125
 
-L’appel des ordonnances rendues en matière de détention préventive est porté devant la juridiction immédiatement supérieure à celle qui a statué en premier ressort.
+L’Officier du Ministère Public peut effectuer des perquisitions dans tous les lieux qui sont présumés receler des objets, des documents ou toutes autres pièces dont la découverte serait utile à la manifestation de la vérité

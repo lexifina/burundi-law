@@ -1,3 +1,3 @@
 # Article 85
 
-Peuvent procéder à des visites et à des perquisitions au domicile ou à la résidence, l’Officier du Ministère Public sur présentation de sa carte et les officiers ou agents de Police Judiciaire moyennant exhibition d’un mandat de perquisition dûment signé par l’autorité com-pétente.
+Le Ministère Public exerce l’action publique et requiert l’application de la loi il dirige et contrôle les activités des Officiers de Police Judiciaire et de tous les agents publics ayant la qualité d’Officier de Police Judiciaire.

@@ -1,3 +1,3 @@
 # Article 298
 
-Lorsque les biens du condamné sont insuffisants pour couvrir les condamna-tions à l’amende, aux restitutions et aux domma-ges et intérêts les deux dernières condamnations ont la préférence.
+Les jugements de la Chambre des Mineurs sont susceptibles d’opposition, d’appel ou de pourvoi en cassation dans les formes et délais de droit commun. L’acte de signification indique les voies de recours qui sont ouvertes au mineur.

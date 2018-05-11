@@ -1,3 +1,3 @@
 # Article 87
 
-L’Officier du Ministère Public peut effectuer des perquisitions dans tous les lieux qui sont présumés receler des objets, des docu-ments ou toutes autres pièces dont la décou-verte serait utile à la manifestation de la vérité.
+Tout Officier du Ministère Public est tenu de prendre des réquisitions écrites conformes aux instructions qui lui sont données dans les conditions prévues aux articles 93 et 97 et au premier alinéa des articles 94,98 et 101. Il développe librement à l’audience les observations orales qu’il croit convenables au bien de la justice.

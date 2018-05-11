@@ -1,5 +1,5 @@
 # Article 253
 
-Les jugements par défaut sont vala-blement signifiés par extrait comprenant la date du jugement, l’indication du tribunal qui l’a rendu, les nom, profession et demeure des par-ties, les motifs et le dispositif, le nom des juges et du greffier qui ont siégé dans l’affaire.
+Les témoins déposent séparément et oralement. Toutefois, un témoin peut, avec l’autorisation du tribunal, consulter un document établi à l’époque des faits, objets de la déposition. Ce document doit être communiqué à la partie adverse.
 
-La signification se fait selon le mode établi pour les citations.
+Les témoins du Ministère Public sont entendus les premiers, suivis de ceux de la partie civile, s’il y en a et enfin, ceux de la défense

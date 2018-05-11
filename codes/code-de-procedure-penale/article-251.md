@@ -1,5 +1,17 @@
 # Article 251
 
-Le juge qui statue en audience publique interroge le prévenu et vérifie si les aveux et le plaidoyer de culpabilité ont été faits volontairement et en connaissance de cause et notamment la nature de l’infraction et l’échelle de la peine prévue par la loi.
+Ne peuvent être reçues sous la foi du serment les dépositions :
 
-Le prévenu réitère ses aveux et confirme sa demande de plaider coupable. Si après investigations, le juge estime que les aveux et le plaidoyer de culpabilité sont incom-plets ou non conformes à la vérité ou que ceux-ci ont été obtenus sous torture ou par contrain-tes ou sans connaissance de cause, les aveux recueillis ne peuvent être admis comme preuves contre l’accusé.
+1° du père, de la mère ou de tout autre ascendant du prévenu ou de l’un des prévenus présents et impliqués dans la même affaire;
+
+2° du fils, de la fille ou de tout autre descendant;
+
+3° des frères et sœurs; 4 ° des alliés au même degré;
+
+5° de l’époux et de l’épouse, même après le divorce;
+
+6° des mineurs en dessous de l’âge de seize ans;
+
+7°de la partie civile;
+
+8° du domestique de l’accusé. Toutefois, les personnes visées à l’alinéa précédent peuvent être entendues pour donner de simples renseignements.

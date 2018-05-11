@@ -1,3 +1,5 @@
 # Article 83
 
-Le témoin qui, sans justifier d’un motif légitime d’excuse ne comparaît pas, bien que cité régulièrement, ou qui refuse de prêter serment quand il en a l’obligation, peut, sans autre formalité, être déféré devant le juge com-pétent.
+L’officier du Ministère public ou l’Officier de Police Judiciaire, commis par lui, décrit ou transcrit, dans un procès-verbal qui est versé au dossier, les images ou les conversations enregistrées qui sont utiles à la manifestation de la vérité.
+
+Les conversations en langue étrangère sont transcrites en langues officielles avec l’assistance d’un interprète requis à cette fin.

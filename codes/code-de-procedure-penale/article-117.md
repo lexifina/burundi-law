@@ -1,9 +1,3 @@
 # Article 117
 
-Les dispositions de l’article 116 ne s’appliquent pas :
-
-1° aux personnes poursuivies pour crime passi-ble de plus de vingt ans de servitude pénale;
-
-2° aux personnes n’ayant pas encore restitué les sommes d’argent ou tout autre bien obtenu à l’aide de l’infraction ou, à défaut, leur équivalent;
-
-3° aux personnes poursuivies pour violences sexuelles.
+L’Officier du Ministère Public peut faire citer devant lui toute personne dont il estime l’audition nécessaire L’inculpé et la partie civile ont également le droit de demander à l’Officier du Ministère Public d’entendre un témoin La personne régulièrement citée est tenue de comparaître et de satisfaire à la citation

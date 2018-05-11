@@ -1,3 +1,13 @@
 # Article 321
 
-En cas de rejet de la demande, le requérant est tenu au paiement des frais. La juri-diction peut toutefois, par décision spéciale et motivée, l’en décharger en tout ou en partie.
+Sous réserve de l’article 301, la faculté d’interjeter appel appartient:
+
+1° au prévenu;
+
+2° au Ministère Public;
+
+3° à la personne déclarée civilement responsable;
+
+4° à la partie civile ou aux personnes auxquelles des dommages et intérêts ont été alloués d’office, quant à leurs intérêts civils seulement;
+
+5° à l’auteur de la citation directe.

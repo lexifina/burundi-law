@@ -1,5 +1,3 @@
 # Article 283
 
-Le responsable de l’établissement où le condamné subit sa peine tient un registre d’écrou dont la forme et les mentions sont fixées par le Ministre ayant la Justice dans ses attribu-tions.
-
-Les condamnés libérés qui savent écrire, signent dans le registre d’écrou au moment de leur libé-ration, pour les autres la signature peut être remplacée par tout autre signe ou marque d’identification personnelle considérée comme équivalent par l’usage.
+L’Officier de Police Judiciaire ou l’Officier du Ministère Public en charge du dossier dans lequel est mis en cause un mineur de moins de dix-huit ans effectue toutes diligences et investigations utiles à la connaissance de la personnalité dudit mineur. Il peut ordonner notamment une enquête sociale sur la situation matérielle et morale de la famille, le caractère et les antécédents du mineur, sa fréquentation scolaire, son comportement ainsi que sur les conditions dans lesquelles il a été élevé. L’enquête sociale prévue à l’alinéa précédent peut être effectuée, à la demande de l’autorité judiciaire en charge du dossier du mineur, par un service social ou par toute autre personne qualifiée.

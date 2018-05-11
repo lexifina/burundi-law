@@ -1,3 +1,5 @@
 # Article 348
 
-La commission rogatoire est un acte par lequel un magistrat délègue ses pou-voirs à un autre magistrat, ou à un Officier de Police Judiciaire pour qu’il exécute à sa place un acte d’instruction. L’autorité saisie d’une Commission rogatoire doit faire rapport au magistrat commettant. Paragraphe 8 De la citation en justice en général
+Il est disposé des choses frappées de confiscation spéciale, conformément aux dispositions pertinentes du Code Pénal.
+
+Section 2 De l’indemnisation des victimes de la torture

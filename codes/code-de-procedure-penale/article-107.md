@@ -1,3 +1,3 @@
 # Article 107
 
-Les règles relatives à la récusation sont applicables à l’expert judiciaire.
+Si les nécessités de l’enquête l’exigent, le Procureur de la République peut se transporter dans les ressorts des tribunaux limitrophes de celui où il exerce ses fonctions, à l’effet d’y poursuivre l’instruction. Il doit, au préalable, aviser le Procureur de la République du ressort dans lequel il se transporte. Il mentionne sur son procès-verbal les motifs de son transport

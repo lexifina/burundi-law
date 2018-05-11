@@ -1,3 +1,5 @@
 # Article 343
 
-L’ordonnance de prorogation de la détention est un titre de détention qui, de mois en mois, couvre la détention déjà ordonnée par le juge, en attendant la comparution de l’inculpé devant la juridiction de jugement. Paragraphe 3 De l’ordonnance de mise en liberté provisoire
+Le responsable de l’établissement où le condamné subit sa peine tient un registre d’écrou dont la forme et les mentions sont fixées par le Ministre ayant la Justice dans ses attributions.
+
+Les condamnés libérés qui savent écrire signent dans le registre d’écrou au moment de leur libération, pour les autres la signature peut être remplacée par tout autre signe ou marque d’identification personnelle considérée comme équivalent par l’usage.

@@ -1,3 +1,3 @@
 # Article 81
 
-L’Officier du Ministère Public entend le témoin hors la présence de l’inculpé et de son Conseil. Il est néanmoins admis à le confronter avec ces derniers ou avec d’autres témoins. En ce qui concerne les violences sexuelles, la confrontation ne se fait qu’avec l’accord de la victime.
+Les décisions prises en application de l’article précédent doivent comporter tous les éléments, permettant d’identifier les véhicules ou les lieux privés ou publics visés, l’infraction qui motive le recours à ces mesures ainsi que la durée de celles-ci. Ces décisions sont prises pour une durée maximale de six mois. Elles ne peuvent être renouvelées que dans les mêmes conditions de forme et de durée prévues à l’alinéa précédent.

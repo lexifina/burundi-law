@@ -1,5 +1,3 @@
 # Article 88
 
-Les visites des lieux et les perquisi-tions ne peuvent avoir lieu avant six heures et après dix huit heures.
-
-Les dispositions de l’alinéa précédent ne s’appli-quent pas en cas de flagrance ou de menace grave à l’intégrité physique des personnes.
+Les Officiers du Ministère Public peuvent exercer eux-mêmes tous les pouvoirs attribués aux Officiers de Police Judiciaire par le présent Code ou par les lois spéciales relatives à la Police Judiciaire.

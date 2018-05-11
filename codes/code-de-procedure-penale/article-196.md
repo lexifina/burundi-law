@@ -1,3 +1,3 @@
 # Article 196
 
-La personne qui, agissant en vertu d’une obligation légale ou de sa propre initiative, a porté les faits poursuivis à la connaissance de la justice, est reçue en témoignage. Celui dont la dénonciation est récompensée pécuniairement par la loi, peut aussi être entendu en témoignage.
+Si le destinataire de l’exploit est une personne morale, il est remis à son représentant légal, à son fondé de pouvoir ou à toute personne habilitée à cet effet qui en reçoit une copie.

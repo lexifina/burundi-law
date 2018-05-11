@@ -1,3 +1,3 @@
 # Article 345
 
-La réquisition à fin d’emprisonne-ment est une pièce judiciaire émanant d’un magistrat du Ministère Public et adressée à un responsable d’un établissement pénitentiaire, pour lui indiquer, qu’en exécution du jugement intervenu, le détenu y dénommé doit passer de la catégorie des détenus préventifs à celle des condamnés. Paragraphe 5 De la réquisition à expert
+L’amende et les frais sont payés entre les mains du greffier dans la huitaine qui suit la condamnation devenue irrévocable. Sur décision du Juge ou du Président de la juridiction qui a rendu le jugement, ce délai peut être prorogé.

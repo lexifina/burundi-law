@@ -1,7 +1,3 @@
 # Article 133
 
-Le Ministère Public ne peut interje-ter appel de la décision prévue par l’article 132 que si elle donne mainlevée de la mise en déten-tion préventive.
-
-Le prévenu ne peut interjeter appel que si la décision maintient la détention. L’appel est fait dans les formes et délais prévus par l’article 126. Pendant le délai d’appel et, en cas d’appel, jusqu’à la décision, le prévenu est maintenu en l’état où il se trouvait avant la déci-sion de la juridiction compétente. L’appel est porté devant la juridiction compé-tente pour connaître de l’appel du jugement au fond. Celle-ci statue conformément aux règles fixées par l’article 128.
-
-Chapitre VI De la procédure devant les juridictions de jugement Section 1 De la saisine des tribunaux
+Lorsqu’il s’est avéré que les données intéressant l’enquête, accessibles à partir du système initial ou disponibles pour le système initial, sont stockées dans un autre système informatique situé en dehors du territoire national, elles sont recueillies par l’Officier de Police Judiciaire, sous réserve des conditions d’accès prévues par les engagements internationaux en vigueur Les données auxquelles il aura été permis d’accéder dans les conditions prévues par le présent article peuvent être copiées sur tout support. Les supports de stockage informatique peuvent être saisis et placés sous scellés dans les conditions prévues par le présent code

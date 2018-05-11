@@ -1,5 +1,5 @@
 # Article 220
 
-Le Président de la Cour Suprême transmet directement le dossier au Parquet Général de la République pour la réplique ou avis qui doit être produit endéans dix jours.
+Le prévenu comparaît en personne. Toutefois, dans les poursuites relatives à des infractions à l’égard desquelles la peine de servitude pénale prévue par la loi n’est pas supérieure à deux ans, le prévenu peut comparaître par un Avocat porteur de l’original de l’assignation ou par une personne agréée par le juge. Nonobstant la comparution par mandataire, le tribunal peut toujours ordonner par jugement sur les bancs, la comparution personnelle du prévenu à l’endroit et au moment qu’il détermine. Le prononcé du jugement en présence du mandataire vaut citation.
 
-Le Président désigne un Conseiller Rapporteur qui rédige un rapport sur les faits de la cause, sur la procédure, sur les moyens évoqués et pro-pose la solution qui lui paraît devoir être réser-vée à la cause. Il retourne ensuite le dossier au Président de la Cour Suprême, qui fixe par ordonnance la date à laquelle la cause sera appe-lée à l’audience la plus proche.
+La personne civilement responsable peut, dans tous les cas, comparaître soit par un avocat porteur de l’original de l’assignation ou par un, fondé de pouvoir agréé par le juge.

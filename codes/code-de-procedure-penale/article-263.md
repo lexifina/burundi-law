@@ -1,3 +1,3 @@
 # Article 263
 
-Dans tous les cas où l’action civile est portée devant la juridiction d’appel, toute partie intéressée peut, jusqu’à la clôture des débats sur l’appel, faire appel incident quant aux intérêts civils en cause, par conclusions prises à l’audience.
+Si, au moment du jugement, le prévenu est en état de liberté provisoire avec cautionnement, le jugemènt ordonne la restitution du cautionnement, sauf prélèvement des frais extraordinaires auxquels le défaut de se présenter à un acte de la procédure aurait pu donner lieu. Si le prévenu est condamné, le défaut par lui de s’être présenté à un acte de la procédure sans motif légitime d’excuse est constaté par le jugement qui déclare en même temps que tout ou partie du cautionnement est acquis au Trésor public

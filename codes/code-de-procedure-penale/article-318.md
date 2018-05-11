@@ -1,3 +1,3 @@
 # Article 318
 
-Lorsque la demande est relative à une déchéance, interdiction ou incapacité pro-noncée en application des dispositions du Code Pénal sur des crimes et délits de nature écono-mique et contre la chose publique, la juridiction ne peut accorder le relèvement que si le requé-rant, outre l’exécution de la peine principale, s’est acquitté des dommages et intérêts et autres restitutions dues en vertu de la condamnation.
+Si l’opposant ne comparaît pas, l’opposition est non avenue. L’opposant ne peut ni la renouveler ni faire opposition au jugement sur opposition. L’opposant est tenu de comparaître en personne dans le cas où il y était déjà tenu avant le jugement par défaut ou lorsque le jugement par défaut en fait une condition de recevabilité de l’opposition.

@@ -1,3 +1,3 @@
 # Article 185
 
-Toute personne citée pour être entendue comme témoin est tenue de comparaî-tre, de prêter serment et de déposer.
+La citation doit indiquer à la requête de qui elle est faite. Elle énonce les noms, prénoms et demeure du cité, l’objet de la citation, le tribunal devant lequel la personne citée doit comparaître, le lieu et l’heure de la comparution. Elle indique la qualité de celui qui l’effectue et la façon dont elle est effectuée La citation à prévenu contient en outre l’indication de la nature, de la date et du lieu des faits dont il aura à répondre. Elle vise la loi qui réprime les faits poursuivis.

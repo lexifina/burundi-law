@@ -1,3 +1,3 @@
 # Article 347
 
-La réquisition d’information est une pièce judiciaire quelconque signée par un magis-trat du parquet et adressée généralement à un Officier de Police Judiciaire dans le but de recueillir des informations relatives à un dossier en cours d’instruction, ou faisant encore l’objet d’une enquête de police, ou ayant trait à des faits portés à la connaissance du Ministère public, et qui sont de nature à provoquer l’ouverture d’une enquête. Paragraphe 7 De la commission rogatoire
+La signification du jugement vaut sommation de payer dans le délai fixé. En cas de non-paiement à l’expiration de ce délai, l’exécution de la servitude pénale subsidiaire et la contrainte par corps, selon le cas, est poursuivie.

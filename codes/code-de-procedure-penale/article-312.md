@@ -1,3 +1,13 @@
 # Article 312
 
-Lorsque la personne est condamnée à un suivi socio-judiciaire avec injonction de soins, le Procureur de la République procède à toutes diligences utiles pour que le condamné entame l’exécution de l’obligation prescrite.
+Sans préjudice d’une appréciation plus clémente du siège, le prévenu qui a plaidé coupable a droit à la réduction de la peine dans les proportions suivantes:
+
+1° si le condamné devait encourir la peine de servitude pénale à perpétuité, il est prononcé une peine maximale de vingt ans de servitude pénale;
+
+2°si le prévenu devait encourir une peine de servitude à temps ou une amende, il est prononcé une peine égale à la moitié de celle qui aurait dû être infligée.
+
+Le tribunal apprécie souverainement parmi les peines complémentaires, celles qui peuvent êfre atténuées ou appliquées au condamné qui a plaidé coupable.
+
+Le fait de restituer ou l’engagement du prévenu à dédommager la victime ou la partie civile sont pris en considération dans la fixation de la peine.
+
+CHAPITRE XI DE L’OPPOSITION ET DE L’APPEL Section 1 De l’opposition

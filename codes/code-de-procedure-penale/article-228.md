@@ -1,3 +1,3 @@
 # Article 228
 
-Le mineur, les parents du mineur, son tuteur ou son gardien, le Ministère Public et la partie civile peuvent faire appel contre les mesures visées aux articles 226 et 227.
+Lorsqu’un avocat est présent pour assurer la défense des intérêts de l’accusé, la procédure se déroule conformément aux dispositions des articles 220 à 222, à l’exception des dispositions relatives à l’interrogatoire ou à la présence de l’accusé. En l’absence d’avocat pour assurer la défense des intérêts de l’accusé, la cour statue sur l’accusation après avoir entendu la partie civile ou son avocat et les réquisitions du ministère public. En cas de condamnation à une peine ferme privative de liberté, le Tribunal décerne mandat d’arrêt contre l’accusé, sauf si celui-ci a déjà été décerné.

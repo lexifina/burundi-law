@@ -1,3 +1,3 @@
 # Article 235
 
-La Chambre des Mineurs statue après avoir entendu le mineur et son Conseil, les co-prévenus majeurs, les témoins, les parents, le tuteur, le gardien, l’assistant social, la partie civile s’il y en a ainsi que le Ministère Public.
+Le tribunal ne peut fonder sa décision sur la déposition d’un coprévenu, à moins qu’elle ne soit corroborée par des témoignages d’un tiers non impliqué dans la cause ou par tout autre moyen de preuve.

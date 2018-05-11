@@ -1,5 +1,3 @@
 # Article 121
 
-Sur requête de l’Officier du Minis-tère Public, le juge peut faire réincarcérer l’inculpé qui manque aux charges qui lui ont été imposées. L’inculpé qui conteste être en défaut peut dans les deux jours de sa réincarcération adresser un recours au juge qui avait statué en premier res-sort sur la mise en détention ou sa prorogation.
-
-La décision rendue sur ce recours est définitive.
+Le témoin qui, sans justifier d’un motif légitime d’excuse ne comparaît pas, bien que cité régulièrement, ou qui refuse de prêter serment quand il en a l’obligation, peut, sans autre formalité, être déféré devant le juge compétent

@@ -1,5 +1,3 @@
 # Article 320
 
-Le Procureur de la République ins-truit la requête et saisit la juridiction compé-tente. Lorsque pareille demande émane d’un condamné mineur, le tribunal statue après avoir entendu les parents, tuteur, gardien et éventuel-lement son assistant social. En cas de rejet de la première demande, une autre demande ne peut être présentée qu’un an après cette décision de refus. Il en est de même des demandes ultérieures.
-
-La décision est signifiée selon les formes habi-tuelles de la signification des exploits de justice. Elle est sans appel.
+Lorsque l’opposition émane du prévenu et qu’elle est reçue, le jugement par défaut est considéré comme non avenu et le juge statue à nouveau sur l’ensemble de l’affaire. Lorsqu’elle émane de la personne civilement responsable ou de .Ia partie civile, l’opposition reçue ne met le jugement à néant que dans la mesure où il statue à l’égard de ces parties. Dans tous les cas, les frais et dépens causés par l’opposition, y compris le coût de l’expédition et de la signification du jugement par défaut, sont laissés à charge de l’opposant lorsque le défaut lui est imputable. L’opposition faite à un jugement par défaut interrompt la prescription de la peine et constitue le point de départ d’une nouvelle prescription de l’action publique Section 2 De l’appel

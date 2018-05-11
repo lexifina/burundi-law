@@ -1,3 +1,3 @@
 # Article 325
 
-Lors même que la partie civile ne succomberait pas, les frais sont retenus par le greffier sur les sommes par elle consignées, sauf son droit d’en poursuivre le recouvrement contre le condamné. Toutefois, si la partie civile n’a été que partie jointe, les seuls frais qui sont retenus par le gref-fier sont ceux des actes faits à sa requête.
+Les pièces d’instruction et l’expédition du jugement dont appel sont transmises le plus rapidement possible par le greffier de la juridiction qui a rendu le jugement au greffier de la juridiction qui doit connaître de l’appel et au plus tard dans les 15 jours de la date d’appel.

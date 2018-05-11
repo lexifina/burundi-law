@@ -1,5 +1,5 @@
 # Article 94
 
-Hors les cas d’infraction flagrante, l’Officier du Ministère Public ne peut faire pro-céder à aucune exploration corporelle sans une autorisation écrite du Juge. Cette autorisation n’est pas requise dans le cas du consentement exprès de la personne intéres-sée. Pour un mineur, la personne sous l’autorité parentale ou tutélaire de qui il se trouve donne le consentement. Le mineur âgé de 15 ans et plus doit lui aussi donner son consentement. Ce consentement doit être constaté par écrit. L’exploration corporelle ne peut être effectuée que par un médecin. Dans tous les cas, la personne qui doit être l’objet d’une exploration corporelle peut se faire assister par un médecin de son choix ou par un parent ou allié ou par toute autre personne majeure de même sexe qu’elle se choisit.
+Le Procureur Général de la République a autorité sur tous les Officiers du Ministère Public du territoire. A l’égard de ces Magistrats, il a les mêmes prérogatives que celles reconnues au Ministre ayant la Justice dans ses attributions à l’article précédent.
 
-Section 6 Des droits de l’inculpé et de la partie civile durant la phase pré-juridictionnelle
+Les Officiers et agents de Police Judiciaire sont placés sous la surveillance du Procureur Général de la République. Il peut les charger de recueillir tous renseignements ou de procéder à toutes enquêtes qu’il estime utiles à une bonne administration de la justice.

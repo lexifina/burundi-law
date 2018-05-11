@@ -1,3 +1,3 @@
 # Article 93
 
-L’Officier du Ministère Public s’assure du contenu des objets saisis en vertu de l’article 92 après avoir, s’il le juge possible, convoqué le destinataire ou l’expéditeur pour assister à l’ouverture. En cas de réintégration de ces objets dans le ser-vice intéressé, l’Officier du Ministère Public les revêt au préalable d’une annotation constatant leur saisie et, le cas échéant, leur ouverture. Paragraphe 4 Des explorations corporelles
+Le Ministre ayant la Justice dans ses attributions peut dénoncer au Procureur Général de la République les infractions à la loi pénale dont il a connaissance, lui enjoindre par écrit d’engager ou de faire engager des poursuites ou de saisir la juridiction compétente de telles réquisitions écrites que le Ministre juge opportunes. Il ne peut pas s’opposer aux poursuites déjà engagées, ni lui enjoindre de ne pas poursuivre.

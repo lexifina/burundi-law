@@ -1,3 +1,3 @@
 # Article 304
 
-L’association habilitée porte à la connaissance du Procureur de la République toute modification de l’un des éléments consti-tutifs du dossier de demande d’habilitation.
+Toute personne accusée d’une infraction a le droit de recourir à la procédure d’aveu et de plaidoyer de culpabilité.

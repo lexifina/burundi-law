@@ -1,3 +1,3 @@
 # Article 152
 
-Les exploits sont établis en autant d’originaux qu’il y a de prévenus.
+Le refus d’obtempérer à la réquisition ou de prêter serment expose son auteur aux poursuites et sanction pénales conformément au code pénal

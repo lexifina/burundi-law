@@ -1,3 +1,5 @@
 # Article 317
 
-Toute personne frappée d’une inter-diction, déchéance ou incapacité prononcée dans un jugement de condamnation à titre de peine complémentaire peut demander à la juri-diction qui a prononcé la condamnation de la relever, en tout ou en partie, y compris en ce qui concerne la durée de cette interdiction, déchéance ou incapacité.
+Le juge fixe le jour où l’affaire sera appelée en tenant compte des délais pour les citations.
+
+Le greffier fait citer l’opposant, les témoins dont l’opposant ou le Ministère Public requiert l’audition et, le cas échéant, la partie civile et la partie civilement responsable.

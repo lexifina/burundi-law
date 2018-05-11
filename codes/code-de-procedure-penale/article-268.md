@@ -1,7 +1,3 @@
 # Article 268
 
-Le Président de la juridiction d’appel fixe le jour de l’audience.
-
-La juridiction d’appel peut statuer sur la seule notification par les soins du greffier, aux parties en instance d’appel, de la date à laquelle l’affaire sera appelée pourvu que les délais entre cette notification et la date de l’audience soient égaux à ceux des citations. Toutefois, lorsque la juridiction d’appel estime que la situation du prévenu pourrait être aggra-vée ou lorsqu’il s’agit d’une infraction pouvant entraîner la servitude pénale à perpétuité, il n’est statué qu’après citation du prévenu et, le cas échéant, de la partie civilement responsable du paiement des dommages et intérêts et des frais. Sauf en cas de contraventions, la comparution à l’audience est personnelle.
-
-La décision sur appel est réputée contradictoire, lorsque, de mauvaise foi, le prévenu ne compa-raît pas alors que la procédure a été régulière-ment suivie.
+En cas de crime ou délit flagrant, l’Officier du Ministère Public à qui le dossier est transmis décerne immédiatement le mandat d’arrêt après la première audition de l’inculpé si les conditions de l’article 154 sont réunies. L’Officier du Ministère Public procède à tous devoirs utiles et défère immédiatement l’inculpé devant la juridiction compétente. En tout état de cause, l’instruction devant l’Officier du Ministère public ne peut dépasser cinq Jours. Au-delà de ce délai, l’instruction se poursuit suivant les règles de procédure ordinaire.

@@ -1,7 +1,7 @@
 # Article 162
 
-Sous réserve de l’article 161, s’il apparaît qu’un acte ou une pièce de la procédure est frappée de nullité, la juridiction décide, le Ministère Public et les parties entendus, l’annu-lation des actes ou des pièces atteints de nullité et si l’annulation doit s’étendre à tout ou partie de la procédure ultérieure. Lorsque la juridiction annule certains actes seu-lement, elle doit les écarter expressément des débats. Elle ne peut y puiser des renseignements contre les parties. Au cas où la nullité de l’acte ou des pièces entraîne la nullité de toute la procédure ulté-rieure, la juridiction ordonne un complément d’enquête.
+Le cautionnement est remboursé en cas de classement sans suite de l’affaire, de mainlevée de la détention, du retrait du bénéfice de la liberté provisoire, ou d’acquittement.
 
-Les parties peuvent renoncer à se prévaloir de ces nullités lorsqu’elles ne sont édictées que dans leur seul intérêt. Cette renonciation doit être expresse.
+Le remboursement du cautionnement consigné lors de la mise en liberté provisoire est ordonné par l’Officier du Ministère Public près la juridiction qui l’a décidée. En cas de fuite, le cautionnement est acquis au Trésor public, sans préjudice des droits de la partie civile et après déduction des frais aux- quels le défaut de se présenter aura pu donner lieu.
 
-Section 5 De la constitution de partie civile
+Le remboursement. est fait par la juridiction compétente en cas de cautionnement opéré par le Juge Section 2 De la liberté provisoire

@@ -1,3 +1,3 @@
 # Article 143
 
-Le délai de citation pour le prévenu et pour la personne civilement responsable est de huit jours francs entre la citation et la compa-rution, outre un jour par cent kilomètres de dis-tance pour les personnes vivant au Burundi.
+Toute personne qui en est légalement requise par un Officier du Ministère Public ou par un juge, est tenue de prêter son ministère comme interprète, traducteur ou expert. Ces derniers sont tenus au devoir de confidentialité

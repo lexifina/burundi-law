@@ -1,3 +1,5 @@
 # Article 142
 
-Si le cité n’a ni résidence ni domi-cile connus au Burundi, mais a une autre rési-dence connue à l’étranger, une copie de l’exploit est affichée à la porte principale du tribunal qui doit connaître de l’affaire; une autre copie est immédiatement expédiée à la personne que l’exploit concerne, soit en la lui adressant direc-tement à sa résidence sous pli recommandé à la poste soit en la transmettant avec accusé de réception ou sous pli recommandé à la poste, au fonctionnaire qui, au Burundi, a dans ses attri-butions les rapports avec les autorités étrangè-res. Si le cité n’a ni résidence ni domicile connus, une copie de l’exploit est affichée à la porte prin-cipale du tribunal qui doit connaître de l’affaire et un extrait en est publié dans un journal offi-ciel, ainsi que, sur décision du juge, dans tel autre journal qu’il détermine.
+Le Conseil de l’inculpé ou de la partie ne peut prendre la parole au cours des interrogatoires que pour demander au magistrat instructeur de poser une question qu’il énonce. L’inculpé ou la partie civile ne répond à la question que lorsqu’elle lui a été posée par le magistrat instructeur. Si ce dernier refuse de la poser, mention de ce refus et du contenu de la question est portée au procès-verbal.
+
+Chapitre V Des interpretes, traducteurs et experts

@@ -1,7 +1,9 @@
 # Article 71
 
-En cas de découverte d’un cadavre, qu’il s’agisse ou non d’une mort violente, mais si la cause en est inconnue ou suspecte, l’Officier de Police Judiciaire qui en est avisé en informe si possible le Procureur de la République avant de se transporter sur les lieux et de procéder aux premières constatations. L’Officier de Police Judiciaire doit se transpor-ter sur les lieux et procéder aux constatations lorsqu’il lui a été impossible de prendre contact avec le Procureur de la République. Le rapport de constat doit être communiqué à celui-ci sans délai.
+L’Officier du Ministère public ou l’Officier de Police Judiciaire commis par lui dresse procès-verbal de chacune des opérations d’interception, de transcription et d’enregistrement. Ce procès- verbal mentionne la date et l’heure auxquelles l’opération a commencé et celles auxquelles elle s’est terminée.
 
-Le Procureur de la République se rend sur place, s’il le juge nécessaire et se fait assister de tout médecin, expert ou technicien capable d’appré-cier la nature, la cause et les circonstances du décès. Toutefois, il peut déléguer aux mêmes fins un Officier de Police Judiciaire de son choix. Lorsque les circonstances de la mort sont res-tées inconnues, que l’infraction soit ou non constituée, le Procureur de la République doit procéder à l’ouverture d’une instruction pour rechercher les causes de la mort.
+Les enregistrements sont placés sous scellés fermés. L’Officier du Ministère public ou l’Officier de Police Judiciaire, commis par lui, transcrit la correspondance utile à la manifestation de la vérité. Il en est dressé procès-verbal. Cette transcription est versée au dossier.
 
-Section 5 Des actes d’instruction
+Les correspondances en langue étrangère sont transcrites en langues officielles du Pays avec l’assistance d’un interprète requis à cette fin.
+
+Les enregistrements sont détruits à la diligence du Procureur de la République à l’expiration du délai de prescription de l’action publique ou en cas de décision définitive d’acquittement. Il est dressé procès-verbal de l’opération de destruction. Paragraphe 5 La captation des données informatiques

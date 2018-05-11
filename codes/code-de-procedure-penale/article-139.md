@@ -1,3 +1,3 @@
 # Article 139
 
-La citation est signifiée par un huis-sier; elle peut l’être aussi par l’Officier du Minis-tère Public ou par le greffier. Une copie de l’exploit est remise à la personne citée. Si le cité n’a pas de résidence connue au Burundi, mais y a un domicile, la signification est faite au domicile.
+La partie civile peut se faire assister d’ùn Conseil de son choix au cours des actes d’instruction. Elle a également le droit d’accéder au dossier de la procédure Le droit de l’inculpé de se faire assister d’un Conseil lorsque le juge statue sur la détention préventive ou la mise en liberté ne peut en aucun cas être suspendu ou restreint.

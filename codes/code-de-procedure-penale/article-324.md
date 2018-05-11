@@ -1,3 +1,7 @@
 # Article 324
 
-Les détenus et les indigents sont dispensés de la consignation des frais. L’indigence est constatée par le juge de la juri-diction devant lequel l’action est ou doit être intentée sur présentation de l’Attestation d’indi-gence, délivrée par l’Administrateur Communal, indiquant que l’intéressé n’a pas de revenus suf-fisants pour couvrir la provision des frais de jus-tice.
+L’appel peut être fait, soit par déclaration en réponse au bas de l’original de l’acte de signification, soit par déclaration au greffe de la juridiction qui a rendu le jugement ou de la juridiction qui doit connaître de l’appel, soit par lettre missive adressée au greffier de l’une ou l’autre de ces juridictions.
+
+La date de la réception de la lettre missive par le greffier détermine, dans ce dernier cas, la date à laquelle l’appel doit être considéré comme fait.
+
+Le jour même où il reçoit la lettre missive, le greffier y inscrit la date où il l’a reçue et le fait connaître à l’appelant. L’appel est notifié par les soins du greffier aux parties qu’il concerne. Lorsque l’appelant est détenu, la date d’appel par lettre missive est déterminée par la date du visa de cette lettre missive par le responsable de l’établissement.

@@ -1,3 +1,5 @@
 # Article 106
 
-Le rapport de l’expert n’a que valeur d’un avis qui ne lie pas le Magistrat instructeur. Lorsque l’expert a excédé sa mission, le Magis-trat instructeur écarte son rapport, en tout ou en partie.
+L’arrivée du Procureur de la République ou l’un de ses Substituts sur les lieux dessaisit l’Officier de Police Judiciaire.
+
+Le Procureur de la République accomplit alors tous actes de Police Judiciaire prévus au présent Code. Il peut aussi ordonner à tous les Officiers de Police Judiciaire de poursuivre leurs opérations ou celles qu’il prescrit.

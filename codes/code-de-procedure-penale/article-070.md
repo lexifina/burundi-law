@@ -1,3 +1,3 @@
 # Article 70
 
-En cas de crime ou délit flagrant, le Procureur de la République peut décerner un mandat d’amener contre toute personne soup-çonnée d’avoir participé à l’infraction. Il inter-roge sur-le-champ la personne ainsi conduite devant lui.
+L’Officier du Ministère public ou l’Officier de Police Judiciaire commis par lui peut requérir tout agent qualifié d’un service ou organisme placé sous l’autorité ou la tutelle du ministre chargé des télécommunications ou tout agent qualifié d’un exploitant de réseau ou fournisseur de services de télécommunications autorisé, en vue de procéder à l’installation d’un dispositif d’interception.

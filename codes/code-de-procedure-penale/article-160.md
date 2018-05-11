@@ -1,3 +1,3 @@
 # Article 160
 
-Les dispositions prescrites aux arti-cles 73, 98 et 166 doivent être observées sous peine de nullité tant de l’acte lui-même que de la procédure ultérieure.
+Dans tous les cas ou la mise en détention est autorisée ou prorogée pour satisfaire aux conditions de l’article 154 alinéa 2, le Juge peùt, si l’inculpé le demande, ordonner qu’il soit néanmoins mis en liberté provisoire, à la condition de déposer entre les mains du Greffier, à titre de cautionnement, une somme d’argent Ce cautionnement garantit la représentation de l’inculpé à tous les actes de la procédure et l’exécution par lui des peines privatives de liberté aussitôt qu’il en est requis, le caschéant, la réparation des dommages causés par l’infraction, le paiement des amendes et des frais de justice.

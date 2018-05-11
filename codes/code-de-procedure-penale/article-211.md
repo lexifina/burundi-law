@@ -1,3 +1,5 @@
 # Article 211
 
-En tout état de cause, l’instruction devant l’Officier du Ministère Public ne peut dépasser quinze jours. Ce délai est renouvelable une fois par le juge. Une fois ce délai dépassé, l’instruction se poursuit suivant les règles de la procédure pénale ordinaire.
+La partie lésée qui a agi par la voie de la citation directe, peut se désister à tout moment jusqu’à la clôture des débats par déclaration à l’audience ou au greffe. Dans ce dernier cas, le greffier en avise les parties intéressées.
+
+Section 4 Des mesures préalables au jugement

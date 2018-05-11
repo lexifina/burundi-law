@@ -1,3 +1,3 @@
 # Article 51
 
-Les Officiers du Ministère Public peuvent charger les Officiers de Police Judi-ciaire d’effectuer, en se conformant à la loi, tous actes de leur compétence prévus au chapitre précédent qu’ils déterminent.
+En cas de commission d’infractions autres que celles que le suspect avait l’intention de commettre, sous l’incitation d’un Officier de Police Judiciaire, l’action publique y relative est irrecevable. Sans préjudice des dispositions de l’article suivant, il est interdit à l’Officier de Police Judiciaire chargé d’exécuter des méthodes particulières de recherche, de commettre des infractions dans le cadre de sa mission.

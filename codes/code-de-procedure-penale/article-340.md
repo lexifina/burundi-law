@@ -1,3 +1,5 @@
 # Article 340
 
-Le mandat de prise de corps est un titre de détention décerné par le magistrat du Ministère Public en vue de faire saisir un condamné dont l’arrestation immédiate a été prononcée, ou dont la condamnation devenue définitive, est intervenue alors qu’il était, soit en liberté, soit en liberté provisoire, soit enfin sous le coup d’un avis de recherche. Lorsque le condamné est appréhendé, il est directement conduit à la prison la plus proche d’où il doit être transféré vers celle où il doit subir sa peine. Paragraphe 7 Du mandat d’élargissement
+Même dans le cas où l’arrestation immédiate n’a pas été ordonnée par le juge, le Procureur de la République. ou le Procureur Général, avec l’autorisation du juge, peut selon le cas, à tout moment après le prononcé du jugement, faire arrêter le condamné si, à raison des circonstances graves et exceptionnelles, cette mesure est réclamée par la sécurité publique ou s’il existe des présomptions sérieuses que le condamné peut se soustraire à l’exécution du jugement: La décision doit être motivée.
+
+La décision rendue par le juge est susceptible d’appel dans les formes et délais applicables aux articles 168 à 180. Article Le Ministère Public fait remettre le condamné au responsable de l’établissement pénitentiaire où la peine doit être purgée; celui- ci délivre une attestation de la remise.

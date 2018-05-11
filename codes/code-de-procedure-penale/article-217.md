@@ -1,3 +1,3 @@
 # Article 217
 
-L’exploit de signification contient avertissement au condamné de son droit d’appel et du délai dans lequel il doit être exercé.
+En cas de violation des formes prescrites par la loi sous peine de nullité ou d’inobservation des formalités substantielles, toute juridiction peut les relever d’office et en prononcer la nullité.

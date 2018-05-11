@@ -1,5 +1,3 @@
 # Article 232
 
-Lorsqu’un mineur et un majeur sont poursuivis dans une même procédure, les dispo-sitions du présent chapitre s’appliquent unique-ment au mineur.
-
-Section 2 De l’audience et du jugement
+Sauf dans les jugements et arrêts rendus par défaut, le juge ne peut fonder sa décision que sur des preuves qui lui sont rapportées au cours des débats et contradictoirement discutées devant lui.

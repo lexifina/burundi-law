@@ -1,5 +1,15 @@
 # Article 333
 
-Sauf dans le cas prévu à l’article 334, le greffier ne peut délivrer, si ce n’est au Ministère Public, grosse, expédition, extrait ou copie d’une décision portant condamnation à des dommages et intérêts avant que le droit pro-portionnel n’ait été payé. Si, sur opposition ou appel, le jugement sur lequel le droit proportionnel aurait été perçu est reformé, celui-ci est restitué en tout ou en partie ou le supplément est perçu, selon le cas.
+Le Casier Judiciaire reçoit, lorsqu’ils sont coulés en force de chose jugée:
 
-La restitution ne peut avoir lieu que lorsque la nouvelle décision a acquis force de chose jugée. L’action en restitution se prescrit par un délai de deux ans, à compter de ce moment.
+1° les condamnations prononcées pour crime ou délit par toute juridiction répressive;
+
+2° les condamnatlons prononcées pour infraction lorsque la peine prévue par la loi est supérieure à deux mois de servitude pénale ou à dix mille francs d’amende;
+
+3° tous les jugements prononçant, à titre de peine complémentaire, la déchéance de l’autorité parentale ou le retrait de tout ou partie des droits y attachés;
+
+4° les décisions d’expulsion prises contre les étrangers à titre de peine complémentaire;
+
+5° les condamnations prononcées par les juridictions étrangères qui, en application d’une Convention internationale, ont fait l’objet d’un avis aux autorités burundaises ou ont été exécutées au Burundi à la suite du transfèrement des personnes condamnées;
+
+6° les condamnations à toute peine d’amende de cent mille francs et plus. Ces données sont transmises au Commissariat chargé de l’identification judiciaire par les Présidents des juridictions ayant prononcé ces condamnations.

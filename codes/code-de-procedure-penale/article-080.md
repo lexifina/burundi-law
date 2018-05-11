@@ -1,19 +1,5 @@
 # Article 80
 
-Le témoin prête serment avant de déposer. Le serment est ainsi conçu : « Je jure de dire la vérité, toute la vérité et rien que la vérité ». Toutefois, l’Officier du Ministère Public peut imposer la forme de serment dont l’emploi, d’après les coutumes locales, paraît le plus pro-pre à garantir la sincérité de la déposition. Ne peuvent être reçues sous la foi du serment les dépositions :
+Lorsque les nécessités de l’information concernant un crime ou un délit entrant dans le champ d’application de l’article 49 l’exigent, le Procureur de la République peut autoriser par écrit les Officiers de Police Judiciaire à mettre en place un dispositif technique ayant pour objet, à l’insu des intéressés, la captation, la fixation, la transmission et l’enregistrement des paroles prononcées par une ou plusieurs personnes à titre privé ou confidentiel, dans des lieux ou véhicules privés ou publics, ou de l’image d’une ou plusieurs personnes se trouvant dans un lieu privé. Ces opérations sont effectuées sous l’autorité et le contrôle du procureur de la République. En vue de mettre en place le dispositif technique mentionné au premier alinéa, le Procureur de la République peut autoriser l’introduction dans un véhicule ou un lieu privé, y compris hors des heures prévues à l’article 126, à l’insu du propriétaire ou du possesseur du véhicule ou de l’occupant des lieux ou de toute personne titulaire d’un droit sur ceux-ci. Ces opérations, qui ne peuvent avoir d’autre fin que la mise en place du dispositif technique, sont effectuées sous l’autorité et le contrôle du Procureur de la République.
 
-1° du père, de la mère ou de tout autre ascend-ant de l’accusé;
-
-2° du fils, de la fille ou de tout autre descendant en ligne directe ainsi que des enfants adop-tifs de l’accusé et de ceux dont il est le tuteur;
-
-3° des frères et sœurs;
-
-4° des alliés au premier degré;
-
-5° de l’époux ou de l’épouse;
-
-6° de la partie civile;
-
-7° des mineurs;
-
-8° du domestique de l’accusé.
+Les dispositions du présent alinéa sont également applicables aux opérations ayant pour objet la désinstallation du dispositif technique ayant été mis en place.

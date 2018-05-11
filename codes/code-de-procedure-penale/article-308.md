@@ -1,3 +1,3 @@
 # Article 308
 
-Le Procureur de la République s’assure de l’exécution du travail d’intérêt géné-ral soit par lui-même, soit par l’intermédiaire de l’agent désigné pour assurer la direction et le contrôle technique du travail.
+L’Officier du Ministère Public dispose de trente jours au maximum pour vérifier si les aveux sont sincères et complets. Au terme de cette vérification, il est dressé un procès-verbal mentionnant les raisons de l’acceptation ou du rejet des aveux.

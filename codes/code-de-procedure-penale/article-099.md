@@ -1,5 +1,5 @@
 # Article 99
 
-Le Conseil de l’inculpé ou de la partie civile ne peut prendre la parole au cours des interrogatoires que pour demander au magistrat instructeur de poser une question qu’il énonce. L’inculpé ou la partie civile ne répond à la ques-tion que lorsqu’elle lui a été posée par le magis-trat instructeur. Si ce dernier refuse de la poser, mention de ce refus et du contenu de la question est portée au procès-verbal.
+Lorsqu’une infraction relève de la compétence pénale personnelle de la Cour d’Appel, le Procureur Général exerce les pouvoirs attribués au Procureur de la République par les dispositions de la Section suivante.
 
-Chapitre IV Des interprètes, traducteurs et experts
+Section 4 Les attributions du Procureur de la République

@@ -1,5 +1,13 @@
 # Article 138
 
-La citation doit indiquer à la requête de qui elle est faite. Elle énonce les noms, pré-noms et demeure du cité, l’objet de la citation, le tribunal devant lequel la personne citée doit comparaître, le lieu et l’heure de la comparution. Elle indique la qualité de celui qui l’effectue et la façon dont elle est effectuée.
+L’auteur présumé d’infraction bénéficie de toutes les garanties nécessaires pour l’exercice du droit à la défense. A cet effet, il lui est garanti notamment les droits qui suivent
 
-La citation à prévenu contient en outre l’indica-tion de la nature, de la date et du lieu des faits dont il aura à répondre. Elle vise la loi qui réprime les faits poursuivis.
+1° se choisir un Conseil
+
+2° communiqué librement avec lui et en toute confidentialité
+
+3° se faire aider dans la rédaction des correspondances et dans la production des pièces à décharge
+
+4° se faire assister de son Conseil au cours des actes d’instruction
+
+5° le droit de garder le silence en l’absence de son Conseil L’inculpé et son Conseil ont le droit de prendre connaissance du dossier de la procédure

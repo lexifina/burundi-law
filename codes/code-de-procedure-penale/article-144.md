@@ -1,3 +1,3 @@
 # Article 144
 
-Le délai de citation pour les person-nes qui n’ont ni résidence ni domicile au Burundi est d’un mois à compter de l’affichage de l’exploit et de la publication de ce dernier au journal officiel et dans un autre journal indiqué par le juge compétent.
+A moins qu’ils n’en soient dispensés en vertu de l’article suivant, les interprètes et traducteurs prêtent le serment verbalement ou par écrit de remplir fidèlement la mission qui leur est confiée. Ils sont tenus de garder la confidentialité

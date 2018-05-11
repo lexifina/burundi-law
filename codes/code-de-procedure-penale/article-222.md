@@ -1,7 +1,3 @@
 # Article 222
 
-Toute enquête, instruction ou juge-ment d’un dossier qui concerne un mineur doit commencer par la vérification de la minorité par tous les moyens de droit. Toute mesure prise dans ce contexte doit se faire en privilégiant le meilleur intérêt du mineur.
-
-La détention d’un mineur doit être envisagée comme une mesure de tout dernier recours.
-
-Les mesures qui peuvent être prises contre les mineurs doivent tenir compte de la nécessité de préserver pour ces derniers le droit à l’éduca-tion même en cas de privation de liberté.
+Chacune des parties peut se faire assister d’un Avocat ou d’une personne agréée spécialement dans chaque cas par le tribunal pour prendre la parole en son nom. Sauf si le prévenu s’y oppose, le juge peut demander au Bâtonnier de lui désigner un avocat inscrit au Barreau. Toutefois, l’assistance d’un défenseur est obligatoire pour les prévenus mineurs. Lorsque l’infraction pour laquelle le prévenu est poursuivi est punie de la servitude pénale d’au moins vingt ans, l’assistance d’un défenseur est obligatoire saut si le prévenu y renonce. Paragraphe 1 De la police d’audience

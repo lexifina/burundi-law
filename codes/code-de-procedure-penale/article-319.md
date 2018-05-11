@@ -1,3 +1,3 @@
 # Article 319
 
-La requête adressée au Procureur de la République près la juridiction compétente, précise la date de la condamnation ainsi que les lieux où a résidé le requérant depuis sa dernière condamnation ou sa libération.
+Il est sursis à l’exécution du jugement par défaut jusqu’à l’expiration du délai fixé par l’article 314 alinéa 1 et, en cas d’opposition, jusqu’au jugement sur recours. Il est de même sursis à la poursuite de la procédure en appel engagée par le Ministère Public, la partie civilement responsable ou la partie civile contre un jugement de condamnation prononcé par défaut à l’égard du prévenu. Lorsque le jugement n’est par défaut qu’à l’égard de la partie civilement responsable ou de la partie civile, l’opposition de ces dernières ne suspend pas l’exécution du jugement contre le. prévenu

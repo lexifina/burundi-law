@@ -1,7 +1,3 @@
 # Article 97
 
-Le Magistrat instructeur ne peut en aucun cas transmettre le dossier au Conseil. Il peut néanmoins apprécier l’opportunité soit de le laisser consulter sur place le dossier entier; soit de lui délivrer en copie certaines pièces de la procédure au frais du Conseil. Ces copies portent le paraphe du Magistrat ins-tructeur. Lorsque la manifestation de la vérité, ou une bonne administration de la justice l’exige, notamment lorsque la nature de l’infraction et les circonstances dans lesquelles elle a été com-mise peuvent faire craindre la disparition de preuve ou l’exercice de pressions sur les témoins, la juridiction compétente pour connaî-tre de l’infraction peut décider par Ordonnance, à la requête du Ministère Public, de suspendre tout ou partie des droits prévus aux articles 95 alinéa 2 et 96 pour une durée qu’elle détermine.
-
-La décision accordant ou refusant la suspension est notifiée au requérant et à l’inculpé, ainsi que le cas échéant, au Conseil de ce dernier. Elle peut être attaquée par voie d’appel mais elle est exécutoire immédiatement nonobstant recours. En cas d’urgence, le Magistrat instructeur peut prendre la décision de suspension prévue à l’ali-néa précédent pour une durée non renouvelable ne pouvant excéder huit jours.
-
-Le droit de l’inculpé de se faire assister d’un Conseil lorsque le Juge statue sur la détention préventive ou la mise en liberté ne peut en aucun cas être suspendu ou restreint.
+Le Procureur Général de la République, agissant d’office ou sur instruction écrite du Ministre ayant la Justice dans ses attributions, peut dénoncer au Procureur Général les infractions à la loi pénale dont il a connaissance, et lui enjoindre d’engager ou de faire engager des poursuites ou de saisir la juridiction compétente.

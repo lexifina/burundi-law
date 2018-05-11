@@ -1,3 +1,5 @@
 # Article 101
 
-A moins qu’ils n’en soient dispensés en vertu de l’article suivant, les interprètes et traducteurs prêtent le serment verbalement ou par écrit de remplir fidèlement la mission qui leur est confiée. Ils sont tenus de garder la confi-dentialité.
+Le Procureur de la République a autorité sur tous les Officiers du Ministère Public du ressort du Tribunal de Grande Instance.
+
+Les Officiers et agents de Police Judiciaire du ressort du Tribunal de Grande Instance sont placés sous la surveillance du Procureur de la République. Il peut les charger, dans l’étendue de son ressort, de recueillir tous renseignements ou de procéder à toutes enquêtes qu’il estime utiles à une bonne administration de la justice.

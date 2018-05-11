@@ -1,3 +1,3 @@
 # Article 342
 
-L’ordonnance de mise en détention est un titre de détention signée par un juge et contresigné par un greffier lorsque, à l’issue d’une audience en Chambre de Conseil, il estime que l’inculpé sous mandat d’arrêt, doit rester en détention en raison notamment des indices de culpabilité qui pèsent sur lui. Paragraphe 2 De l’ordonnance de prorogation de la détention
+A l’expiration de sa peine principale, le condamné doit être remis en liberté. A la requête du Ministère Public, sur base du jugement prononçant la servitude pénale subsidiaire ou la contrainte par corps, le condamné est maintenu en détention, jusqu’à l’expiration de la peine subsidiaire, du délai de contrainte par corps ou de la mise à la disposition du Gouvernement.

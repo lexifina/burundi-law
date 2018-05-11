@@ -1,5 +1,7 @@
 # Article 63
 
-Le Procureur de la République a autorité sur tous les Officiers du Ministère Public du ressort du Tribunal de Grande Ins-tance.
+A la fin de l’infiltration, l’Officier de Police Judiciaire rédige le procès-verbal des différentes phases de l’exécution de l’infiltration, mais n’y mentionne aucun élément susceptible de compromettre les moyens techniques et les techniques d’enquête policière utilisés ou la garantie de la sécurité et de l’anonymat de l’indicateur, des fonctionnaires de police chargés de l’exécution de l’infiltration, et du civil visé à l’alinéa 2 de l’article 61. Ces éléments ne figurent que dans le rapport écrit visé à l’alinéa 2 de l’article précédent. Il est fait référence dans un procès-verbal à l’autorisation d’infiltration et il est fait mention des indications visées à l’alinéa 2 de l’article précédent.
 
-Les Officiers et agents de Police Judiciaire du ressort du Tribunal de Grande Instance sont pla-cés sous la surveillance du Procureur de la République. Il peut les charger, dans l’étendue de son ressort, de recueillir tous renseigne-ments ou de procéder à toutes enquêtes qu’il estime utiles à une bonne administration de la justice.
+Le Procureur de la République confirme par décision écrite, l’existence de l’autorisation d’infiltration qu’il a accordée.
+
+Les procès-verbaux qui ont été rédigés ainsi que la décision visée à l’alinéa 1 de l’article 62 sont joints au dossier répressif au plus tard après qu’il ait été mis fin à l’infiltration. Paragraphe 3 La livraison surveillée

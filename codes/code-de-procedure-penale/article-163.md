@@ -1,9 +1,19 @@
 # Article 163
 
-Lorsque la juridiction de jugement est saisie de l’action publique, la partie lésée peut la saisir de l’action en réparation du dom-mage en se constituant partie civile. Toute association régulièrement agréée depuis au moins cinq ans à la date des faits se propo-sant par ses statuts la lutte contre les violences sexuelles ou toute autre atteinte volontaire à la vie et à l’intégrité de la personne ou destruc-tions, dégradations qui sont réprimées par les dispositions pertinentes du Code Pénal y relati-ves, peut porter plainte en lieu et place de la vic-time de ces faits. Toutefois, l’association n’est recevable dans sa plainte que si elle justifie avoir reçu l’accord de la victime ou si celle-ci est un mineur ou un interdit, celui du tuteur ou de son curateur.
+La liberté provisoire est accordée à charge pour l’inculpé de ne pas entraver l’instruction et de ne pas occasionner un scandale par sa conduite.
 
-La partie civile peut se constituer à tout moment depuis la saisine du tribunal jusqu’à la clôture des débats, par une déclaration reçue au greffe ou faite à l’audience, et dont il lui est donné acte. Au cas de déclaration au greffe, celui-ci en avise les parties intéressées.
+Le juqe peut en outre imposer à l’inculpé:
 
-La constitution de partie civile peut aussi être faite valablement devant le magistrat instruc-teur. Dans tous les cas, la constitution de partie civile donne lieu au versement de frais de consigna-tion entre les mains du greffier sauf pour les per-sonnes indigentes qui en sont dispensées moyennant une attestation d’indigence.
+1° d’habiter la tocalitéoù l’Officier du Ministère Public a son siège;
 
-Section 6 Des audiences
+2° de ne pas s’écarter au-delà d’un certain rayon de la localité, sans autorisation du Magistrat instructeur ou son délégué;
+
+3° de ne pas se rendre dans des endroits qu’il détermine, tels que les aéroports, les ports et les gares ou de ne pas s’y trouver à des moments déterminés;
+
+4° de se présenter périodiquement devant le Magistrat instructeur ou devant tel fonctionnaire ou agent déterminé par lui;
+
+5° de comparaître devant le Magistrat instructeur ou devant le juge dès qu’il en est requis;
+
+6° de ne pas entrer en contact avec ses victimes ou d’autres personnes qu’il détermine. L’ordonnance qui indique avec precisron les modalités des charges imposées en vertu de l’alinéa précédent peut ne soumettre la mise en liberté provisoire qu’à l’une ou l’autre de celles- ci.
+
+Sur requête du Ministère Public, le juge peut à tout moment modifier ces charges et les adapter à des circonstances nouvelles. Il peut également retirer le bénéfice de la liberté provisoire si des circonstances nouvelles et graves rendent cette mesure nécessàire Une copie de l’ordonnance de mise en liberté provisoire est remise à l’inculpé et signée par ce dernier après avoir été notifié. l’ordonnance de mise en liberté provisoire est notifiée à l’inculpé dans un délai de vingt-quatre heures.

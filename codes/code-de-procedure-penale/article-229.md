@@ -1,3 +1,5 @@
 # Article 229
 
-Lorsque la nature et la gravité de l’infraction rendent inévitable la détention pré-ventive du mineur, celui-ci ne peut être détenu que dans un établissement de rééducation ou dans un quartier spécial d’une prison habilitée à accueillir des mineurs. A défaut d’un établissement de rééducation ou de quartier spécial, le mineur peut être détenu dans une prison pour majeurs où la séparation des adultes est effective et permanente.
+Si l’accusé condamné dans les conditions prévues par l’article précédent se constitue prisonnier ou s’il est arrêté avant que la peine soit éteinte par la prescription, le jugement prononcé est non avenu dans toutes ses dispositions et il est procédé à son égard à un nouvel examen de son affaire par le Tribunal saisi.
+
+Le mandat d’arrêt délivré contre l’accusé ou décerné avant le jugement de condamnation vaut mandat de dépôt et l’accusé demeure détenu jusqu’à sa comparution devant le Tribunal. Paragraphe 4 De l’administration de la preuve

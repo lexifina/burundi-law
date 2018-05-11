@@ -1,3 +1,5 @@
 # Article 184
 
-Le tribunal fait toutes les diligences qu’il estime utiles pour parvenir à la manifesta-tion de la vérité.
+Le Ministère Public pourvoit à la citation du prévenu, de la personne civilement responsable et de toute personne dont l’audition lui paraît utile à la manifestation de la vérité.
+
+Le greffier de la juridiction compétente pourvoit à la citation des personnes que la partie lésée ou le prévenu désire faire citer. A cet effet, ceux- ci lui fournissent tous les éléments nécessaires à la citation. Si le requérant sait écrire, il remet au greffier une déclaration signée.

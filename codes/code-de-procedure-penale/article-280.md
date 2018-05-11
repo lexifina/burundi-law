@@ -1,5 +1,7 @@
 # Article 280
 
-Même dans le cas où l’arrestation immédiate n’a pas été ordonnée par le juge, le Procureur de la République ou le Procureur Général, avec l’autorisation du juge, peut selon le cas, à tout moment après le prononcé du juge-ment, faire arrêter le condamné si, à raison des circonstances graves et exceptionnelles, cette mesure est réclamée par la sécurité publique ou s’il existe des présomptions sérieuses que le condamné peut se soustraire à l’exécution du jugement. La décision doit être motivée.
+Toute enquête, instruction ou jugement d’un dossier qui concerne un mineur doit commencer par la vérification de la minorité par tous les moyens de droit. Toute mesure prise dans ce contexte doit se faire en privilégiant le meilleur intérêt du mineur.
 
-La décision rendue par le juge est susceptible d’appel dans les formes et délais applicables aux articles 124 à 133.
+La détention d’un mineur doit être envisagée comme une mesure de tout dernier recours.
+
+Les mesures qui peuvent être prises contre les mineurs doivent tenir compte de la nécessité de préserver pour ces derniers le droit à l’éducation même en cas de privation de liberté.

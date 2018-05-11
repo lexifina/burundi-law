@@ -1,3 +1,3 @@
 # Article 302
 
-En cas d’urgence, le Ministre ayant la Justice dans ses attributions peut, sur propo-sition ou après avis conforme du Procureur Général de la République, habiliter provisoire-ment une association.
+Un recours contre la décision fixant le montant des allocations prévues à l’article précédent peut être interjeté devant la Chambre des Mineurs de la Cour d’Appel dans les formes ordinaires.

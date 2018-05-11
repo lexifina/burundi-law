@@ -1,3 +1,3 @@
 # Article 287
 
-La signification du jugement vaut sommation de payer dans le délai fixé. En cas de non paiement à l’expiration de ce délai, l’exécution de la servitude pénale subsi-diaire et la contrainte par corps, selon le cas, est poursuivie.
+Lorsque la nature et la gravité de l’infraction rendent inévitable la détention préventive du mineur, celui-ci ne peut être détenu que dans un établissement de rééducation ou dans un quartier spécial d’une prison habilitée à accueillir des mineurs. A défaut d’un établissement de rééducation ou de quartier spécial, .le mineur peut être détenu dans une prison pour majeurs où la séparation des adultes est effective et permanente.

@@ -1,5 +1,3 @@
 # Article 193
 
-Le témoin qui a prêté serment n’est pas tenu de le renouveler s’il est entendu une seconde fois au cours des débats dans la même procédure.
-
-Le président doit lui rappeler qu’il est encore tenu par ledit serment.
+La partie lésée et les témoins peuvent, dans tous les cas, être cités à comparaître le jour même, sauf le délai de distance.

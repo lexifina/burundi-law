@@ -1,3 +1,3 @@
 # Article 59
 
-Le Procureur Général de la Républi-que, agissant d’Office ou sur instruction écrite du Ministre ayant la Justice dans ses attribu-tions, peut dénoncer au Procureur Général les infractions à la loi pénale dont il a connaissance, et lui enjoindre d’engager ou de faire engager des poursuites ou de saisir la juridiction compé-tente.
+L’Officier de Police Judiciaire fait rapports confidentiels écrits de manière précise, complète et conforme à la vérité, au Procureur de la République sur chaque phase de l’exécution des observations qu’il dirige. Ces rapports sont communiqués directement au Procureur de la République et font objet d’un dossier séparé et confidentiel dont le contenu est couvert par le secret professionnel. L’autorisation d’Observation ainsi que les décisions de modification, d’extension, de prolongation ou de retrait sont jointes au dossier confidentiel.

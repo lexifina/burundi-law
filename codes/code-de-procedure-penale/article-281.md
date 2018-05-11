@@ -1,3 +1,5 @@
 # Article 281
 
-Le Ministère Public fait remettre le condamné au responsable de l’établissement pénitentiaire où la peine doit être purgée; celui-ci délivre une attestation de la remise.
+Lorsque l’auteur présumé de l’infraction est un mineur âgé de moins de dix-huit ans, l’Officier de Police Judiciaire ou l’Officier du Ministère Public en charge du dossier avise immédiatement les parents, le tuteur ou le gardien du mineur, l’assistant social, ou à défaut, toute association habilitée, des poursuites engagées contre celui-ci.
+
+La preuve de la communication visée à l’alinéa Inyamiramabi n’Umushikirizamanza bategerezwa précédent incombe à l’Officier de Police Judiciaire et à l’Officier du Ministère Public.

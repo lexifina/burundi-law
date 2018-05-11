@@ -1,3 +1,7 @@
 # Article 289
 
-En cas de torture par un préposé de l’État dans l’exercice de ses fonctions dûment constatée, et si la victime s’est régulièrement constituée partie civile, la réparation intégrale du préjudice est supportée par l’État.
+Lorsque l’intérêt de l’instruction l’exige, le juge du contrôle de la détention peut soit confirmer la détention du mineur, soit ordonner la mise en liberté provisoire assortie de l’une des conditions suivantes:
+
+1° l’engagement écrit de bien se conduire et de comparaître chaque fois qu’il en est requis;
+
+2° l’engagement sous caution des pères, mère, tuteur ou gardien du mineur de garantir sa représentation en justice. L’inobservation de l’une des conditions prévues à l’alinéa précédent entraîne mainlevée de la mesure de mise en liberté provisoire.

@@ -1,3 +1,3 @@
 # Article 47
 
-Le Ministère Public exerce l’action publique et requiert l’application de la loi. Il dirige et contrôle les activités des Officiers de Police Judiciaire et de tous les agents publics ayant la qualité d’officier de Police Judiciaire.
+Les méthodes particulières de recherche sont l’observation, l’infiltration, la livraison surveillée, les interceptions de correspondances émises par la voie des télécommunications, la captation des données informatiques, les données de l’ADN (Acide désoxyribonucléique), les sonorisations, les fixations d’images de certains lieux ou véhicules.

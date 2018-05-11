@@ -1,3 +1,5 @@
 # Article 357
 
-Les procédures relatives aux mineurs et aux victimes des violences sexuelles sont instruites par des sections spécialisées des parquets et par des chambres spécialisées des Tribunaux de Grande Instance et des Cours d’Appel.
+Les règles d’exécution des mandats de justice tels que définis dans le présent Code, sont applicables à la contrainte par corps.
+
+La contrainte par corps est subie en maison d’arrêt suivant le régime pénitentiaire en vigueur.

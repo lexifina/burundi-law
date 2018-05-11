@@ -1,3 +1,3 @@
 # Article 100
 
-Toute personne qui en est légale-ment requise par un Officier du Ministère Public ou par un juge, est tenue de prêter son ministère comme interprète, traducteur ou expert. Ces derniers sont tenus au devoir de confidentialité.
+Le Procureur de la République représente en personne ou par ses substituts le Ministère Public près le Tribunal de Grande Instance ainsi que près le Tribunal du Travail statuant en matière répressive Le Ministère Public est représenté auprès du Tribunal de Résidence comme dit au second alinéa de l’article 86

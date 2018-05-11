@@ -1,3 +1,3 @@
 # Article 234
 
-Le mineur est poursuivi devant la Chambre des Mineurs du Tribunal de Grande Instance.
+Le prévenu et la partie civile ou leurs Conseils peuvent prendre ou faire prendre copie, à leurs frais de toute pièce de la procédure.

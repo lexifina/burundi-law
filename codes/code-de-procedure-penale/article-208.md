@@ -1,7 +1,7 @@
 # Article 208
 
-Les jugements indiquent les noms des juges qui les ont rendus, celui de l’Officier du Ministère Public et du greffier, l’identité du prévenu, de l’Avocat ou de toute autre personne qui l’a assisté, l’identité de la partie civile et de la partie civilement responsable s’’il y en a. Ils contiennent l’indication des faits mis à charge du prévenu, un exposé sommaire des actes de poursuite et de procédure à l’audience, les conclusions éventuelles des parties, les motifs et le dispositif.
+Le Président du siège dirige les débats.Il donne la parole à l’auteur de la citation directe qui expose les faits, puis au présumé auteur de l’infraction qui présente les moyens de défense.
 
-Les jugements sont signés par le juge qui les a rendus et le greffier.
+Les témoins à charge et à décharge sont entendus, les autres modes de preuves sont administrés et les critiques contre les preuves fournies sont formulées.
 
-Chapitre VII De la procédure particulière suivie dans l’instruction et le jugement des crimes et délits flagrants ou réputés flagrants
+Le tribunal ordonne toute mesure d’instruction qu’il estime nécessaire à la manifestation de la vérité. Lorsque le siège s’estime éclairé, le Président clôt les débats et la cause est prise en délibéré. A moins de solliciter la réouverture des débats, les parties ne sont plus admises à communiquer au juge d’autres pièces ou notes de conclusions ou de plaidoirie que celles sur lesquelles le débat a été mené.

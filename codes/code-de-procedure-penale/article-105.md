@@ -1,3 +1,3 @@
 # Article 105
 
-Avant de procéder aux actes de son ministère, l’expert est tenu de prêter, par écrit, serment de les accomplir et de faire son rapport en honneur et conscience.
+Lorsqu’il reçoit les renseignements, procès-verbaux, actes et pièces relatifs à une infraction en même temps que l’auteur présumé lui est présenté à l’issue d’une mesure de garde à vue, le Procureur de la République procède aux actes d’instruction nécessaires.

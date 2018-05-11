@@ -1,5 +1,3 @@
 # Article 331
 
-Le droit proportionnel est dû sur la minute du jugement. Il ne donne pas lieu à consi-gnation.
-
-Le droit proportionnel est dû par la personne condamnée aux dommages et intérêts. Il est payé entre les mains du greffier dans le mois qui suit la date où la condamnation civile est passée en force de chose jugée, par la personne condamnée ou par la personne déclarée civile-ment responsable. A leur défaut, le droit proportionnel est payé par la personne au profit de qui la condamnation a été prononcée, sauf le droit pour elle d’en pour-suivre le recouvrement contre la personne qui doit le supporter.
+Lorsque, sur l’appel du Ministère Public seul, le jugement est confirmé, les frais de l’instance ne sont pas mis à la charge du prévenu. Lorsque la peine est réduite, le jugement sur appel ne met à charge du condamné qu’une partie de ces frais ou même l’en décharge entièrement. S’il Y a partie civile en cause, celle-ci supporte dans l’un et l’autre cas la totalité ou la moitié des frais d’appel selon les distinctions établies à l’article 261, sauf si les dommages et intérêts qu’elle avait obtenus sont majorés. HAPITRE XII DU CASIER JUDICIAIRE Section 1 Organisation du Service du Casier Judiciaire

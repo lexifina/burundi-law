@@ -1,3 +1,5 @@
 # Article 159
 
-L’exception tirée de la nullité soit de la citation soit de la procédure doit, sous peine de forclusion, être présentée avant toute défense au fond.
+L’Ordonnance autorisant la mise en état de détention préventive est valable pour trente jours, y compris le jour où elle est rendue. A l’expiration de ce délai, la détention préventive peut être prorogée par décision motivée pour un mois et ainsi de suite de mois en mois, aussi longtemps que l’intérêt public l’exige. Toutefois, la détention préventive ne peut dépasser une année si le fait paraît ne constituer qu’une infraction à l’égard de laquelle la peine prévue par la loi n’est pas supérieure à cinq ans. De même, la détention préventive ne peut dépasser trois ans si la peine prévue pour l’infraction est supérieure à cinq ans de servitude pénale A l’expiration de ce délai, l’autorité hiérarchique du Magistrat qui a le dossier en charge ordonne la libération immédiate du prévenu à la diligence, soit de l’intéressé soit du responsable de l’établissement pénitentiaire. Lorsque, sans excuses valables, le magistrat instructeur omet de présenter un inculpé devant le Juge de la détention préventive, il s’expose à des sanctions disciplinaires et pénales.
+
+Les ordonnances de prorogation sont rendues en observant les formes et les délais prévus aux articles 156et 158.

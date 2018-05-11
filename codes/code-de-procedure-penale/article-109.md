@@ -1,7 +1,7 @@
 # Article 109
 
-Le refus d’obtempérer à la réquisi-tion ou de prêter serment est puni de quatorze jours de servitude pénale au maximum et d’une amende n’excédant pas cinquante mille francs ou de l’une de ces peines seulement.
+En cas de découverte d’un cadavre, qu’il s’agisse ou non d’une mort violente, mais si la cause en est inconnue ou suspecte, l’Officier de Police Judiciaire qui en est avisé en informe si possible le Procureur de la République avant de se transporter sur les lieux et de procéder aux premières constatations. L’Officier de Police Judiciaire doit se transporter sur les lieux et procéder aux constatations lorsqu’il lui a été impossible de prendre contact avec le Procureur de la République. Le rapport de constat doit être communiqué à celui-ci sans délai.
 
-La servitude pénale subsidiaire à l’amende de même que la contrainte par corps pour le recou-vrement des frais ne peuvent excéder quatorze jours. L’infraction prévue au présent article est recher-chée, poursuivie et jugée conformément aux règles ordinaires de compétence et de procé-dure.
+Le Procureur de la République se rend sur place s’il le juge nécessaire et se fait assister de tout médecin, expert ou technicien capable d’apprécier la nature, la cause et les circonstances du décès. Toutefois, il peut déléguer aux mêmes fins un Officier de Police Judiciaire de son choix. Lorsque les circonstances de la mort sont restées inconnues, que l’infraction soit ou non constituée, le Procureur de la République doit procéder à l’ouverture d’une instruction pour rechercher les couses de la mort.
 
-Chapitre V De la détention préventive Section 1 Des règles de base
+Section 5 Des actes d’instruction

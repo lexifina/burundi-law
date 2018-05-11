@@ -1,5 +1,5 @@
 # Article 60
 
-Le Procureur Général a autorité sur tous les Officiers du Ministère Public du ressort de la Cour d’Appel. A l’égard de ces Magistrats, il a les mêmes prérogatives que celles reconnues au Procureur Général de la République à l’arti-cle 59.
+A la fin de l’observation, l’Officier de Police Judiciaire rédige un procès-verbal des différentes phases d’exécution de l’observation, mais n’y mentionne aucun élément susceptible de compromettre les moyens techniques et les techniques d’enquête policière utilisés ou la garantie de .la sécurité et de l’anonymat de l’indicateur et des fonctionnaires de police chargés de l’exécution de l’observation. Il est fait référence dans un procès-verbal à l’autorisation d’observation et il est fait mention des indications visées à l’article 57. Le Procureur la République confirme par décision écrite l’existence de l’autorisation d’observation qu’il a accordée.
 
-Les Officiers et agents de la Police Judiciaire du ressort de la Cour d’Appel sont placés sous la surveillance du Procureur Général. Il peut les charger dans l’étendue de son ressort, de recueillir tous renseignements ou de procéder à toutes enquêtes qu’il estime utiles à une bonne administration de la justice.
+Les procès-verbaux qui ont été rédigés ainsi que la décision visée à l’alinéa 3 de l’article précédent sont joints au dossier répressif au plus tard après qu’il a été mis fin à l’observation. Paragraphe 2 L’infiltration
