@@ -1,0 +1,3 @@
+# Article 17
+
+Validité et applicabilité des clauses de compensation avec déchéance du terme Les clauses de compensation avec déchéance du terme sont valables, exécutoires· et opposables aux tiers, y compris le liquidateur. Elles entrent en vigueur immédiatement, sans nécessité de mise en demeure préalable ni d’autorisation d’aucune juridiction, selon leurs propres dispositions: 1. nonobstant l’ouverture de la procédure d’insolvabilité à l’égard du constituant de la garantie, du débiteur, et/ou du bénéficiaire de la garantie et/ou du créancier; 2. nonobstant toute cession éventuelle, charge, transfert, saisie judiciaire ou autre, ou toute autre cession des droits ou relative aux droits faisant l’objet des dispositions de la clause de compensation avec déchéance du terme.

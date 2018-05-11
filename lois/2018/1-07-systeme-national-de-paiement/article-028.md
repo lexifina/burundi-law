@@ -1,0 +1,5 @@
+# Article 28
+
+Sanctions Est passible d’une amende comprise entre dix millions (BIF 10 000 000) et cent millions (BIF 100 000 000) de francs burundais, toute entité qui: 1. établit ou gère un Système sans avoir obtenu de la Banque Centrale l’agrément à cette fin; 2. modifie les règles du Système et les applique sans approbation préalable de la Banque Centrale; 3. ne répond pas aux demandes d’information de la Banque Centrale ou qui ne lui communique pas les renseignements demandés ou qui lui communique sciemment des renseignements inexacts; 4. fait obstacle, de quelque manière que ce soit, à l’exercice de la mission de contrôle de la Banque Centrale; 5. aura sciemment fait obstacle aux vérifications ou aux contrôles de l’auditeur externe ou aura refusé la communication sur place de toutes les pièces utiles à l’exercice de leur mission, notamment tous contrats, livres, documents comptables et registres des procès-verbaux; 6. aura violé les dispositions de la présente loi, de tout règlement et/ou instructions édictés en vertu de la présente loi.
+
+La sanction prévue par cet article est applicable sans préjudice des poursuites pénales éventuelles.
