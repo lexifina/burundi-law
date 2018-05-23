@@ -1,0 +1,3 @@
+# Article 2 6
+
+Le Comité de pilotage est composé comme suit: 1. Le Secrétaire Permanent au Ministère des Finances, du Budget et de la Coopération au Développement Economique, Président du Comité; 2. Le Commissaire Général de l’Office Burundais des Recettes, Vice-Président du Comité; 3. Le Directeur de l’Agence de Promotion des Investissements, Secrétaire du Comité; 4. Le Secrétaire Permanent au Ministère de la Santé Publique et de la Lutte Contre le Sida; 5. Le Secrétaire Permanent au Ministère de l’Environnement, de l’Agriculture et de l’Elevage; 6. Le Directeur Général du Commerce; 7. Le Directeur du Bureau Burundais de Normalisation et de Contrôle de la Qualité.
