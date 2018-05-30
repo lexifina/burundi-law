@@ -1,0 +1,3 @@
+# Article 270
+
+Les mineurs non émancipés, les majeurs protégés ou les majeurs hors d’état d’exprimer leur consentement et qui ne font pas l’objet d’une mesure de protection juridique reçoivent, lorsque leur participation à une recherche biomédicale est envisagée, l’information adaptée à leur capacité de compréhension, tant de la part de l’investigateur que des personnes, des organes ou des autorités chargés de les assister, de les représenter ou d’autoriser la recherche, eux mêmes informés par l’investigateur. Ils sont consultés dans la mesure où leur état le permet. Leur adhésion personnelle en vue de leur participation à la recherche biomédicale est recherchée. En toute hypothèse, il ne peut être passé outre leur refus ou la révocation de leur acceptation.

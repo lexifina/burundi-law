@@ -1,0 +1,3 @@
+# Article 162
+
+Nonobstant les dispositions de l’article 159,2°,3°,4° et 5°, les donations d’équipements, de bourses d’études et de financement pour les échanges d’informations scientifiques, sont autorisées si elles sont préalablement approuvées par la Commission de contrôle sur demande d’un établissement de soins de santé ou d’une association professionnelle de santé. L’Autorité Burundaise de Régulation des Médicaments et des Aliments doit s’assurer que les donations d’équipements, de bourse d’études ou de financement pour les échanges d’informations scientifiques ne sont pas octroyées dans le but de promouvoir un produit visé. Ces donations doivent se conformer aux dispositions de l’article 156 de la présente loi.

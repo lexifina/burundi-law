@@ -1,0 +1,3 @@
+# Article 269
+
+En cas de recherche biomédicale à mettre en œuvre dans une situation d’urgence qui ne permet pas de recueillir le consentement préalable de la personne qui y est soumise, le protocole présenté à l’avis du Comité National d’Ethique peut prévoir que le consentement de la personne n’est pas recherché et que seul est sollicité celui des membres de sa famille ou celui d’une personne de confiance. L’intéressé est informé dès que possible et son consentement lui est demandé pour la poursuite éventuelle de cette recherche. Il peut également s’opposer à l’utilisation des données le concernant dans le cadre de cette recherche.

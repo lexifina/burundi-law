@@ -1,0 +1,3 @@
+# Article 198
+
+Les établissements publics de santé sont des personnes morales de droit public dotées de l’autonomie administrative et financière. Leur objet principal, qui n’est ni industriel, ni commercial, est de procurer des soins et de l’assistance aux patients. Ils sont administrés par un conseil d’administration. Les modalités de nomination des conseils d’administration et des organes de gestion des établissements publics de santé sont déterminées par le décret qui les organise. Un décret détermine les modalités d’ouverture, d’organisation et de fonctionnement des établissements publics de santé.

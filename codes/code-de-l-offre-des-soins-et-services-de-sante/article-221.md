@@ -1,0 +1,3 @@
+# Article 221
+
+L’autorisation d’exercer la profession de biologiste médical sur le territoire national est accordée à tout détenteur d’un diplôme reconnu valable et est délivrée par le Ministre en charge de la santé publique après avis du Conseil de leur Ordre. Dans le cas où l’examen des qualifications attestées par l’ensemble des titres de formation fait apparaître des différences substantielles au regard des qualifications requises pour l’accès il la profession de la biologie médicale humaine; et son exercice au Burundi, le Ministre en charge de la santé publique exige que le postulant se soumette à une mesure de compensation consistant, au choix du demandeur, en une épreuve d’aptitude QU en un stage d’adaptation dans le domaine concerne.

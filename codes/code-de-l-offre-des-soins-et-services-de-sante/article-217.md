@@ -1,0 +1,3 @@
+# Article 217
+
+L’autorisation d’exercer la profession paramédicale sur le territoire national est accordée à tout détenteur de diplôme de l’une des professions paramédicales reconnu valable par le Ministre en charge de la santé publique après avis du Conseil de leur Ordre. Dans le cas où l’examen des qualifications attestées par l’ensemble des titres de formation fait apparaître des différences substantielles au regard des qualifications requises pour l’accès à la profession paramédicale et son exercice au Burundi, le Ministre en charge de la santé publique exige que le postulant se soumette à une mesure de compensation consistant, au choix du demandeur, en une épreuve d’aptitude ou en un stage d’adaptation dans le domaine concerné.

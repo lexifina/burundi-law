@@ -1,0 +1,3 @@
+# Article 4
+
+Les principes directeurs de la politique nationale de santé sont notamment: - la priorisation des Soins de Santé Primaires, SSP en sigle; l’acceptabilité, l’efficacité, l’efficience et la qualité des soins de santé; - la gestion axée sur les résultats et l’efficacité; - la décentralisation; - le respect de la bonne gouvernance et la réactivité du système de santé; - la coordination, la collaboration intersectorielle, le partenariat et la durabilité; - l’éthique dans le domaine de la santé et les droits humains; - l’équité, la solidarité, la participation, l’identité culturelle et les points de vue tenant compte du genre.
