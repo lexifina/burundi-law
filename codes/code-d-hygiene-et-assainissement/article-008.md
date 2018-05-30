@@ -1,0 +1,3 @@
+# Article 8
+
+Dans le cadre de l’assainissement des lieux publics, les autorités communales veillent à l’élimination régulière des ordures ménagères, des excréta, des eaux usées et des déchets assimilés sur l’étendue de leur territoire. Elles peuvent requérir l’appui des services d’hygiène et d’assainissement dépendant du ministère ayant la santé publique dans ses attributions. Une ordonnance conjointe des Ministres en charge des transports et de la santé publique détermine les normes d’hygiène et de salubrité auxquelles doivent répondre les véhicules affectés au transport des ordures ménagères.

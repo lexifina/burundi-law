@@ -1,0 +1,3 @@
+# Article 38
+
+Dans les agglomérations qui ne disposent pas d’un système d’assainissement collectif (réseau d’égout), la fosse septique est un équipement sanitaire de référence. Elle est destinée à la collecte et à la liquéfaction des matières excrémentielles. Elle doit être dotée d’un dispositif épurateur. Les produits d’épuration seront évacués selon les méthodes définies par la réglementation en vigueur. Lorsque les conditions physiques ou économiques ne sont pas réunies pour construire une fosse septique, le recueil des excréta et des eaux usées peut se faire au travers d’une latrine et/ou d’un puisard, dont les caractéristiques techniques minimales seront définies par les textes d’application du présent Code d’hygiène et assainissement.

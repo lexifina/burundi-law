@@ -1,0 +1,5 @@
+# Article 27
+
+Les agents chargés de l ‘hygiène sont habilités à procéder à des inspections intra-domiciliaires et à des inspections d’établissements publics et privés, conformément à la réglementation en vigueur et au présent Code d ‘hygiène publique. Ils prodiguent des conseils permettant d’améliorer, l’hygiène et la salubrité des habitations et des lieux de travail. Ils contraignent au besoin à l’application des normes d’hygiène et d’assainissement établies par les services d’hygiène du ministère ayant la Santé Publique dans ses attributions.
+
+Les agents chargés de l’hygiène au niveau communal ont la qualité d’officier de police judiciaire à compétence restreinte pour constater les infractions en rapport avec l ‘hygiène et salubrité et appliquer les dispositions pénales du présent code et doivent être assermentés. Les agents en charge de l‘hygiène et assainissement du niveau central ont la qualité d’officier de police judicaire à compétence générale pour constater les infractions en rapport avec l ‘hygiène et salubrité et appliquer les dispositions pénales du présent code et doivent être assermentés.

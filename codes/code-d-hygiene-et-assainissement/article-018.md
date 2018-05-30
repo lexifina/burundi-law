@@ -1,0 +1,3 @@
+# Article 18
+
+Dans les agglomérations urbaines, les ordures ménagères et les autres détritus doivent être déposés dans des récipients étanches et clos tels les poubelles domestiques et les conteneurs collectifs après séparation des déchets dégradables et non biodégradables. Ils sont placés en bordure des rues et vidés dans les véhicules de transport du service de la voirie ou de tout autre service habilité. Les ordures sont amenées jusqu’à des dépôts provisoires bien aménagés et situés à la périphérie des quartiers. Les communes ont la responsabilité de l’entretien et du vidange des dépôts provisoires et du transport des déchets jusqu’à la décharge finale. Celle-ci doit être construite selon la réglementation en vigueur.
