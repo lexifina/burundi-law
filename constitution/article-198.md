@@ -1,3 +1,3 @@
 # Article 198
 
-Le Président de la République peut, après consultation des Vice-Présidents de la République, du Président de l’Assemblée Natio-nale et du Président du Sénat, soumettre au référendum tout projet de texte constitutionnel, législatif ou autre, susceptible d’avoir des répercussions profondes sur la vie et l’avenir de la Nation, ou sur la nature ou le fonctionnement des institutions de la République.
+L'ordre du jour des sessions de l'Assemblée Nationale et du Sénat comporte par priorité et dans l'ordre que le Gouvernement a fixé la discussion des projets de loi déposés par le Gouvernement et des propositions de loi déposées par les membres de l'Assemblée Nationale ou du Sénat. Si une proposition de loi n'a pas été analysée pendant deux sessions ordinaires successives, celle-ci doit être inscrite en priorité à l'ordre du jour de la session suivante.

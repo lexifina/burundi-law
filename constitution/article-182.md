@@ -1,5 +1,3 @@
 # Article 182
 
-Dès sa première session, le Sénat adopte son règlement intérieur qui détermine son organisation et son fonctionnement. Il élit éga-lement son Bureau.
-
-La première session se réunit de plein droit le premier jour ouvrable suivant le septième jour après la validation de son élec-tion par la Cour constitutionnelle. Cette session est présidée par le sénateur le plus âgé.
+L'Assemblée Nationale vote le budget général de l'Etat. L'année budgétaire débute au premier juillet et se clôture au 30 juin de l'année suivante. Si l' Assemblée Nationale ne s'est pas prononcée à la date du 30 juin, le budget de l'année précédente est repris par douzièmes provisoires. A la demande du Président de la République, le Parlement se réunit en congrès dans un délai de quinze jours pour réexaminer le projet de loi de finances. Si le Parlement n'a pas voté le budget à la fin de cette session, le budget est établi définitivement par décret-loi pris en Conseil des Ministres.

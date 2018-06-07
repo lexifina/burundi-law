@@ -1,3 +1,3 @@
 # Article 9
 
-La capitale du Burundi est fixée à Bujumbura. La loi peut la transférer en tout autre lieu de la République.
+La capitale du Burundi est fixée à Bujumbura. La loi peut la transférer en tout autre lieu de la République ou séparer la capitale politique de la capitale économique.

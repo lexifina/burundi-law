@@ -1,7 +1,3 @@
 # Article 175
 
-L’Assemblée Nationale ne peut délibérer valablement que si les deux tiers des députés sont présents. Les lois sont votées à la ma-jorité des deux tiers des députés présents ou représentés.
-
-Les lois organiques sont votées à la majorité des deux tiers des députés présents ou représentés, sans que cette majorité puisse être inférieure à la majorité absolue des membres composant l’As-semblée Nationale.
-
-La majorité des deux tiers des députés présents ou représentés est également requise pour le vote des résolutions, des décisions et des recommandations importantes.
+Dès sa première session, l'Assemblée Nationale adopte son règlement intérieur qui détermine son organisation et son fonctionnement. Elle met également en place son Bureau. La première session se réunit de plein droit le premier jour ouvrable suivant le septième jour de la fin de la législature en cours et après la validation de son élection par la Cour Constitutionnelle. Cette session est présidée par le député le plus âgé.

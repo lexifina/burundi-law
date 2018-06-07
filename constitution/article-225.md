@@ -1,3 +1,3 @@
 # Article 225
 
-La Cour Constitutionnelle est la juridiction de l’Etat en matière constitutionnelle. Elle est juge de la constitutionnalité des lois et interprète la Constitution.
+Une loi organique détermine l'organisation et le fonctionnement du Conseil Supérieur de la Magistrature ainsi que les modalités de désignation de ses membres. 2. DU CONSEIL SUPERIEUR DES PARQUETS

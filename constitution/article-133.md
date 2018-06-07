@@ -1,3 +1,3 @@
 # Article 133
 
-Les membres du Gouvernement sont responsables devant le Président de la République. Lors de leur entrée en fonctions, les membres du Gouvernement prêtent solennellement le serment suivant devant le Parlement et le Président de la République: «Devant le Président de la République, devant le Parlement, moi, ... (énoncer le nom), je jure fidélité a la Charte de l’Unité Na-tionale, à la Constitution et à la loi. Je m’engage à consacrer toutes mes forces à défendre les intérêts supérieurs de la nation, à pro-mouvoir l’unité et la cohésion du peuple burundais, la paix et la justice sociales dans l’accomplissement des fonctions qui me sont confiées. Je m’engage à combattre toute idéologie et pratique de génocide et d’exclusion, et à promouvoir et défendre les droits et libertés de la personne et du citoyen».
+Le Premier Ministre anime et coordonne l'action du Gouvernement. Le Premier Ministre préside les réunions préparatoires du Conseil des Ministres.

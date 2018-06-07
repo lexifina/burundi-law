@@ -1,5 +1,3 @@
 # Article 195
 
-Le Gouvernement peut, pour l’exécution de son programme, demander au Parlement l’autorisation de prendre par décrets-lois, pendant un délai limité, les mesures qui sont normalement du do-maine de la loi. Ces décrets-lois doivent être ratifiés par le Parlement au cours de la session suivante.
-
-La ratification se fait par un seul vote sur tout le texte de loi. En l’absence d’une loi de ratification, ils sont frappés de caducité constatée par la Cour constitutionnelle s’il échet.
+Si, à l'occasion de l'examen visé à l'article 194 dernier alinéa, l'Assemblée Nationale adopte un nouvel amendement, le projet de loi est renvoyé au Sénat qui se prononce sur le projet amendé. Dans un délai ne pouvant dépasser les cinq jours à compter de la date du renvoi, le Sénat peut, soit décider de se rallier au projet amendé par l'Assemblée Nationale, soit adopter le projet après l'avoir à nouveau amendé. Si le Sénat n'a pas statué dans le délai imparti ou s'il a fait connaître à l'Assemblée Nationale sa décision de se rallier au projet voté par l'Assemblée Nationale, celle-ci le transmet dans les quarante huit heures au Président de la République aux fins de promulgation. Si le projet a été à nouveau amendé, le Sénat le transmet à l'Assemblée Nationale qui se prononce définitivement, soit en adoptant, soit en amendant le projet de loi.

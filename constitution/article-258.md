@@ -1,3 +1,3 @@
 # Article 258
 
-La correction des déséquilibres au sein des Corps de défense et de sécurité est abordée progressivement dans un esprit de réconci-liation et de confiance afin de sécuriser tous les Burundais.
+Les corps de défense et de sécurité respectent les droits et la dignité de leurs membres dans le cadre des contraintes normales de la discipline et de l'instruction.

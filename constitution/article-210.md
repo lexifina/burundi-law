@@ -1,3 +1,5 @@
 # Article 210
 
-Le Conseil Supérieur de la Magistrature veille à la bonne admi-nistration de la Justice. Il est le garant de l’indépendance des ma-gistrats du siège dans l’exercice de leurs fonctions.
+La justice est rendue par les cours et tribunaux sur tout le territoire de la République au nom du peuple burundais.
+
+Le rôle et les attributions du Ministère Public sont remplis par les magistrats du Parquet. L'organisation et la compétence judiciaires sont fixées par une loi organique.

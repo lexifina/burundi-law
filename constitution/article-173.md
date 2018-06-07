@@ -1,3 +1,3 @@
 # Article 173
 
-Les partis d’opposition à l’Assemblée Nationale participent de droit à toutes les commissions parlementaires, qu’il s’agisse de commissions spécialisées ou de commissions d’enquête. Un parti politique disposant de membre au Gouvernement ne peut se réclamer de l’opposition.
+Les élections des députés se déroulent suivant le scrutin des listes bloquées à la représentation proportionnelle. Ces listes doivent avoir un caractère multiethnique et tenir compte de l'équilibre entre les hommes et les femmes. Pour trois candidats inscrits à la suite sur une liste, deux seulement peuvent appartenir au même groupe ethnique, et au moins un sur trois doit être une femme.

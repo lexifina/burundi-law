@@ -1,5 +1,3 @@
 # Article 104
 
-Si le Président de la République en exercice se porte candidat, le Parlement ne peut être dissout.
-
-Le Président de la République ne peut, en outre, à partir de l’an-nonce officielle de sa candidature jusqu’à l’élection, exercer son pouvoir de légiférer par Décret-loi découlant de l’article 195 de la présente Constitution. En cas de nécessité, le Parlement est convoqué en session extra-ordinaire.
+Le mandat du Président de la République débute le jour de sa prestation de serment et prend fin à l'entrée en fonctions de son successeur. L'élection du Président de la République a lieu un mois au moins et trois mois au plus avant l'expiration du mandat du Président de la République en exercice.

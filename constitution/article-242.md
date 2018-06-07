@@ -1,3 +1,5 @@
 # Article 242
 
-Le maintien de la sécurité nationale et celui de la défense natio-nale sont soumis à l’autorité du Gouvernement et au contrôle du Parlement.
+Les règles d'organisation et de fonctionnement de la Haute Cour de Justice ainsi que la procédure applicable devant elle sont fixées par une loi organique.
+
+TITRE IX DE L'OMBUDSMAN

@@ -1,3 +1,3 @@
 # Article 89
 
-Une commission électorale nationale indépendante garantit la liberté, l’impartialité et l’indépendance du processus électoral.
+Les élections sont organisées de manière impartiale au niveau national, des communes, des collines et des quartiers, ainsi qu'à d'autres niveaux fixés par la loi.

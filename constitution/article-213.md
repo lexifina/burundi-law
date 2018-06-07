@@ -1,3 +1,7 @@
 # Article 213
 
-Le Conseil Supérieur de la Magistrature assiste le Président de la République et le Gouvernement dans: 1. l’élaboration de la politique en matière de justice; 2. le suivi de la situation du pays dans le domaine judiciaire et dans celui des droits de l’homme; 3. l’élaboration des stratégies en matière de lutte contre l’impu-nité.
+Le pouvoir judiciaire est structuré de façon à refléter dans sa composition l'ensemble de la population.
+
+Les procédures de recrutement et nomination dans le corps judiciaire obéissent impérativement au souci de promouvoir l'équilibre régional, ethnique et l'équilibre de genres.
+
+La magistrature comprend au plus 60% de Hutu et au plus 40% de Tutsi. Il est assuré un minimum de 30% de femmes.

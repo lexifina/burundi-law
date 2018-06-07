@@ -1,7 +1,3 @@
 # Article 107
 
-Le Président de la République exerce le pouvoir réglementaire et assure l’exécution des lois. Il exerce ses pouvoirs par décrets contresignés, le cas échéant, par le Vice-Président et le Ministre concerné.
-
-Le contreseing n’intervient pas pour les actes du Président de la République découlant des articles 110, 113, 114, 115, 197, 198, 297 et 298 de la présente Constitution.
-
-Le Président de la République peut déléguer ces pouvoirs aux Vice-Présidents à l’exception de ceux énumérés à l’alinéa précé-dent.
+Lors de son entrée en fonction, le Président de la République prête solennellement le serment ci-dessous, reçu par la Cour Constitutionnelle: « Devant DIEU le Tout - Puissant, devant le peuple burundais, seul détenteur de la souveraineté nationale, moi, (énoncer le nom), Président de la République du   Burundi. je Jure fidélité à la Charte de !'Unité Nationale, à la Constitution de la République du Bunmdi et à la loi et m'engage à consacrer toutes mes forces à la défense des intérêts supérieurs de la nation, à assurer l'unité nationale et la cohésion du peuple burundais, la paix et la justice sociales. Je m'engage à combattre toute idéologie et pratique de génocide et d'exclusion, à promouvoir et à défendre les droits et libertés individuels et collectifs de la personne et du citoyen, et à sauvegarder l'intégrité et l'indépendance de la République du Burundi».

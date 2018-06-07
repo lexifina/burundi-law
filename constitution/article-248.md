@@ -1,3 +1,3 @@
 # Article 248
 
-Les lois organiques déterminent la mise en place, les missions, l’organisation, l’instruction, les conditions de service et le fonc-tionnement de la Force de défense nationale, de la Police nationale et du Service national de renseignement.
+Le maintien de la sécurité nationale et celui de la défense nationale sont soumis à l'autorité du Gouvernement et au contrôle du Parlement.

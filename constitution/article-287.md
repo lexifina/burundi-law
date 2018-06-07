@@ -1,3 +1,5 @@
 # Article 287
 
-Le Conseil National de la Communication produit un rapport annuel qu’il soumet au Président de la République, au Gouverne-ment, à l’Assemble Nationale et au Sénat.
+Le projet ou la proposition d'amendement de la Constitution est adoptée à la majorité des quatre cinquièmes des membres qui composent l'Assemblée Natfonale et-des deux tiers des, membres du Sénat.
+
+TITRE XVI DES DISPOSITIONS TRANSITOIRES

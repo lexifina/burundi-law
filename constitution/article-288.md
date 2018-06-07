@@ -1,5 +1,5 @@
 # Article 288
 
-Une loi organique détermine les missions, la composition, l’or-ganisation et le fonctionnement du Conseil National de la Com-munication.
+En attendant la mise en place des institutions issues des élections conformément à la présente Constitution, les institutions en place restent en fonction jusqu'à l'installation effective de nouvelles institutions élues.
 
-TITRE XIII DES TRAITÉS ET ACCORDS INTERNATIONAUX
+Les membres actuels de la Cour Constitutionnelle restent en fonction jusqu'à l'installation de nouvelles institutions issues des élections de 2020.

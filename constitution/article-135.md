@@ -1,3 +1,3 @@
 # Article 135
 
-Les membres du Gouvernement font ou proposent les nomina-tions dans l’administration publique et aux postes diplomatiques en prenant en compte la nécessité de maintenir un équilibre ethni-que, régional, politique et entre les genres.
+Le Président de la République, en consultation avec le Vice-Président de la République et le Premier Ministre, veille à ce que le Ministre chargé de la Force de Défense Nationale ne soit pas de la même ethnie que le Ministre responsable de la Police Nationale.

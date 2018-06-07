@@ -1,3 +1,3 @@
 # Article 219
 
-Le Conseil Supérieur de la Magistrature est présidé par le Prési-dent de la République assisté par le Ministre ayant la Justice dans ses attributions.
+Dans leur carrière, les magistrats sont nommés par Décret du Président de la République sur proposition du Ministre ayant la justice dans ses attributions, après avis du Conseil Supérieur de la Magistrature.

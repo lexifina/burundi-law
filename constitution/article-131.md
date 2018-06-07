@@ -1,3 +1,3 @@
 # Article 131
 
-Le Gouvernement détermine et conduit la politique de la nation dans le cadre des décisions prises par consensus en Conseil des Ministres.
+Le Premier Ministre prend des décisions par arrêté. II prend toutes les mesures d'exécution des décrets présidentiels. Les Ministres chargés de leur exécution contresignent les atTêtés du Premier Ministre.

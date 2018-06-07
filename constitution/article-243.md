@@ -1,3 +1,3 @@
 # Article 243
 
-Les Corps de défense et de sécurité doivent rendre compte de leurs actions et travailler en toute transparence. Il est créé des commissions parlementaires chargées de supervi-ser le travail des Corps de défense et de sécurité, conformément aux textes législatifs en vigueur et suivant le règlement du Parle-ment.
+L'Ombudsman reçoit les plaintes et mène des enquêtes concernant des fautes de gestion et des violations des droits des citoyens commises par des agents de la fonction publique et du judiciaire et fait des recommandations à ce sujet aux autorités compétentes. Il assure également une médiation entre l'Administration et les citoyens et entre les ministères et l'Administration et joue le rôle d'observateur en ce qui concerne le fonctionnement de l'administration publique. L'organisation et le fonctionnement de son service sont fixés par la loi.

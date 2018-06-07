@@ -1,3 +1,3 @@
 # Article 233
 
-La Haute Cour de Justice est composée de la Cour Suprême et de la Cour Constitutionnelle réunies. Elle est présidée par le Prési-dent de la Cour Suprême; le Ministère Public est représenté par le Procureur Général de la République.
+La Cour Constitutionnelle ne peut valablement siéger que si cinq au moins de ses membres sont présents. Ses décisions sont prises à la majorité absolue des membres qui siègent, la voix du président étant prépondérante en cas de partage égal des voix.

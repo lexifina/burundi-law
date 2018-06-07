@@ -1,3 +1,3 @@
 # Article 137
 
-Les fonctions de membre du Gouvernement sont incompatibles avec l’exercice de toute activité professionnelle et l’exercice d’un mandat parlementaire. 4. DE L’ADMINISTRATION PROVINCIALE ET PUBLIQUE
+Le Gouvernement délibère obligatoirement sur la politique générale de l'Etat, les projets de traités et accords internationaux, les projets de lois, les projets de décrets présidentiels, d'arrêtés du Premier Ministre et d'ordonnances des Ministres ayant un caractère de réglementation générale.

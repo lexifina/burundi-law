@@ -1,21 +1,21 @@
-# Constitution de la République du Burundi du 18 mars 2005
+# Constitution de la République du Burundi du 7 juin 2018
 
-Promulguée par la Loi n°1/010 du 18 mars 2005
+Adoptée par référendum du 17 mai 2018, promulguée le 7 juin 2018
 
-Préambule Conscients de nos responsabilités et de nos devoirs devant l’histoire et les générations futures; Réaffirmant notre foi dans l’idéal de paix, de réconciliation et d’unité nationale conformément à l’Accord d’Arusha pour la Paix et la Récon-ciliation au Burundi du 28 août 2000 et aux Accords de cessez-le-feu;
+LE PRESIDENT DE LA REPUBLIQUE, La Commission Constitutionnelle ayant élaboré ;
 
-Considérant la nécessité de réinstaurer un ordre démocratique plura-liste et un Etat de droit; Proclamant notre attachement au respect des droits fondamentaux de la personne humaine tels qu’ils résultent notamment de la Déclaration Universelle des droits de l’homme du 10 décembre 1948, des Pactes in-ternationaux relatifs aux droits de l’homme du 16 décembre 1966 et de la Charte africaine des droits de l’homme et des peuples du 18 juin 1981;
+Le Conseil des Ministres ayant délibéré;
 
-Considérant notre attachement à la paix et à la justice sociales; Conscients de l’impérieuse nécessité de promouvoir le développement économique et social de notre pays et d’assurer la sauvegarde de notre culture nationale; Réaffirmant notre détermination à défendre la souveraineté et l’indé-pendance politique et économique de notre pays; Affirmant l’importance, dans les relations internationales, du droit des peuples à disposer d’eux-mêmes;
+Le Peuple burundais ayant adopté par référendum du 17 mai 2018;
 
-Considérant que les relations entre les peuples doivent être caractéri-sées par la paix, l’amitié et la coopération conformément à la Charte des Nations Unies du 26 juin 1945; Réaffirmant notre attachement à la cause de l’unité africaine conformé-ment à l’Acte Constitutif de l’Union Africaine du 25 mai 2002; Réaffirmant notre détermination inébranlable à mettre un terme aux causes profondes de l’état continu de la violence ethnique et politique, de génocide et d’exclusion, d’effusion de sang, d’insécurité et d’insta-bilité politique, qui ont plongé le peuple dans la détresse et la souffran-ce et compromettent gravement les perspectives de développement économique et la réalisation de l’égalité et de la justice sociale dans no-tre pays;
+La Cour Constitutionnelle ayant validé les résultats du Référendum par !'Arrêt n° RCCB 356 du 31 mai 2018; Revu la Constitution du 18 mars 2005;
 
-Considérant que pour atteindre ce résultat, les principes constitution-nels et légaux suivants doivent être garantis:
+Promulgue la Loi Fondamentale de la République du Burundi dont la teneur suit: PREAMBULE NOUS, PEUPLE BURUNDAIS Conscients de nos responsabilités devant Dieu ; Conscients de nos responsabilités et de nos devoirs devant l'histoire et les générations futures ; Réaffirmant notre foi dans l'idéal de paix, de réconciliation et d'unité nationale conformément à l 'Accord d' Arusha pour la Paix et la Réconciliation au Burundi du 28 août 2000 et aux Accords de cessez -le -feu ; Affirmant l'engagement du Burundi au respect du Traité portant création de la Communauté Est Africaine (EAC); Réaffirmant notre plus grande détermination à défendre la souveraineté nationale et à consolider l'indépendance politique et économique de notre pays ;
 
-– l’établissement et l’implantation d’un système de gouvernance dé-mocratique;
+Considérant l'impérieuse nécessité d'assurer la stabilité politique, de promouvoir le développement économique et social de notre pays et d'assurer la sauvegarde de notre culture;
 
-– l’inclusion des partis politiques minoritaires dans le système général de bonne gouvernance;
+Considérant la nécessité de sauvegarder et de pérenniser un ordre démocratique pluraliste et un Etat de droit ; Proclamant à nouveau que tout être humain, sans distinction de race, de religion ni de croyance, possède des droits inaliénables et sacrés ; Réaffirmant solennellement notre attachement au respect des droits fondamentaux de la personne humaine tels qu'ils résultent des textes internationaux relatifs aux droits de l'homme ratifiés par le Burundi ainsi que les principes fondamentaux reconnus par les lois de la République ; Affirmant l'importance dans les relations internationales du droit des peuples à disposer d'eux-mêmes;
 
-– la protection et l’inclusion des groupes ethniques, culturels et reli-gieux minoritaires dans le système général de bonne gouvernance;
+Considérant que les relations entre les peuples doivent être caractérisées par la paix, l'amitié et la coopération conformément à la Charte des Nations Unies du 26 juin 1945; Réaffirmant notre attachement à la cause de l'unité africaine conformément à l 'Acte Constitutif de l'Union Africaine du 25 mai 2002 ; Réaffirmant notre engagement à construire un ordre politique et un système de Gouvernement inspirés des réalités de notre pays et fondés sur les valeurs de justice, de démocratie, de bonne gouvernance, de pluralisme, de respect des libertés et des droits fondamentaux de l'individu, de l'unité, de solidarité, de compréhension mutuelle, de tolérance et de coopération entre les différents groupes ethniques de notre société ; Profondément attaché à la légalité constitutionnelle et aux institutions démocratiques Considérant que l' élection démocratique est le seul moyen par lequel le peuple choisit librement ses gouvernants ; Condamnant tout mode non démocratique d'accession au pouvoir; • ADOPTONS SOLENNELLEMENT LA PRESENTE CONSTITUTION QUI EST LA LOI FONDAMENTALE DE LA REPUBLIQUE DU BURUNDI.
 
-– la restructuration du système national de sécurité et de justice afin de garantir la sécurité de tous les Burundais, y compris les minorités eth-niques. Réaffirmant notre engagement à construire un ordre politique et un système de gouvernement inspirés des réalités de notre pays et fondés sur les valeurs de justice, de démocratie, de bonne gouvernance, de pluralisme, de respect des libertés et des droits fondamentaux de l’in-dividu, de l’unité, de solidarité, de compréhension mutuelle, de tolé-rance et de coopération entre les différents groupes ethniques de notre société. ADOPTONS SOLENNELLEMENT LA PRESENTE CONSTITUTION QUI EST LA LOI FONDAMENTALE DE LA REPUBLIQUE DU BU-RUNDI TITRE I DE L’ÉTAT ET DE LA SOUVERAINETÉ DU PEUPLE 1. DES PRINCIPES GÉNÉRAUX
+TITRE I DE L'ETAT ET DE LA SOUVERAINETE DU PEUPLE 1. DES PRINCIPES GENERAUX

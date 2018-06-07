@@ -1,3 +1,3 @@
 # Article 278
 
-Les membres du Conseil National de Sécurité sont nommés par le Président de la République en concertation avec les Vice-Prési-dents de la République.
+La République du Burundi peut créer avec d'autres Etats des organismes internationaux de gestion et de coordination commune et de libre coopération. Elle peut conclure des accords d'association ou de communauté avec d'autres Etats.

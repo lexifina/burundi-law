@@ -1,3 +1,5 @@
 # Article 214
 
-Dans leur carrière, les magistrats sont nommés par Décret du Président de la République sur proposition du Ministre ayant la justice dans ses attributions, après avis du Conseil Supérieur de la Magistrature. Ceux des tribunaux de résidence sont nommés par ordonnance du Ministre ayant la Justice dans ses attributions sui-vant la même procédure.
+Le pouvoir judiciaire est impartial et indépendant du pouvoir législatif et du pouvoir exécutif. Dans l'exercice de ses fonctions, le juge n'est soumis qu'à la Constitution et à la loi.
+
+Le Président de la République, Chef de l'Etat, est garant de l'indépendance de la Magistrature. Il est assisté dans cette mission par le Conseil Supérieur de la Magistrature. 1. DU CONSEIL SUPERIEUR DE LA MAGISTRATURE

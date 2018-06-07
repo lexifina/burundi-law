@@ -1,3 +1,3 @@
 # Article 256
 
-Les Corps de défense et de sécurité sont organisés de manière à garantir l’unité en leur sein, la neutralité politique des membres ainsi que l’impartialité dans l’accomplissement de leurs missions.
+Lorsque la force de défense nationale est utilisée dans l'un des cas cités au paragraphe ci-dessus, le Président consulte officiellement les instances compétentes habilitées et infonne le Parlement promptement et de façon détaillée sur 1. la ou les raisons de l'emploi de la force de défense nationale; 2. tout endroit où cette force est déployée ; 3. la période pour laquelle cette force est déployée.

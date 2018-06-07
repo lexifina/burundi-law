@@ -1,3 +1,3 @@
 # Article 206
 
-Les audiences des juridictions sont publiques, sauf cas de huis clos prononcé par décision judiciaire, lorsque la publicité est dan-gereuse pour l’ordre public ou les bonnes moeurs.
+Les membres de l'Assemblée Nationale et du Sénat ont le droit de débattre de l'action et de la politique du Gouvernement.

@@ -1,3 +1,3 @@
 # Article 123
 
-Les Vice-Présidents sont nommés par le Président de la Républi-que après approbation préalable de leur candidature par l’Assem-blée Nationale et le Sénat votant séparément et à la majorité de leurs membres. Ils sont choisis parmi les élus. Ils peuvent être démis de leurs fonctions par le Président de la République.
+Le Vice-Président est nommé par le Président de la République après approbation préalable de sa candidature par l'Assemblée Nationale et le Sénat votant séparément et à la majorité absolue de leurs membres. Il est choisi paimi les élus et doit jouir uniquement de la nationalité burundaise d'origine. Il peut être démis de ses fonctions par le Président de la République.

@@ -1,5 +1,5 @@
 # Article 267
 
-L’Etat veille au développement harmonieux et équilibré de tou-tes les communes du pays sur base de la solidarité nationale.
+Un civil ne peut être assujetti au code de justice militaire ni jugé par une juridiction militaire.
 
-TITRE XII DES CONSEILS NATIONAUX
+TITRE XI DU SERVICE NATIONAL DE RENSEIGNEMENT

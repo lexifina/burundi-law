@@ -1,5 +1,5 @@
 # Article 74
 
-Tout burundais a le devoir de contribuer par son travail à la construction et à la prospérité du Pays.
+Tout Burundais a le devoir de contribuer par son travail à la construction et à la prospérité du pays.
 
-TITRE III DU SYSTÈME DES PARTIS POLITIQUES
+TITRE III DU SYSTEME DES PARTIS POLITIQUES ET DES INDEPENDANTS

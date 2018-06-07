@@ -1,3 +1,5 @@
 # Article 130
 
-Le Président de la République, après consultation des deux Vice-Présidents de la République, veille à ce que le Ministre chargé de la Force de Défense Nationale ne soit pas de la même ethnie que le Ministre responsable de la Police Nationale.
+Les activités du Gouvernement sont coordonnées par un Premier Ministre nommé par le Président de la République, après approbation préalable de sa candidature par l'Assemblée Nationale et le Sénat votant séparément et à la majorité absolue de leurs membres.
+
+Le Premier Ministre doit jouir uniquement de la nationalité burundaise d'origine.

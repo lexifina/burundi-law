@@ -1,3 +1,7 @@
 # Article 193
 
-L’ordre du jour des sessions de l’Assemblée Nationale et du Sé-nat comporte par priorité et dans l’ordre que le Gouvernement a fixé la discussion des projets de loi déposés par le Gouvernement et des propositions de loi déposées par les membres de l’Assem-blée Nationale ou du Sénat. Si une proposition de loi n’a pas pu être étudiée pendant deux sessions ordinaires successives, celle-ci doit être inscrite en priorité à l’ordre du jour de la session suivante.
+Les projets et propositions de loi sont déposés simultanément aux bureaux de l'Assemblée Nationale et du Sénat. Tout projet de loi et toute proposition de loi précisent s'il s'agit d'une matière relevant de la compétence du Sénat conformément à l'article 192.
+
+Les textes visés à l'alinéa précédent sont inscrits d'office à l'ordre du jour du Sénat.
+
+Les autres textes sont examinés suivant la procédure prescrite aux articles 195 et 196 ci-après. En cas de doute ou de litige sur la recevabilité d'un texte, le Président de la République, le Président de l'Assemblée Nationale ou le Président du Sénat saisit la Cour Constitutionnelle qui en décide.

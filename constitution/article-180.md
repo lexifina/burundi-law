@@ -1,3 +1,7 @@
 # Article 180
 
-Le Sénat est composé de: 1. deux délégués de chaque province, élus par un collège électo-ral composé de membres des Conseils communaux de la province considérée, provenant de communautés ethniques différentes et élus par des scrutins distincts; 2. trois personnes issues de l’ethnie Twa; 3. les anciens Chefs d’Etat. Il est assuré un minimum de 30% de femmes. La loi électorale en détermine les modalités pratiques, avec cooptation le cas échéant.
+L'Assemblée Nationale ne peut délibérer valablement que si les deux tiers des députés sont présents. Les lois sont votées à la majorité absolue des députés présents ou représentés.
+
+Les lois organiques sont votées à la majorité des trois cinquième des députés présents ou représentés, sans que cette majorité puisse être inférieure à la majorité absolue des membres composant l'Assemblée Nationale.
+
+La majorité des trois cinquième des députés présents ou représentés est également requise pour le vote des résolutions, des décisions et des recommandations importantes. Articlel81 L'Assemblée Nationale est saisie du projet de loi de finances dès l'ouverture de sa session du mois d'avril.

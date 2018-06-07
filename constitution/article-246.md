@@ -1,3 +1,3 @@
 # Article 246
 
-Les Corps de défense et de sécurité sont subordonnés à l’autori-té civile dans le respect de la Constitution, de la loi et des règle-ments.
+Les corps de défense et de sécurité sont établis conformément à la loi. En dehors de ceux-ci, il ne peut être créé ou levé aucune autre organisation armée.

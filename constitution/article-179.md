@@ -1,7 +1,5 @@
 # Article 179
 
-Le candidat aux élections des sénateurs doit être de nationalité burundaise, être âgé de trente-cinq ans révolus au moment de l’élection, jouir de tous ses droits civils et politiques.
+L'Assemblée Nationale se réunit chaque année en trois sessions ordinaires de trois mois chacune. La première session débute le premier jour ouvrable du mois d'août, la deuxième le premier jour ouvrable du mois de décembre et la troisième le premier jour ouvrable du mois d'avril. Des sessions extraordinaires, ne dépassant pas une durée de quinze jours, peuvent être convoquées à la demande du Président de la République, ou à la demande de la majorité absolue des membres composant l'Assemblée Nationale, sur un ordre du jour détenniné.
 
-Le candidat aux élections sénatoriales ne doit pas avoir été condamné pour crime ou délits de droit commun à une peine dé-terminée par la loi électorale.
-
-La loi électorale prévoit également le délai après lequel une per-sonne condamnée au sens de l’alinéa précédent peut retrouver son éligibilité depuis l’exécution de sa peine.
+Les sessions extraordinaires sont ouvertes et closes par décret du Président de la République.

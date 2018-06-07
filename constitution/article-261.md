@@ -1,5 +1,3 @@
 # Article 261
 
-Un civil ne peut être assujetti au code de justice militaire ni jugé par une juridiction militaire.
-
-TITRE XI DES COLLECTIVITÉS LOCALES
+L'Etat a le devoir de mettre en place une politique des réformes pertinentes en matière de défense et de sécurité qui renforce l'unité et la cohésion du peuple burundais, notamment en assurant les équilibres ethniques, régionaux et de genres nécessaires.

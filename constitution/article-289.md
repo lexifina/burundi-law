@@ -1,3 +1,5 @@
 # Article 289
 
-Le Président de la République a la haute direction des négocia-tions internationales. Il signe et ratifie les traités et accords interna-tionaux.
+Un délai de cinq ans est accordé au Sénat pour évaluer afin de mettre fin ou proroger le système de quota ethniques dans !'Exécutif, le Législatif et le Judiciaire après la mise en place des institutions issues de la présente Constitution.
+
+TITRE XVII DES DISPOSITIONS FINALES

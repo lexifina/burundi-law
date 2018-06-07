@@ -1,3 +1,3 @@
 # Article 106
 
-Lors de son entrée en fonction, le Président de la République prête solennellement le serment ci-dessous reçu par la Cour Constitutionnelle devant le Parlement: «Devant le peuple burundais, seul détenteur de la souveraineté nationale, moi, (énoncer le nom), Président de la République du Burundi, je jure fidélité à la Charte de l’Unité Nationale, la Consti-tution de la République du Burundi et à la loi, et m’engage à consa-crer toutes mes forces à la défense des intérêts supérieurs de la Nation, à assurer l’unité nationale et la cohésion du peuple burun-dais, la paix et la justice sociales. Je m’engage à combattre toute idéologie de génocide et d’exclusion, à promouvoir et à défendre les droits et libertés individuels et collectifs de la personne et du ci-toyen, et à sauvegarder l’intégrité et l’indépendance de la Républi-que du Burundi.»
+La loi électorale précise toutes les autres dispositions relatives à l'élection du Président de la République.

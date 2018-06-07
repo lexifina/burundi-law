@@ -1,3 +1,3 @@
 # Article 224
 
-Une loi organique précise la composition, l’organisation, la com-pétence et le fonctionnement de la Cour Suprême ainsi que la pro-cédure applicable devant elle.
+Le Conseil Supérieur de la Magistrature est présidé par le Président de la République assisté par le Président de la Cour Suprême et le Ministre de la Justice, respectivement comme Vice-Président et Secrétaire.

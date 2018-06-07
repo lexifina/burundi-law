@@ -1,3 +1,5 @@
 # Article 185
 
-Le Sénat se réunit chaque année en trois sessions ordinaires de trois mois chacune et au même moment que l’Assemblée Nationa-le. Des sessions extraordinaires ne dépassant pas une durée de quinze jours, peuvent être convoquées à la demande du Président de la République ou à la demande de la majorité absolue des mem-bres composant le Sénat, sur un ordre du jour déterminé. Des sessions extraordinaires sont ouvertes et closes par décret du Président de la République.
+Le Sénat est composé de 1 ° Deux délégués de chaque province, élus par un collège électoral composé de membres des Conseils communaux de la province considérée, provenant des communautés ethniques différentes et élus par des scrutins distincts ;
+
+2° Trois personnes issues de l'ethnie Twa; Il est assuré un minimum de 30% de femmes. La loi électorale en détermine les modalités pratiques, avec cooptation le cas échéant.

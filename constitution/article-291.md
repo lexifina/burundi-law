@@ -1,3 +1,3 @@
 # Article 291
 
-La République du Burundi peut créer avec d’autres Etats des or-ganismes internationaux de gestion et de coordination commune et de libre coopération. Elle peut conclure des accords d’associa-tion ou de communauté avec d’autres Etats.
+La Constitution de la République du Burundi adoptée par référendum du 28 février 2005 et promulguée le 18 mars 2005 est révisée.

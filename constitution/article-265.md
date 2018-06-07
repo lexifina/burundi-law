@@ -1,9 +1,3 @@
 # Article 265
 
-Les élections au niveau communal sont tenues, conformément aux procédures indiquées ci-après:
-
-a. les collines sont administrées par des Conseils de colline de cinq membres élus au suffrage universel direct. Le conseiller qui a obtenu le plus grand nombre de voix devient le Chef de la colline.
-
-Les candidats doivent se présenter à titre indépendant;
-
-b. les communes sont administrées par des Conseils Commu-naux qui sont élus au suffrage universel direct.
+Les corps de défense et de sécurité sont constitués de professionnels et sont non partisans. Leurs membres bénéficient d'une formation technique, morale et civique. Cette formation porte notamment sur la culture de la paix, le comportement dans un système politique démocratique pluraliste et les droits de l 'homme.

@@ -1,3 +1,3 @@
 # Article 167
 
-La Commission électorale nationale indépendante vérifie la re-cevabilité des candidatures.
+La loi de finances détermine, pour chaque année, les ressources et les charges de l'Etat.

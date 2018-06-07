@@ -1,5 +1,3 @@
 # Article 102
 
-L’élection du Président de la République a lieu au scrutin unino-minal à deux tours.
-
-Le Président de la République est élu à la majorité absolue des suffrages exprimés. Si celle-ci n’est pas obtenue au premier tour, il est procédé, dans un délai de quinze jours, à un second tour. Seuls peuvent se présenter au second tour du scrutin les deux candidats qui ont recueilli le plus grand nombre de suffrages au premier tour. En cas de désistement de l’un ou de l’autre des deux candidats, les candidats suivants se présentent dans l’ordre de leur classement après le premier scrutin. Est déclaré élu au second tour, le candidat ayant recueilli la ma-jorité relative des suffrages exprimés.
+Dans le cas où le candidat élu Président de la République occupait une fonction publique, il est placé d'office en position de détachement dès la proclamation des résultats définitifs. Dans le cas où il occupait une fonction privée, rémunérée ou non, pour son propre compte ou pour le compte d'un tiers, il cesse toute activité dès la proclamation des résultats.

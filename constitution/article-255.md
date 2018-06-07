@@ -1,3 +1,5 @@
 # Article 255
 
-L’Etat a le devoir de mettre en place une politique des réformes pertinentes en matière de défense et de sécurité qui renforce l’uni-té et la cohésion du peuple burundais, notamment en assurant les équilibres ethniques, régionaux et de genres nécessaires.
+Dans les limites déterminées par la Constitution et les lois, seul le Président de la République peut autoriser l'usage de la Force Armée:
+
+l. Dans la défense de l'Etat; 2. Dans le rétablissement de l'ordre et de la sécurité publique; 3. Dans l'accomplissement des obligations et engagements internationaux.

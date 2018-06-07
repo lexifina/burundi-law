@@ -1,5 +1,3 @@
 # Article 147
 
-Le pouvoir législatif est exercé par le Parlement qui comprend deux chambres: l’Assemblée Nationale et le Sénat.
-
-Les membres de l’Assemblée Nationale portent le titre de dépu-té; ceux du Sénat portent le titre de sénateur. Nul ne peut appartenir à l’Assemblée Nationale et au Sénat.
+L'administration est orgamsee en ministères, et tout ministre rend compte au Président de la République de la manière dont son ministère s'acquitte de ses tâches et de l'utilisation des fonds qui lui sont alloués.

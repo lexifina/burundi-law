@@ -1,3 +1,5 @@
 # Article 292
 
-Les traités ne prennent effet qu’après avoir été régulièrement ra-tifiés et sous réserve de leur application par l’autre partie, pour les traités bilatéraux, et de la réalisation des conditions de mise en vi-gueur prévues par eux, pour les traités multilatéraux.
+La présente Constitution adoptée par référendum du 17 mai 2018 entre en vigueur le jour de sa promulgation.
+
+Fait à Gitega, le .'?.Ir. .... juin 2018, VU ET SCELLE DU SCEAU DE LA REPUBLIQUE, LE MINISTRE DE LA JUSTICE, DE LA PROTECTION CIVIQUE ET GARDE DES SCEAUX

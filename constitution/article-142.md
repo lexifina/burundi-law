@@ -1,3 +1,3 @@
 # Article 142
 
-L’Administration est organisée en ministères, et tout ministre rend compte au Président de la République de la manière dont son ministère s’acquitte de ses tâches et de l’utilisation des fonds qui lui sont alloués
+Les fonctions de membre du Gouvernement sont mcompatibles avec l'exercice de toute fonction publique, activité professionnelle et l'exercice d'un mandat parlementaire. 5. DE L'ADMINISTRATION PROVINCIALE ET PUBLIQUE

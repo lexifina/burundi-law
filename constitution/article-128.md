@@ -1,3 +1,3 @@
 # Article 128
 
-En cas de démission, de décès ou de toute autre cause de cessa-tion définitive des fonctions d’un Vice-Président de la République, un nouveau Vice-Président de la République provenant de la mê-me ethnie et du même parti politique que son prédécesseur est nommé, suivant la même procédure, dans un délai n’excédant pas trente jours à compter de la cessation définitive des fonctions du Vice-Président à remplacer. 3. DU GOUVERNEMENT
+Le Gouvernement comprend le Premier Ministre et les autres ministres. Il est ouvert à toutes les composantes ethniques. Il comprend au plus 60% de Ministres Hutu et au plus 40% de Ministres Tutsi. Il est assuré un minimum de 30% de femmes. 4. DU PREMIER MINISTRE

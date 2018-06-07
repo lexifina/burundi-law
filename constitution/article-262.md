@@ -1,5 +1,3 @@
 # Article 262
 
-La commune ainsi que d’autres collectivités locales de la Répu-blique sont créées par une loi organique.
-
-La loi détermine les principes fondamentaux de leur statut, de leur organisation, de leurs compétences, de leurs ressources ainsi que les conditions dans lesquelles ces collectivités locales sont ad-ministrées.
+Les Corps de défense et de sécurité sont organisés de manière à garantir l'unité en leur sein, la neutralité politique des membres ainsi que l'impartialité dans l'accomplissement de leurs missions.

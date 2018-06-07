@@ -1,3 +1,3 @@
 # Article 230
 
-La Cour Constitutionnelle est saisie par le Président de la Répu-blique, le Président de l’Assemblée Nationale, le Président du Sé-nat, par un quart des membres de l’Assemblée Nationale ou un quart des membres du Sénat, ou par l’Ombudsman. Toute personne physique ou morale intéressée ainsi que le Mi-nistère Public peuvent saisir la Cour Constitutionnelle sur la constitutionnalité des lois, soit directement par voie d’action, soit indirectement par la procédure d’exception d’inconstitutionnalité invoquée dans une affaire soumise à une autre juridiction. Celle-ci surseoit à statuer jusqu’à la décision de la Cour Consti-tutionnelle qui doit intervenir dans un délai de trente jours.
+Une loi organique précise la composition, l'organisation, la compétence et le fonctionnement de la Cour Suprême ainsi que la procédure applicable devant elle. 4. DE LA COUR CONSTITUTIONNELLE

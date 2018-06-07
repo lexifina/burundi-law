@@ -1,5 +1,7 @@
 # Article 170
 
-Dès sa première session, l’Assemblée Nationale adopte son rè-glement intérieur qui détermine son organisation et son fonction-nement. Elle met également en place son Bureau.
+Le candidat aux élections législatives doit être de nationalité et d'origine burundaises, être âgé de vingt-cinq ans au moins, jouir de tous ses droits civils et politiques.
 
-La première session se réunit de plein droit le premier jour ouvrable suivant le septième jour après la validation de son élec-tion par la Cour constitutionnelle. Cette session est présidée par le député le plus âgé.
+Le candidat aux élections législatives ne doit pas avoir été condamné pour crime ou délits de droit commun à une peine déterminée par la loi électorale.
+
+La loi électorale prévoit également le délai après lequel une personne condamnée au sens de l'alinéa précédent peut retrouver son éligibilité depuis l'exécution de sa peine.

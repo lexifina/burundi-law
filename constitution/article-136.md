@@ -1,3 +1,3 @@
 # Article 136
 
-Les membres du Gouvernement sont pénalement responsables des infractions commises dans l’exercice de leurs fonctions. Ils sont justiciables de la Cour Suprême.
+Le Gouvernement est chargé de la mise en oeuvre de la politique de la nation telle que définie par le Président de la République.

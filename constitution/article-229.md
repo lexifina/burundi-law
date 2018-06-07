@@ -1,3 +1,3 @@
 # Article 229
 
-La Cour Constitutionnelle est également compétente pour sta-tuer sur les cas prévus aux articles 115, 157, 160, 161, 188, 234 et 296 de la présente Constitution.
+Il est institué, près la Cour Suprême, un parquet général de la République dont les membres sont nommés de la même manière que les juges de la Cour Suprême.

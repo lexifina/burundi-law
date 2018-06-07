@@ -1,5 +1,3 @@
 # Article 138
 
-Le pouvoir exécutif est délégué, au niveau provincial, à un Gou-verneur de province chargé de coordonner les services de l’admi-nistration oeuvrant dans la province.
-
-Le Gouverneur de province exerce, en outre, les pouvoirs que les lois et les règlements lui attribuent.
+Lors de leur entrée en fonctions, les membres du Gouvernement prêtent solennellement le serment cidessous reçu par la Cour Constitutionnelle, devant le Parlement et le Président de la République «Devant DIEU le Tout-Puissant, devant le Président de la République, devant le Parlement, moi ... ( énoncer le nom et le titre), je jure fidélité à la Charte de !'Unité Nationale, à la Constitution et à la loi. Je m'engage à consacrer toutes mes forces à défendre les intérêts supérieurs de la nation, à promouvoir l'unité et la cohésion du peuple burundais, la paix et la justice sociales dans l'accomplissement des fonctions qui me sont confiées. Je m'engage à combattre toute idéologie et pratique de génocide et d'exclusion, et à promouvoir et défendre les droits et libertés de la personne et du citoyen».

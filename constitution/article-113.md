@@ -1,3 +1,3 @@
 # Article 113
 
-Le Président de la République a le droit de grâce qu’il exerce après consultation des deux Vice-Présidents de la République et après avis du Conseil Supérieur de la Magistrature
+Le Président de la République accrédite et rappelle les ambassadeurs et les envoyés extraordinaires auprès des Etats étrangers et reçoit les lettres de créances et de rappel des ambassadeurs et envoyés extraordinaires des Etats étrangers.

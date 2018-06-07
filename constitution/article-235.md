@@ -1,3 +1,3 @@
 # Article 235
 
-En cas de condamnation, le Président de la République, les Vice-Présidents de la République, le Président de l’Assemblée Nationa-le et le Président du Sénat sont déchus de leurs fonctions.
+La Cour Constitutionnelle est également compétente pour statuer sur les cas prévus aux articles 116, 162, 165, 166, 193, 200 et 283 de la présente Constitution.

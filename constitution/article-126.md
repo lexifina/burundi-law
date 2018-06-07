@@ -1,5 +1,3 @@
 # Article 126
 
-Les Vice-Présidents prennent par arrêté, chacun dans son sec-teur, toutes les mesures d’exécution des décrets présidentiels.
-
-Les Ministres chargés de leur exécution contresignent les arrêtés des Vice-Présidents.
+Lors de son entrée en fonctions, le Vice-Président prête solennellement le serment suivant, reçu par la Cour Constih1tionnelle, en présence du Parlement «Devant DIEU le Tout-Puissant, devant le Président de la République, moi (énoncer le nom), Vice-Président de la République du Burundi, je jure fidélité à la Charte de !'Unité Nationale, à la Constitution de la République du Burundi et à la loi et m'engage à consacrer toutes mes forces à la défense des intérêts supérieurs de la Nation, à assurer l'unité et la cohésion du peuple burnndais, la paix et la justice sociales. Je m'engage à combattre / -J toute idéologie et pratique de génocide et d'exclusion, à promouvoir et à défendre les droits et libertés individuels et collectifs de la personne et du citoyen, et à sauvegarder l'intégrité et l'indépendance de la République du Burundi».

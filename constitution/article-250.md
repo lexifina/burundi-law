@@ -1,9 +1,7 @@
 # Article 250
 
-Lorsque la Force de Défense Nationale est utilisée dans l’un des cas cités au paragraphe ci-dessus, le Président consulte officielle-ment les instances compétentes habilitées et informe le Parlement promptement et de façon détaillée sur:
+Ni les corps de défense et de sécurité, ni aucun de leurs membres ne peuvent, dans l'exercice de leurs fonctions
 
-a. la ou les raisons de l’emploi de la Force de Défense Nationale;
+l. Porter préjudice aux intérêts d'un parti politique qui, aux termes de la Constitution, est légal 2. Manifester leurs préférences politiques ; 3. Avantager de manière partisane les intérêts d'un parti politique; 4. Etre membre d'un parti politique ou d'une association à caractère politique; 5. Participer à des activités ou manifestations à caractère politique.
 
-b. tout endroit où cette force est déployée;
-
-c. la période pour laquelle cette force est déployée.
+La loi portant organisation et fonctionnement des corps de défense et de sécurité en réprime la violation.

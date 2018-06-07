@@ -1,3 +1,3 @@
 # Article 95
 
-Le Président de la République, Chef de l’Etat, incarne l’unité na-tionale, veille au respect de la Constitution et assure par son arbi-trage la continuité de l’Etat et le fonctionnement régulier des institutions. Il est le garant de l’indépendance nationale, de l’intégrité du ter-ritoire et du respect des traités et accords internationaux.
+Lors de leur entrée en fonction et à la fin de celle-ci, le Président de la République, le Vice-Président de la Républiquő, le Premier Ministre et les membres du Gouvernement sont tenus de faire sur leur honneur une déclaration écrite de leurs biens et patrimoine adressée à la Cour Suprême. 1. DU PRESIDENT DE LA REPUBLIQUE

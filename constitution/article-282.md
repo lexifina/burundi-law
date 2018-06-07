@@ -1,3 +1,3 @@
 # Article 282
 
-Le Conseil Economique et Social produit un rapport annuel qu’il adresse au Président de la République, au Gouvernement, à l’As-semblée Nationale et au Sénat.
+Aucune cession, aucun échange, aucune adjonction de territoire n'est valable sans le consentement du peuple burundais appelé à se prononcer par référendum.

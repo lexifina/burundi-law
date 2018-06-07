@@ -1,3 +1,5 @@
 # Article 86
 
-Le droit de vote est garanti.
+Une loi détermine les conditions dans lesquelles un indépendant exerce et cesse ses activités politiques. Dans tous les cas, aucune coalition d'Indépendants ne peut être autorisée. ?
+
+TITRE IV DES ELECTION S

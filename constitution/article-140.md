@@ -1,3 +1,3 @@
 # Article 140
 
-L’Administration fonctionne conformément aux valeurs démo-cratiques et aux principes énoncés dans la présente Constitution et à la loi.
+Les membres du Gouvernement font ou proposent les nominations dans l'administration publique et aux postes diplomatiques en prenant en compte la nécessité de maintenir un équilibre ethnique, régional, politique et entre les genres.

@@ -1,3 +1,3 @@
 # Article 253
 
-Les membres des Corps de défense et de sécurité ont le droit d’être informés de la vie socio-politique du pays et de recevoir une éducation civique.
+Les corps de défense et de sécurité développent en leur sein une culture non discriminatoire, non ethniste et non sexiste.

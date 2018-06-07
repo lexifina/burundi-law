@@ -1,5 +1,3 @@
 # Article 236
 
-Les règles d’organisation et de fonctionnement de la Haute Cour de Justice ainsi que la procédure applicable devant elle sont fixées par une loi organique.
-
-TITRE IX DE L’OMBUDSMAN
+La Cour Constitutionnelle est saisie par le Président de la République, le Président de l'Assemblée Nationale, le Président du Sénat, par un quart des membres de l'Assemblée Nationale ou un quart des membres du Sénat, ou par !'Ombudsman. Toute personne physique ou morale intéressée ainsi que le Ministère Public peuvent saisir la Cour Constitutionnelle sur la constitutionnalité des lois, soit directement par voie d'action soit indirectement par la procédure d'exception d'inconstitutionnalité invoquée dans une affaire soumise à une autre juridiction. Celle-ci sursoit à statuer jusqu'à la décision de la Cour Constitutionnelle qui doit intervenir dans un délai de trente jours.
