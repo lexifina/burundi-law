@@ -1,0 +1,3 @@
+# Article 28
+
+Le Département de la Planification et des Statistiques est, en outre, chargé de : - coordonner le processus de mise en place du Plan stratégique du Ministère; - coordonner les activités en rapport avec les statistiques; - développer les stratégies et les actions à entreprendre par le Burundi dans sa politique d’intégration au sein de la Communauté Est Africaine; - coordonner les activités en rapport avec la Conférence pré-budgétaire de la Communauté Est Africaine; - appuyer techniquement les Directions Générales et les cellules spécialisées dans l’élaboration des Plans d’actions annuels et leur budgétisation.

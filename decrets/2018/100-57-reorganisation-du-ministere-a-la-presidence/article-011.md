@@ -1,0 +1,3 @@
+# Article 11
+
+L’Inspection Générale est chargée d’une mission de contrôle interne des services placés sous l’autorité du Ministère. Elle est notamment chargée de: - effectuer le contrôle à posteriori de toutes les procédures de passation des marchés publics effectuées par le Ministère tout en veillant au respect des dispositions du Code des Marchés Publics en vigueur; - assurer l’audit interne du Ministère; - coordonner les activités relatives à l’audit et à l’inspection des organes et institutions de la Communauté Est Africaine; - coordonner les activités du Comité de la Communauté Est Africaine sur l’audit et la gestion des risques; - faire régulièrement rapport au Ministre.

@@ -1,0 +1,3 @@
+# Article 23
+
+Le Département des Infrastructures est également chargé de: - s’assurer de la mise en œuvre des projets et des programmes de la Communauté Est Africaine en matière des postes et des technologies de l’information et de la communication; - s’assurer de la mise en œuvre des projets et des programmes de la Communauté Est Africaine en matière des services météorologiques; - s’assurer de la mise en œuvre des politiques, des stratégies et de la réglementation de la Communauté Est Africaine relatives aux Infrastructures de transports, de communications, de la météorologie et de l’énergie; - assurer le suivi des projets et programmes initiés dans le cadre des corridors de transport et de transit.
