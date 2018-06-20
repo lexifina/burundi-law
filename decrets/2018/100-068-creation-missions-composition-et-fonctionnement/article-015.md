@@ -1,0 +1,15 @@
+# Article 15
+
+La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, 11/06/2018 Dr. Gaspard BANYANKIMBONA (sé). ANNEXE A L’ORDONNANCE MINISTERIELLE N°610/726 DU 11/06/2018FIXANT EQUIVALENCE DE CERTAINS DIPLOMES, TITRES SCOLAIRES ET UNIVERSITAIRES 1.
+
+Le « Nigeria Certificate in Education (NCE), décerné à ALAO ABOLAJI Samson, par « Adeniran Ogunsanya College of Education; Oto-Ijanikin » au Nigéria, équivaut au Diplôme d’Etat (Art.l). 2. «The Degree of Bachelor of Theology » décerné à ALAO ABOLAJI Samson, par « Africa International University» au Kenya, équivaut au Diplôme de Baccalauréat en Théologie (Art.2). 3.
+
+Le Diplôme de Doctorat en Médecine et Chirurgie « Dottore in Medicina E Chirurgia », décerné à KlRANIGUYE Daphrose, par, « Università Degli Studi Milano », équivaut au Diplôme de Docteur en Médecine Générale (Art.3). 4.
+
+Le Diplôme de Spécialiste en Cardiologie, décerné à KIRANIGUYE Daphrose par l’Institut de Cardiologie de l’Université de Bologne en Italie équivaut au Diplôme de Docteur Spécialiste en Cardiologie reconnu au Burundi (Art. 4). 5. Le« General Certificate of Education »décerné à NDAYISHIMlYE Gibson, par « Nu- Vision High School » en Ouganda, affilié à Cambridge International Examinations, équivaut au Diplôme d’Etat (Art.5). 6. «The Degree of Bachelor of Science in Computer Science », décerné à CIMPAYE Eric, par « California Creek University » aux Etats-Unis d’Amérique, équivaut au Diplôme de Baccalauréat (Art.6). 7. « The Degree of Master of Military Science; Science of Military Strategy », décerné à NDAYAMBAJE Révérien en 2013, par « National Defence University of PLA » de Beijing en Chine, équivaut au Diplôme d’Etudes Supérieures Spécialisées (D.E.S.S.) (Art.7). 8.
+
+Le Diplôme A2; Section Informatique de Maintenance, décerné à DUSABUMUKAMA Franck, par le Lycée Technique Alessandro Rossi de Ngozi (Burundi), équivaut au Diplôme des Humanités Techniques de niveau A2 (Art 8), 9. « The Postgraduate Diploma ln Environmental Journalism and Communication » décerné à BAKUNDUKIZE Fabien en janvier 2008, par « Makerere University» en Ouganda, équivaut au Diplôme d’Etudes Supérieures Spécialisées (D.E.S.S.) (Art.9). 10. Le « Certificate of Master’s Degree in Computer Engineering », décerné à NIYONSABA Eric par « Dong-Eui University » en Corée du Sud, équivaut au Diplôme de Mastère (Art l 0). 11. Le Diplôme de «Bachelor of Business Administration» décerné à NSHIMIRINANA Alice par « The Saint Augustine University of Tanzania » en Tanzanie, équivaut au Diplôme de Baccalauréat (Art 11). 12. Le « Advanced Diploma of Theology », décerné à MASABO Jean Jacques, par « Uganda Baptist Serninary » en Ouganda, équivaut au Diplôme des Humanités Techniques A2 (Art.12). 13. Le «International General Certificate of Secondary Education », décerné à Evelyne-Cynthia KABUSHEMEYE SHAKA, par «Sandford International School Addis Abeba » en Ethiopie, en collaboration avec l’Université de Cambridge, équivaut au Diplôme d’Etat (Art. 13).
+
+Fait à Bujumbura, le 11/06/2018 Le Ministre de l’Enseignement Supérieur et de la Recherche Scientifique, Dr. Gaspard BANYANKIMBONA (sé).
