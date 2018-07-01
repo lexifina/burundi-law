@@ -1,0 +1,3 @@
+# Article 4
+
+Sont nommés au grade de Major à la date du 1er juillet 2018 les Officiers dont les noms suivent : Capitaine BIBANZA JEAN SS1304 Capitaine NSAZIYINKA EMERY SS1906 Capitaine NIBARUTA JEAN SS2104 Capitaine HAKIZIMANA PASCAL SS1416 Capitaine BAHANDWA VENANT SS1487 Capitaine KAGABO FRANCOIS SS1516 Capitaine NAHIGOMBEYE ONESPHORE SS1520 Capitaine KANUGWE LEONCE SS1537 Capitaine MBONIMPA CLAUDE SS1551 Capitaine MASUMBUKO JEAN CLAUDE SS1570 Capitaine KABURA ARON SS1586
