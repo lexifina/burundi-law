@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés membre de la commission interministérielle, les personnes dont les noms suivent: 1. Dr. Joseph NYANDWI, Enseignant à la Faculté de Médecine de l’Université du Burundi 2. Dr. Sébastien MANIRAKIZA, Enseignant à la Faculté de Médecine de l’Université du Burundi 3. Dr Elysée BARANSAKA, Enseignant à la Faculté de Médecine de l’Université du Burundi 4. Dr MINANI Isaac, Directeur Général des Services de Santé et de la Lutte contre le Sida 5. Dr NIMBURANIRA Marc, Directeur Général de l’Hôpital Militaire de KAMENGE 6. Dr KAZIHISE Pierre Claver, Directeur Général de l’Institut National de Santé Publique 7. Dr NDIKUMANA Rémy, Directeur Adjoint Chargé des Soins à l’Hôpital Militaire de KAMENGE
