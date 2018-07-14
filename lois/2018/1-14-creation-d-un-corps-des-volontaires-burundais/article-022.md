@@ -1,0 +1,3 @@
+# Article 22
+
+Pendant la durée de sa mission, le volontaire burundais ne peut exercer à temps plein aucune autre activité de quelque nature que ce soit. Ingingo ya 22 Mu kiringo aranguramwo imirimo ashinzwe, uwukora ibikorwa vy’ukwitanga w’umurundi ntashobora kugira ikindi gikorwa akora uko coba kimeze kwose mu mwanya wose w’akazi. Lorsque l’exercice d’activités accessoires est de nature à compromettre l’exécution de la mission de volontariat, le volontaire doit demander au préalable une autorisation de la structure d’accueil. Mu gihe ukurangura ibindi bikorwa vyoshobora kubangamira irangurwa ry’umurimo ajejwe, uwukora ibikorwa vy’ukwitanga ategerezwa kubanza kubisabira uruhusha ikigo akoreramwo.

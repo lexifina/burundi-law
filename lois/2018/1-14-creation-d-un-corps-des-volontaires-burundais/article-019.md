@@ -1,0 +1,3 @@
+# Article 19
+
+Le volontaire burundais doit s’abstenir d’exiger de la structure d’accueil ou d’autres personnes en rapport avec sa mission de volontariat, une contrepartie quelle qu’en soit la nature. Il ne peut avoir par lui-même ou par personne interposée, des actions ou des parts sociales dans la structure où il exerce la mission de volontariat. Ingingo ya 19 Uwukora ibikorwa vy’ukwitanga w’umurundi ategerezwa kwirinda gusaba ikigo akoreramwo canke abandi bantu bafitaniye isano n’umurimo wiwe w’ukwitanga, impembo iyo ari yo yose ku bikorwa aba yaranguye bijanye n’ukwitanga. Ntashobora kuba afise we nyene ubwiwe canke biciye ku wundi muntu, imitahe canke imigabane y’imitahe mu kigo akoreramwo ibikorwa vy’ukwitanga.

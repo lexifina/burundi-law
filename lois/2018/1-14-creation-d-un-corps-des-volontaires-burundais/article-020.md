@@ -1,0 +1,3 @@
+# Article 20
+
+Le volontaire burundais est tenu de respecter les droits, les convictions et les opinions des bénéficiaires de sa mission. Il doit, en toutes circonstances, assurer la mission de volontariat en toute impartialité, neutralité et se garder de toute attitude discriminatoire. Ingingo ya 20 Uwukora ibikorwa vy’ukwitanga w’umurundi ategerezwa kwubahiriza uburenganzira bw’abo ariko ararangurira ibikorwa vy’ukwitanga, ivyo bemera n’ivyiyumviro vyabo. Ategerezwa, mu bihe ivyo ari vyo vyose, kurangura ibikorwa vy’ukwitanga acisha aho ukuri kuri; ata na hamwe ahengamiye kandi akirinda n’inyifato yose y’ukuvangura.

@@ -1,0 +1,3 @@
+# Article 29
+
+L’acte d’engagement peut être rompu à l’initiative du volontaire burundais ou de la structure d’accueil sous réserve du respect d’un délai de préavis d’un mois. Toutefois, si la rupture a pour objet de permettre au volontaire burundais d’être immédiatement embauché, le délai de préavis est ramené à une semaine. Ingingo ya 29 Urwandiko rw’amasezerano y’ukwiyemeza gukora ibikorwa vy’ukwitanga rurashobora guhagarikwa bivuye ku wukora ibikorwa vy’ukwitanga w’umurundi canke ku kigo akoreramwo ari uko hubahirijwe ikiringo c’uguteguza kingana n’ukwezi kumwe. Ariko, iyo uguhagarika urwo rwandiko bifise intumbero yo gutuma uwukora ibikorwa vy’ukwitanga w’umurundi aca aronka akazi ubwo nyene, ico kiringo c’uguteguza kiragabanywa gushika ku ndwi imwe.

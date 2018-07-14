@@ -1,0 +1,3 @@
+# Article 7
+
+Une ordonnance ministérielle, au regard des spécificités exigées par la mission de volontariat, détermine d’autres critères en complément des critères prévus à l’article 6. Ingingo ya 7 Itegeko nshikiranganji, hisunzwe ivyo umurimo w’ugukora ibikorwa vy’ukwitanga usaba, riratomora ibindi bifatirwako vyunganira ibifatirwako bitegekanijwe mu ngingo ya 6. Paragraphe 2 Des droits et des devoirs du volontaire burundais Agahimba ka Ivyo uwukora ibikorwa vy’ukwitanga w’umurundi afitiye uburenganzira n’ivyo ategerejwe Sous-paragraphe 1er Des droits du volontaire burundais Agace k’agahimba ka mbere Ivyo uwukora ibikorwa vy’ukwitanga w’umurundi afitiye uburenganzira

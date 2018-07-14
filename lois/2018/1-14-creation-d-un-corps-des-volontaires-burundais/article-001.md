@@ -1,0 +1,3 @@
+# Article 1
+
+La présente loi a pour objet la création d’un Corps des Volontaires Burundais « CVB» et d’un Centre National du Volontariat du Burundi « CNVB » qui le gère. Ingingo ya mbere Iri bwirizwa rifise intumbero y’ugushinga Urwego rw’abakora ibikorwa vy’ukwitanga b’Abarundi, mu mpfunyapfunyo y’igifaransa "CVB" n’Ikigo c’igihugu kijejwe ibikorwa vy’ukwitanga mu Burundi, mu mpfunyapfunyo y’igifaransa "CNVB" akaba ari co kirutunganya L’organisation, les missions et le fonctionnement de ce Centre sont determines par décret. Ingene ico Kigo gitunganywa, imirimo yaco n’ingene gikora bitomorwa n’itegeko ry’Umukuru w’Igihugu.

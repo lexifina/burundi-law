@@ -1,0 +1,3 @@
+# Article 30
+
+En cas de faute lourde commise par le volontaire burundais ou par la structure d’accueil et constatée par la Commission interne de conciliation mise en place par le Centre National du Volontariat, l’acte d’engagement peut être rompu sans l’observation du délai de préavis. Ingingo ya 30 Mu gihe uwukora ibikorwa vy’ukwitanga w’umurundi akoze ikosa rihambaye canke rikozwe n’ikigo akoreramwo bikemezwa n’Umugwi w’ikigo akoreramwo ujejwe gutatura amatati ushirwaho n’Ikigo c’igihugu kijejwe ibikorwa vy’ukwitanga, urwandiko rw’amasezerano y’ukwiyemeza gukora ibikorwa vy’ukwitanga rurashobora guhagarikwa hatarinze kwubahirizwa ikiringo c’uguteguza.
