@@ -1,0 +1,3 @@
+# Article 3
+
+Pour les autres contributions indispensables non évoquées à l’article 2, les directions des écoles publiques et privées à tous les niveaux, doivent collaborer avec les comités de gestion des écoles et assemblées générales des parents d’élèves en vue d’arrêter des stratégies appropriées de mobilisation des fonds nécessaires. Toutefois, tout projet relatif aux contributions ci-haut énoncées doit être validé par le comité provincial de l’Education et autorisé par les Ministres concernés. Aucune contribution ne peut être demandée comme frais de renfoncement- encadrement et d’inscription des élèves.
