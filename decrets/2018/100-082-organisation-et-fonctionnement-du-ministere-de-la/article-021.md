@@ -1,0 +1,3 @@
+# Article 21
+
+De la Direction de la Coordination des Organisations des Jeunes La Direction de la Coordination des Organisations des Jeunes a pour missions de : - Donner aux jeunes une éducation civique dans la gestion et la pratique de la démocratie active et participative en collaboration avec les acteurs publics et privés concernés; - Mobiliser et sensibiliser les jeunes à la consolidation de la paix, aux droits de la personne humaine et du genre en général et des jeunes en particulier, aux travaux de développement du pays, avec les acteurs publics et privés concernés; - Constituer une base de données, régulièrement actualisée, sur la catégorisation des jeunes afin d’orienter rationnellement les interventions en faveur des jeunes.

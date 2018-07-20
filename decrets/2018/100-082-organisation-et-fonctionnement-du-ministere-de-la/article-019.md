@@ -1,0 +1,3 @@
+# Article 19
+
+De la Direction des Centres pour Jeunes et la promotion des TIC La Direction des Centres pour Jeunes a pour missions de : - assurer le bon fonctionnement des centres pour jeunes; - permettre aux jeunes en général et les jeunes ruraux en particulier, d’accéder aux TIC pour leur épanouissement et auto-développement; - encadrer rationnellement les jeunes par les activités socio-sportives et culturelles en collaboration avec d’autres structures publiques et privées concernées; - développer les compétences des jeunes pour faire face aux situations de risque; - permettre aux jeunes d’accéder aisément aux structures offrant des conseils sur la santé et l’entreprenariat.

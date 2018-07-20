@@ -1,0 +1,3 @@
+# Article 16
+
+De la Direction des Infrastructures TIC La Direction des Infrastructures TIC est chargée notamment de : - participer à l’élaboration des politiques sectorielles de développement des infrastructures TIC et des ressources humaines nécessaires pour leur mise en œuvre; - participer à la mise à jour régulière du cadre institutionnel et réglementaire favorable au développement des TIC en collaboration avec le Régulateur du Secteur; - participer à l’établissement des cadres de politique générale pour un accès au service universel des TIC; - suivre la mise en œuvre des projets de Modernisation et d’Extension des Réseaux des TIC; - organiser et encadrer les Opérateurs Privés et Publics du Secteur des TIC.

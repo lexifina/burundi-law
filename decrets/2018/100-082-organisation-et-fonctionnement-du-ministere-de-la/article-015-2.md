@@ -1,0 +1,3 @@
+# Article 15 2
+
+La Direction Générale de la Protection Civile et de la Gestion des Catastrophes est chargée de: - élaborer une stratégie nationale de prévention des risques et de gestion des catastrophes; - élaborer et mettre en œuvre les plans de contingence; - organiser et coordonner les opérations de prévention et de secours; - renforcer les capacités opérationnelles de gestion des catastrophes; - coordonner l’action contre les mines et les autres engins non explosés; - assurer la coordination de la prévention des risques et de la gestion des catastrophes; - coordonner et contrôler l’exécution de la politique nationale en matière de réduction des risques et de gestion des catastrophes.

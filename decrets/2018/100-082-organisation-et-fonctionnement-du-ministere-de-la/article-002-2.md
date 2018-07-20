@@ -1,0 +1,3 @@
+# Article 2 2
+
+Pour réaliser ses missions, le Ministère de la Sécurité Publique et de la Gestion des Catastrophes dispose de : - une Coordination d’un Cabinet ministériel; - un Secrétariat Permanent; - une Inspection Générale de la Police Nationale du Burundi; - une Inspection Générale de la Sécurité Publique et de la Gestion des Catastrophes; - une Direction Générale de l’Administration et de la Gestion; - une Direction Générale de la Planification et des Etudes Stratégiques; - une Direction Générale de la Protection Civile et de la Gestion des Catastrophes; - une Direction Générale de l’Hôpital de la Police Nationale du Burundi; - une Commission Nationale Permanente de Lutte contre la Prolifération des Armes Légères et de Petit Calibre.

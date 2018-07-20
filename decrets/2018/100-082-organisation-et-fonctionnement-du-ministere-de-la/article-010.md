@@ -1,0 +1,3 @@
+# Article 10
+
+Le Service chargé de l’Administration et des Finances a la mission de: - Tenir à jour les dossiers du personnel; - traiter les correspondances administratives concernant le personnel; - accueillir le personnel et écouter ses doléances; - assurer la liaison avec l’Inspection du Travail, la Fonction Publique, la Mutuelle, l’ONPR et l’INSS; - veiller à l’élaboration et au suivi de l’exécution budgétaire; - assurer la gestion financière; - suivre les opérations d’approvisionnement; - dresser les rapports financiers; - gérer les pièces comptables. Paragraphe 3 Du Service chargé de l’Audit Interne

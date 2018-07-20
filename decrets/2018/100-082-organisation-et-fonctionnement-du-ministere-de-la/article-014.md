@@ -1,0 +1,3 @@
+# Article 14
+
+La cellule chargée des Statistiques, de la Planification et du Suivi- évaluation a pour missions de : - planifier les activités du Ministère; - élaborer les plans de développement économiques et sociaux du secteur des TIC; - participer à l’élaboration et l’étude des politiques, programmes et projets sectoriels de développement économique et social ainsi que l’étude de leur financement et le suivi de leur exécution; - entreprendre les études nécessaires pour l’élaboration et le suivi des programmes de développement; - concevoir, administrer, configurer et mettre en œuvre l’exploitation des données; - promouvoir la recherche dans le domaine de la Statistique. Paragraphe 8 De la Direction Générale des Technologies de l’Information et de la Communication

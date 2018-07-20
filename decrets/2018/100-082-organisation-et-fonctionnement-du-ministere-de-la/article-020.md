@@ -1,0 +1,3 @@
+# Article 20
+
+De la Direction de l’Insertion Economique et de l’Entreprenariat des Jeunes La Direction de l’Insertion Economique et de l’Entreprenariat des Jeunes a pour missions de : - accompagner et soutenir les initiatives des jeunes en matière de promotion de l’entreprenariat des jeunes; - promouvoir et développer les centres de formation aux métiers en faveur des jeunes non scolarisés, déscolarisés, démobilisés, vulnérables et vivant avec le handicap en collaboration avec les partenaires et d’autres institutions publiques et privées concernées; - appuyer les initiatives des jeunes visant leur auto-prise en charge; - assister techniquement les organisations des jeunes dans la formulation de microprojets et l’élaboration des demandes de financement.
