@@ -1,0 +1,3 @@
+# Article 37
+
+Les Administrations Personnalisées sous l’autorité du Ministère des Finances, du Budget et de la Coopération au Développement sont les suivantes: - la Banque de la République du Burundi (BRB) ; - l’Office Burundais des Recettes(OBR) ; - le Fonds d’Impulsion, de Garantie et d’Accompagnement (FIGA); - l’Autorité de Régulation des Marchés Publics (ARMP) - l’Agence pour la Promotion des Investissements (API) ; - l’Agence de Régulation et de Contrôle des Assurances (ARCA) ; - l’Agence d’Appui à la Réalisation des Contrats de Partenariat Public- Privé (ARCP) ; - la Loterie Nationale (LONA) ; - l’Institut Supérieur de Gestion des Entreprises (ISGE) ; - l’Institut des Statistiques et des Etudes Economiques du Burundi (ISTEEBU) ;

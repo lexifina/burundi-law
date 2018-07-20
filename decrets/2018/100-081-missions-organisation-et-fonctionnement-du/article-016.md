@@ -1,0 +1,3 @@
+# Article 16
+
+La Direction Générale des Finances Publiques La Direction Générale des Finances Publiques comprend une Direction de la Comptabilité Publique et du Trésor, une Direction de la politique fiscale et une Direction de la Dette. Elle a notamment pour tâches de : - contribuer, par une saine gestion des finances publiques, au - développement économique et social; - assurer la mission d’ordonnateur de l’ensemble des dépenses de l’Etat; - assurer l’équilibre financier interne et externe du pays et en particulier promouvoir l’épargne; - superviser l’ensemble des activités engageant financièrement l’Etat.

@@ -1,0 +1,3 @@
+# Article 27
+
+La Direction Générale de l’Economie La Direction Générale de l’Economie comprend une Direction de l’Economie, une Direction d’Appui au Développement du Secteur Privé et une Direction de la Veille des Entreprises publiques. Elle a notamment pour missions de : - Concevoir et coordonner la mise en exécution de la politique financière et monétaire du Gouvernement; - Proposer la mise à jour de la politique des réformes des sociétés à participation publique; - Participer à la promotion du secteur privé; - Faire la promotion de l’investissement étranger au Burundi; - Elaborer et assurer le suivi des projets d’investissement du Ministère.

@@ -1,0 +1,3 @@
+# Article 14
+
+De la Direction des Finances La Direction de l’Administration et des Finances a pour missions notamment de: - préparer et négocier le Budget du Ministère et en assurer le suivi et l’exécution ; - élaborer et assurer le suivi des projets d’investissement du Ministère; - assurer en collaboration avec la cellule de Gestion des marchés publics, le respect des procédures de passation de marchés publics; - concevoir et mettre en œuvre en concertation avec les Directions Générales la politique de développement des technologies de l’information et de la communication; - produire les rapports d’activités de la Direction de l’Administration et des Finances.
