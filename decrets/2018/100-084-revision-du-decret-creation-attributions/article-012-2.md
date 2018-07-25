@@ -1,0 +1,3 @@
+# Article 12 2
+
+L’accès aux micro-données est autorisé lorsque celles-ci ont déjà fait l’objet de traitement, d’analyse et de publication d’au moins un rapport définitif. Ingingo ya 12 Inkuru zikiri uko zatororokanijwe zitangwa igihe zamaze gutunganywa, kwihwezwa kandi zimaze kugirirwa n’imiburiburi icegeranyo ntabanduka. L’accès aux micro-données des enquêtes et des Inkuru ku kintu zikiri uko zatorokanijwe recensements prend cours respectivement à partir de trois mois et d’une année dès la publication du rapport final zerekeye amatohoza umuntu ashobora kuzironka haciye amezi atatu, izerekeye urusansuma na zo, haciye umwaka umwe icegeranyo ntabanduka kimaze gusohorwa.

@@ -1,0 +1,5 @@
+# Article 4
+
+Placé sous la Haute Autorité du Deuxième Vice
+
+- Président de la République, le Conseil comprend les membres suivants: - le Ministre ayant l’intérieur et/ou le développement local dans ses attributions; - le Ministre ayant les finances et fou la planification dans ses attributions; - le Ministre ayant le commerce dans ses attributions; - le Ministre ayant l’éducation et/ou recherche scientifique dans ses attributions; - le Ministre ayant la santé publique dans ses attributions; - le Ministre ayant la fonction publique dans ses attributions; - le Ministre ayant l’agriculture dans ses attributions; - le Ministre ayant la justice dans ses attributions; - le Conseiller Principal chargé des questions économiques à la Présidence de la République; - le Conseiller Principal chargé des questions économiques à la Première Vice - Présidence de la République; - le Conseiller Principal chargé des questions économiques à la Deuxième Vice -Présidence de la République; - un représentant de la Chambre Fédérale de Commerce, d’Industrie, d’Agriculture, et d’Artisanat.

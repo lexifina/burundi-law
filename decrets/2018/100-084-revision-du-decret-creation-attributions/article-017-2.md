@@ -1,0 +1,3 @@
+# Article 17 2
+
+L’ISTEEBU doit classer les micro- données et les données selon leur niveau de sensibilité et de risque, en tenant compte du cadre juridique du Burundi sur la liberté d’information et la protection des données, des accords contractuels et des considérations d’éthique. Ingingo ya 17 Ikigo ISTEEBU gitegerezwa gushingura inkuru zikiri uko zatororokanijwe n’ivyatororokanijwe muri rusangi hisunzwe ingene ari inkoramutima n’ivyozishikira zigashingurwa hakurikijwe amategeko y’Uburundi agenga ibijanye n’uburenganzira bw’ukuronka inkuru n’ugukingira ivyatororokanijwe, ivyapfunditswe mu masezerano hamwe n’ivyihwejwe bijanye n’akarangamutima.

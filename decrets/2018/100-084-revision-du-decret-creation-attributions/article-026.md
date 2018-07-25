@@ -1,0 +1,3 @@
+# Article 26
+
+Les dispositions antérieures contraires au présent décret sont abrogées.

@@ -1,0 +1,3 @@
+# Article 20 2
+
+Toute personne physique ou morale peut soumettre une demande de micro- données et les données qui ont été collectées, analysées et archivées dans la base de données de l’ISTEEBU. Ingingo ya 20 Umuntu wese canke ishirahamwe arashobora gusaba inkuru zikiri uko zatororokanijwe n’ivyatororokanijwe muri rusangi vyegeranijwe, vyihwejwe bikongera bigashingurwa mw’iyegeranirizo ry’ivyatororokanijwe ry’Ikigo ISTEEBU. Pour les micro-données, l’utilisateur doit fournir un résumé de l’exploitation qu’il entend en faire et lister les variables qui l’intéressent. Mu gusaba inkuru zikiri uko zatororokanijwe, uwukeneye kuzikoresha ategerezwa gutanga incamake y’ico agomba kuzikoresha n’ukugira urutonde rw’izo akeneye.
