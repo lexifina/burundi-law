@@ -1,0 +1,5 @@
+# Article 13
+
+Les Institutions paraétatiques sous tutelle du Ministère des Transports, des Travaux Publics, de l’Equipement et de l’Aménagement du Territoire sont les suivantes: - l’Office des Routes (OdR); - l’Agence de Location du Matériel (ALM); - le Fonds Routier National (FRN); - le Laboratoire National du Bâtiment et des Travaux Publics (LNBTP); - l’Agence Burundaise pour la réalisation de Travaux d’Intérêt Public (ABUTIP); - l’Office des Transports en Commun (OTRACO); - Air Burundi; - l’Autorité de l’Aviation Civile du Burundi (AACB); - la Société Burundaise de Gestion Aéroportuaire (SOBUGEA); - l’Autorité Maritime, Portuaire et Ferroviaire (AMPF); - Global Port Services Burundi (GPSB); - le Cadastre National (CN); - l’Encadrement des Constructions Sociales et l’Aménagement des Terrains (ECOSAT); - le Fonds pour la Promotion de l’Habitat Urbain (FPHU); - la Société Immobilière Publique (SIP). Chaque Institution est régie par un texte spécifique.
+
+Chapitre III Des attributions Section 1 Du Cabinet du Ministre

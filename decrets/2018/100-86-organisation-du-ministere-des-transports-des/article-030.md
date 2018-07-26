@@ -1,0 +1,3 @@
+# Article 30
+
+La Direction de la Gestion Urbaine est chargée de : - assurer dans les centres urbains, la gestion du patrimoine foncier conformément aux outils de planification urbaine en concertation avec les autres services techniques concernés; - assurer le suivi et le contrôle des implantations des infrastructures publiques et/ou privées, conformément au règlement particulier d’occupation des sols; - instruire les dossiers de demande et d’attribution de parcelles ainsi que les permis de bâtir en collaboration avec les services techniques concernés; - vérifier la conformité des constructions par rapport au permis de bâtir délivré; - suivre les orientations de la mise en œuvre du Plan Directeur innovant de la ville de Bujumbura et ses alentours, Vision 2045.

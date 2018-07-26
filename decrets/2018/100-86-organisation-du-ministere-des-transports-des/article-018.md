@@ -1,0 +1,3 @@
+# Article 18
+
+La Direction des Infrastructures a pour missions principales de: - coordonner les activités d’implantation et de construction des infrastructures immobilières, routières, ferroviaires, portuaires, agricoles, minières, aéroportuaires, hydrauliques et des pipelines, en collaboration avec les services concernés; - préparer les fiches de projets pour le financement des infrastructures; - définir une stratégie pour inciter le secteur privé à investir dans le domaine des infrastructures; - suivre les orientations de la mise en œuvre du Plan Directeur innovant de la ville de Bujumbura et ses alentours, Vision 2045.

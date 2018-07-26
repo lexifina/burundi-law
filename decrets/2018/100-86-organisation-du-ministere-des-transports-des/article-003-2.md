@@ -1,0 +1,3 @@
+# Article 3 2
+
+Les services de l’Administration Centrale comprennent: - la Coordination du Cabinet du Ministère; - le Secrétariat Permanent ; - la Direction Générale de la Planification Environnementale, Agricole et de l’Elevage; - la Direction Générale de la Mobilisation pour l’Auto-développement et la Vulgarisation Agricole; - la Direction Générale de l’Agriculture; - la Direction Générale de l’Elevage; - la Direction Générale de l’Environnement, des Ressources Eau et de l’Assainissement; - la Direction Générale des Ressources; - l’Inspection Générale du Ministère de l’Environnement, de l’Agriculture et de l’Elevage.
