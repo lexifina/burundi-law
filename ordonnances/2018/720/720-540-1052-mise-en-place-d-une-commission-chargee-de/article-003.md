@@ -1,0 +1,3 @@
+# Article 3
+
+Les membres de cette commission sont: 1. Monsieur Désire NIZIGIYIMANA, Directeur général du Bâtiment au Ministère des Transports, des Travaux Publics, de l’Equipement et de l’Aménagement du territoire; 2. Monsieur Michel NDARUZI, Directeur de la Planification et de la gestion immobilière au Ministère des Transports, des Travaux Publics, de l’Equipement et de l’Aménagement du territoire; 3. Monsieur Jean Bosco NKURUNZIZA, Chef de Service logement Ministère des Transports, des Travaux Publics, de l’Equipement et de l’Aménagement du territoire; 4. Monsieur Gérard NIYOKWIZIGIRA, Conseiller au Bureau de la Planification et Suivi-Evaluation du Ministère des Finances, du Budget et de la Coopération au Développement Economique.
