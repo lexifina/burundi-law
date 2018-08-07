@@ -1,0 +1,3 @@
+# Article 3 4
+
+En plus des missions contenues dans la Décision Ministérielle n°570/11/CAB/2016 du 03/11/2016, la commission est notamment chargée de: 1. Suivre quotidiennement l’étude sur l’élaboration d’une politique salariale équitable dans l’administration publique burundaise, 2. Procéder à la validation du plan de travail des consultants, 3. Faciliter les contacts, 4. Valider les rapports produits par les consultants avant la transmission à qui de droit, 5. Veiller à la bonne organisation et au bon déroulement des activités et à la validation des rapports telles que prévues dans les termes de références.
