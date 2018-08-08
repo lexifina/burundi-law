@@ -1,0 +1,3 @@
+# Article 16
+
+L’Inspection Générale est chargée d’une mission de contrôle interne des services placés sous l’autorité ou la tutelle du Ministère. Elle est notamment chargée de: - effectuer le contrôle à posteriori de toutes les procédures de passation des marchés publics effectués par le Ministère tout en veillant au respect des dispositions du Code des Marchés Publics en vigueur; - assurer l’audit interne du Ministère ; - assurer un contrôle externe dans divers secteurs de la vie nationale en application de la réglementation concernant les domaines d’activité du Ministère; - coordonner les activités d’analyse et exploitation des rapports d’audit et d’inspection des entreprises sous tutelle; - faire régulièrement rapport au Ministre. 4. Des Directions Générales

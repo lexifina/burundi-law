@@ -1,0 +1,3 @@
+# Article 24
+
+Le Département de la Recherche et de la Vulgarisation des Technologies est chargé notamment de : - promouvoir la recherche et la Vulgarisation des Technologies artisanales; - collecter les technologies artisanales utilisées au Burundi, évaluer leurs performances et entreprendre leur amélioration; - identifier les technologies mises au point ailleurs et en informer les artisans en vue d’une éventuelle adaptation au Burundi; - vulgariser les technologies appropriées en collaboration avec les collectivités locales et les autres partenaires; - collaborer avec les autres services et institutions tant publics que privés menant des actions de recherches technologiques.
