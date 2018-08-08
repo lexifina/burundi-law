@@ -1,0 +1,3 @@
+# Article 18
+
+La Direction de la Gestion des Traitements est chargée de: - assurer le calcul des rémunérations des fonctionnaires et contractuels de la Fonction Publique ainsi que des autres catégories d’agents publics dont la gestion financière lui est confiée; - régulariser les comptes à l’occasion de toute modification de la position des agents dont la gestion financière lui est confiée; - prendre en recettes les sommes indûment touchées et les retenues applicables aux rémunérations; - verser les cotisations réglementaires relatives à la sécurité sociale des agents dont la gestion financière lui est confiée; - assurer la collecte des données statistiques concernant les dépenses en rémunération des personnels susvisés.
