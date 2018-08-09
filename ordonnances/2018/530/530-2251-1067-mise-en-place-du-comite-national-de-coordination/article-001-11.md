@@ -1,0 +1,3 @@
+# Article 1 11
+
+Sont nommés membres de la commission chargée de l’élaboration d’un projet de loi portant révision de la loi n°1/007 du 30 juin 2003 portant Organisation et Fonctionnement du Conseil Supérieur de la Magistrature, les personnes dont les noms suivent: 1. Monsieur NGENDAKURIYO Pascal: Président de la Commission 2. Monsieur Giovani KWIZERA: Vice-Président 3. Monsieur Jean Bosco BUCUMI: Secrétaire 4. Monsieur Nicodème GAHIMBARE: membre 5. Madame Monique NAHIMANA: membre 6. Monsieur Nestor KAYOBERA: membre 7. Madame Sylvane BIZIMANA: membre 8. Monsieur Jean Claude NIYONGABO: membre 9. Madame Dévote SABUWANKA: membre 10. Monsieur Anatole NIZIGIYIMANA: membre 11. Monsieur Pierre NDAYISENGA: membre 12. Monsieur Claude NIMUBONA: membre
