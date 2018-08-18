@@ -1,0 +1,3 @@
+# Article 26
+
+La Direction de la Recherche Scientifique est chargée de: - promouvoir des publications de haute qualité scientifique; - organiser les archives et une bibliothèque scientifiques; - tenir et renouveler l’annuaire des capacités en recherche; - constituer un inventaire du système national de la recherche, de la science et la technologie; - diffuser les informations sur la recherche; - mettre en place et entretenir un réseau d’échanges de résultats et d’information en matière de recherche entre les institutions de recherche; - organiser des colloques et forums réguliers dans les axes prioritaires de la recherche.
