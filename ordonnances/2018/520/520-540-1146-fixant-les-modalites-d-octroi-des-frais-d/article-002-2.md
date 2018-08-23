@@ -1,0 +1,9 @@
+# Article 2 2
+
+Seuils de passation des Marchés Publics En application de l’article 6 du Code des Marchés Publics, il est passé un marché pour toute dépense de travaux, de fournitures, de prestations de services dont la valeur est égale ou excède les seuils suivants:
+
+a. Trente millions de francs burundais (Bif 30.000.000) hors TVA pour les marchés de Travaux passés par: 1. L’Etat, les administrations personnalisées, les établissements publics, les sociétés publiques, les autres organismes, agences ou offices créés par l’État ou les entités territoriales décentralisées pour satisfaire les besoins d’intérêt général, dotés ou non de la personnalité morale, dont l’activité est financée majoritairement par l’État ou qui bénéficient du concours financier ou de la garantie de l’État ou d’une collectivité; 2. Les personnes morales de droit privé agissant pour le compte de l’Etat, d’une collectivité territoriale décentralisée, d’une personne morale de droit public, d’un établissement public et de toute société à participation publique financièrement majoritaire, ou d’une association formée par une ou plusieurs de ces personnes morales de droit public; 3. Les personnes de droit privé, ou des sociétés mixtes à participation privée majoritaire, lorsque ces marchés bénéficient du concours financier ou de la garantie d’une personne morale de droit public, concernant les travaux; 4. Les personnes morales bénéficiant de droits spéciaux ou exclusifs.
+
+b. Douze millions cinq cent mille francs burundais (Bif 12.500.000) hors TVA pour les marchés de Fournitures passés par les Autorités Contractantes énumérées aux alinéas précédents;
+
+c. Dix millions de francs burundais (Bif 10.000.000) hors TVA pour les marchés de Services passés par les Autorités Contractantes énumérées aux alinéas précédents.

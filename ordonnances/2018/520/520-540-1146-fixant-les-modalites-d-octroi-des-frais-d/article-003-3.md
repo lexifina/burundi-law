@@ -1,0 +1,3 @@
+# Article 3 3
+
+Demande de cotation Sous réserve des seuils relatifs aux acquisitions de prestations qui donnent lieu à un règlement sur facture, pour les marchés dont les montants hors taxes sont situés en dessous des seuils définis à l’article 2, l’Autorité Contractante met en compétition, au moyen d’une demande de cotation écrite, au moins cinq (05) candidats susceptibles d’exécuter lesdits marchés, conformément à l’article 110 du Code des Marchés Publics. L’Autorité Contractante classe les prix offerts et, en cas d’attribution du marché, indique les critères d’évaluation utilisés pour désigner l’attributaire et par comparaison avec des marchés similaires antérieurs ou des informations obtenues auprès de la banque des données de prix nationale et internationale.
