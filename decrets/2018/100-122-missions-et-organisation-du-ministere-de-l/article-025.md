@@ -1,0 +1,3 @@
+# Article 25
+
+Le Comité paritaire de suivi et d’évaluation du Partenariat Public et Privé en matière d’Enseignement, de Formation Technique et Professionnelle pour une meilleure adéquation Formation-Emploi est chargé de : - assurer la bonne exécution de la Convention Cadre de Partenariat; - donner les grandes orientations stratégiques en matière d’enseignement, de formation technique et professionnelle ainsi qu’en matière d’adéquation formation-emploi; - proposer chaque fois que de besoin, des textes réglementaires relevant de son domaine de compétence; - assurer la bonne gestion des ressources allouées dans le cadre de l’exécution de la Convention Cadre de Partenariat.

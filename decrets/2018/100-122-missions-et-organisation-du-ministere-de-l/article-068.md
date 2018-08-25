@@ -1,0 +1,3 @@
+# Article 68
+
+Dans le domaine de la « gestion financière », le Directeur Communal de l’Education, de la Formation Technique et Professionnelle est habilité à : - superviser et centraliser les prévisions budgétaires des écoles et des centres de formation de son ressort ; - veiller à la conformité aux normes dans l’exécution des budgets alloués aux écoles et aux centres de formation de la commune; - veiller à la bonne gestion des finances des écoles et centres de formation et de leur patrimoine; - organiser des campagnes de mobilisation des financements du secteur de l’éducation et de la formation dans la commune.

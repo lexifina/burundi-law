@@ -1,0 +1,3 @@
+# Article 69
+
+Dans le domaine pédagogique, le Directeur Communal de l’Education, de la Formation Technique et Professionnelle est chargé de : - concevoir des stratégies d’amélioration des conditions d’apprentissage dans les établissements de son ressort; - mettre en place des mesures appropriées pour corriger les lacunes constatées ; - initier des projets d’acquisition de manuels scolaires et autres matériels didactiques; - sensibiliser et conscientiser les communautés pour l’inscription de tous les enfants en âge scolaire; - sensibiliser et conscientiser les communautés des enseignants et formateurs pour la réduction du taux de redoublement; - exploiter les résultats de l’éducation et de la formation dans le but d’améliorer les performances dans la commune.

@@ -1,0 +1,3 @@
+# Article 55
+
+Dans le cadre financier, le Directeur Provincial de l’Education, de la Formation Technique et Professionnelle est appelé à: - gérer les ressources allouées à la Direction Provinciale de l’Education, de la Formation Technique et Professionnelle; - organiser des campagnes de mobilisation des financements du secteur de l’éducation, de la formation technique et professionnelle dans la province; - veiller à la conformité des normes d’exécution des budgets alloués aux directions communales de la province; - s’assurer du bon fonctionnement des comités de gestion dans les établissements de son ressort; - mettre en place une stratégie pour la maintenance des infrastructures et la bonne tenue des manuels scolaires et autres ressources pédagogiques.

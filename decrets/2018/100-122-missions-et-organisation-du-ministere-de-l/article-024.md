@@ -1,0 +1,3 @@
+# Article 24
+
+Le Comité de pilotage de l’Enseignement Technique, de la Formation Professionnelle et des Métiers est chargé de : - conduire toutes les initiatives visant à redynamiser constamment l’Enseignement Technique et de la Formation Professionnelle et l’Enseignement des Métiers au Burundi; - déterminer les indicateurs de développement du secteur de l’Enseignement Technique et de la Formation Professionnelle et des Métiers qui nécessitent une amélioration et indiquer les pistes de leur amélioration; - analyser, valider et superviser la mise en œuvre des réformes proposées dans le secteur de l’enseignement et de la formation technique et professionnelle.

@@ -1,0 +1,3 @@
+# Article 32
+
+L’Inspection Principale de l’Enseignement Fondamental est chargée de: - superviser les activités des Directions Provinciales de l’Education, de la Formation Technique et Professionnelle en matière d’inspection de l’enseignement fondamental; - renforcer les capacités des structures déconcentrées en matière de contrôle des normes; - participer aux travaux d’évaluation de fin du cycle fondamental; - informer les services concernés des lacunes constatées et proposer des voies de remédiation en vue d’améliorer qualitativement la formation dans les établissements d’enseignement fondamental; - mener des études en vue d’améliorer les pratiques d’inspection à l’enseignement fondamental; - veiller au respect des normes en matière d’Alphabétisation des Adultes.

@@ -1,0 +1,3 @@
+# Article 45
+
+La Direction de l’Education Préscolaire et de la Petite Enfance est chargée de: - participer à l’élaboration et suivre l’exécution de la Politique Nationale en matière d’Enseignement Préscolaire; - organiser et coordonner les activités de l’Enseignement Préscolaire tant public que privé; - concevoir et produire, en collaboration avec les services concernés, les matériels des Ecoles Maternelles en tenant compte de la diversité des apprenants; - diffuser et assurer le suivi des instructions du Ministère dans les Ecoles Maternelles; - proposer des programmes d’actions et d’activités visant le développement, la protection et l’éveil de la Petite Enfance.

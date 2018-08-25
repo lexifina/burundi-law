@@ -1,0 +1,3 @@
+# Article 36
+
+La Direction Chargée du Personnel, des Services Administratifs, Techniques et d’Appui a pour missions de: - coordonner toutes les actions en rapport avec le recrutement et le mouvement du personnel au sein du Ministère; - exécuter la politique du Gouvernement en matière de développement et de renforcement des capacités des ressources humaines en ce qui concerne le personnel des services administratifs, techniques et d’appui au sein du Ministère; - suivre l’évolution de la carrière du personnel Administratif, Technique et d’Appui à tous les paliers en collaboration avec le Ministère en charge de la Fonction Publique; - assurer le suivi de la gestion du personnel des services administratifs, techniques et d’appui à tous les niveaux.
