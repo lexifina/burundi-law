@@ -1,0 +1,5 @@
+# Article 22
+
+Toute personne physique ou morale peut saisir la Commission pour tout acte posé par un membre de la Commission qui serait de nature à perturber la bonne marche des élections.
+
+La Commission traite le dossier et le transmet au Président de République pour une décision. En cas d’infraction, le Ministère Public s’en saisit après autorisation préalable de la Commission. En cas d’acte d’improbité ou d’omission commis par un membre de la Commission Electorale Communale Indépendante, la Commission Electorale Provinciale Indépendante prend la sanction qui s’impose. En cas d’acte d’improbité ou d’omission commis par un membre de la Commission Electorale Provinciale Indépendante, la Commission Electorale Nationale Indépendante prend la sanction qui s’impose.
