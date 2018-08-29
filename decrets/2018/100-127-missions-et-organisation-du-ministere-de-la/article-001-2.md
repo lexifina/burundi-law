@@ -1,0 +1,3 @@
+# Article 1 2
+
+Sont nommé Membres de la Commission Electorale Nationale Indépendante: 1. Dr Pierre Claver KAZIHISE : Président; 2. Madame Annonciate NIYONKURU : Vice-Président; 3. Monsieur Philippe NZOBONARIBA: Commissaire chargé de l’Education Electorale et de la Communication; 4. Ir Serges NDAYIRAGIJE: Commissaire chargé de l’Administration et des Finances; 5. Monsieur Jean Anastase HICUBURUNDI: Commissaire chargé des Opérations, de l’Informatique Electorale et de la Maintenance des Equipements; 6. Madame Hyacinthe NIYONZIMA: Commissaire chargé des Affaires Juridiques et du Contentieux Electoral; 7. Madame Marguerite KAMANA: Commissaire chargé de la Logistique Electorale et des Approvisionnements.

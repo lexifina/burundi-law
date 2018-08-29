@@ -1,0 +1,3 @@
+# Article 10
+
+La Cellule chargée de l’Audit Interne a pour mission de : 1. instaurer et renforcer la bonne gouvernance ; 2. faciliter l’accès aux informations pour une prise de décision objective et efficace du Ministère; 3. donner un compte rendu et! ou un rapport des travaux au Ministre; 4. garantir l’intégrité, la fiabilité, la confidentialité et la disponibilité des informations; 5. répertorier et détecter les informations nécessaires pour les travaux d’Audit; 6. suivre la mise en marche de l’exécution budgétaire; 7. avertir le Ministre des anomalies ou disfonctionnements constatés, en apportant les éclaircissements et informations nécessaires pour élucider les zones d’ombres obstruant les activités des entités auditées. Paragraphe 4 Du Secrétariat Permanent

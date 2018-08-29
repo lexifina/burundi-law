@@ -1,0 +1,3 @@
+# Article 16
+
+De la Direction de la Communication et des Relations Publiques La Direction de la Communication et des Relations Publiques a pour missions de : 1. assurer la visibilité du Ministère ; 2. permettre l’accès de tous au service public de la communication; 3. veiller aux relations avec les services extérieurs et faciliter la circulation de l’information; 4. développer les moyens de communication; 5. développer de bonnes relations avec les professionnels de la communication et le public en général; 6. répondre aux questions du public et déterminer les meilleurs outils d’action (affichage, télévision, radio, journaux, etc.); 7. promouvoir et maintenir les bonnes relations avec les partenaires.

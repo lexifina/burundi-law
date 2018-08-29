@@ -1,0 +1,3 @@
+# Article 15
+
+De la Direction du Site Web du Gouvernement La Direction du Site Web du Gouvernement est notamment chargée de : 1. collecter, traiter et diffuser, sur le Site du Gouvernement les informations des différents Ministères par le canal de leur porte-parole; 2. informer par ce canal, l’opinion tant nationale qu’internationale ainsi que la diaspora des principales activités gouvernementales; 3. encourager les Ministères à créer leurs propres sites, les alimenter régulièrement pour une meilleure information du public sur les activités sectorielles; 4. développer les liens entre le Site du Gouvernement et les Sites des Ministères; 5. contribuer au développement effectif de la stratégie du cyber - gouvernement.

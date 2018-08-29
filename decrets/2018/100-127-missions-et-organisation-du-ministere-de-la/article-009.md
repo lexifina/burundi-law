@@ -1,0 +1,3 @@
+# Article 9
+
+Le Service chargé de l’Administration et des Finances a pour missions de : 1. tenir à jour les dossiers du personnel; 2. traiter les correspondances administratives concernant le personnel; 3. accueillir le personnel et écouter ses doléances; 4. assurer la liaison avec l’Inspection du Travail, la Fonction Publique, la Mutuelle, l’ONPR et l’INSS ; 5. veiller à l’élaboration et au suivi de l’exécution budgétaire ; 6. assurer la gestion financière; 7. suivre les opérations d’approvisionnement; 8. dresser les rapports financiers; 9. gérer les pièces comptables; 10. établir le descriptif des emplois et de le gérer en liaison avec les autres services. Paragraphe 3 De la Cellule chargée de l’Audit Interne

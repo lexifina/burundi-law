@@ -1,0 +1,3 @@
+# Article 3 4
+
+La commission a pour missions de : 1. Etablir un calendrier des préparatifs du concours jusqu’à la publication des résultats; 2. Etablir les listes des candidats au concours; 3. Déterminer les centres et les salles de passation ainsi que les centres de correction du concours; 4. Arrêter les listes des surveillants et des correcteurs; 5. Superviser la passation et la correction des épreuves, la transcription des scores ainsi que leur saisie; 6. Procéder à la vérification systématique des scores après correction; 7. Traiter les recours et valider les résultats; 8. Produire le rapport final du déroulement des activités relatives au concours.
