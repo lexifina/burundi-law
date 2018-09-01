@@ -1,0 +1,25 @@
+# Article 16
+
+Sous l’autorité d’un Directeur Général, la Direction Générale de la Coordination des ONGs et de la Promotion des Libertés Publiques est chargée de:
+
+- élaborer et assurer la mise en œuvre de la politique nationale de la promotion des libertés publiques;
+
+- participer, en collaboration avec les autres ministères et organisations intéressées, à la protection et à la promotion des droits de la personne humaine et des libertés publiques dans les circonscriptions administratives;
+
+- veiller au respect de la législation en matière des partis politiques, des associations sans but lucratif et des confessions religieuses ;
+
+- enregistrer les Organisations Non Gouvernementales étrangères agrées par le Ministère ayant la Relation Extérieure et assurer la réglementation et le suivi de leurs activités sur le territoire national en collaboration avec les ministères techniques concernés;
+
+- veiller, en collaboration avec les ministères concernés à la gestion des ONGs;
+
+- coordonner, en collaboration avec les autres acteurs concernés, le cadre de concertation entre la société civile et le Gouvernement;
+
+- assurer le suivi des activités des associations sans but lucratif sur le territoire burundais en collaboration avec les ministères techniques concernés;
+
+- coordonner et assurer la répartition des actions de développement des organisations non gouvernementales locales et étrangères engagées en milieu rural, en collaboration avec les autres acteurs concernés ;
+
+- assister les administrations et les associations locales, en collaboration avec les autres services compétents dans la mobilisation et la gestion rationnelle des ressources nécessaires à la réalisation des projets productifs locaux;
+
+- animer un observatoire national de la société civile.
+
+- coordonner, contrôler et évaluer les activités des Directions sous sa dépendance.
