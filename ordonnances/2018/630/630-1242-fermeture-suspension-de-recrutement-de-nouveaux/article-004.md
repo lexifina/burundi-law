@@ -1,0 +1,3 @@
+# Article 4
+
+Sont suspendus à recruter les nouveaux élèves des premières années les sections des Ecoles Paramédicales suivantes: A. Section des Soins Infirmiers 1 Ecole Paramédicale de Buterere. 2 Ecole Paramédicale de Rugombo. B. Section des Techniques de Laboratoire 1 Ecole des Techniques de Laboratoire de Rugombo. 2 Ecole Paramédicale SAINT LUC. 3 Ecole Paramédicale SAINT HENRI de Muzinda. C. Section d’Assainissement 1 Institut Paramédical de Kigobe, D. Section de Nutrition 1 Ecole Panafricaine des Techniques Paramédicales de Bujumbura (EPTPB). 2 Ecole Secondaire Paramédicale et Technique de Kayanza (ESEPATEK). 3 Mercy Médical Institute de MUGOBOKA. 4 Ecole Paramédicale Jésus Marie Joseph de Muramvya.
