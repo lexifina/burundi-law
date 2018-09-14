@@ -1,0 +1,3 @@
+# Article 77
+
+Le Conseil National de la Communication peut adresser des mises en garde, suspendre ou interdire l’usage de la carte de presse ou de cinéaste, la circulation, la distribution ou la vente de journaux, de périodiques, la diffusion d’une émission, l’exploitation d’une station de radio ou de télévision ou d’une agence de presse quand ils ne se conforment pas à la loi. La décision du Conseil National de la Communication doit être dûment motivée et est susceptible de recours devant la Cour Administrative, après le recours préalable auprès du secrétariat d’instruction des plaintes du Conseil National de la Communication.

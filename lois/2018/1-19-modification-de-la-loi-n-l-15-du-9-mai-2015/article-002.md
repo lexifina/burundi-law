@@ -1,0 +1,3 @@
+# Article 2
+
+La présente loi s’applique aux personnes physiques ou morales qui mettent à la disposition du public des services en matière d’information et de communication sur le territoire de la République du Burundi, sans préjudice de l’application des règles relatives à l’occupation du domaine public. Sont inclus dans ce champ d’application tous les supports de communication que peut utiliser une entreprise, une institution, association ou collectivité pour faire passer son message couvrant notamment les entreprises de presse écrite, audiovisuelle et électronique ainsi que d’autres services y relatifs tels que le cinéma.

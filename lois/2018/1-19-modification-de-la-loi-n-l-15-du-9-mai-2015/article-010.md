@@ -1,0 +1,3 @@
+# Article 10
+
+Sont considérés comme assimilés ou auxiliaires aux professionnels de la communication, les collaborateurs qui participent directement et d’une façon permanente à la réalisation des divers programmes des organes de presse tels que la rédaction et les services techniques, à l’exclusion des agents de publicité et de tous ceux qui n’apportent qu’une collaboration occasionnelle quelle qu’en soit la forme. Une liste des professionnels agréés et des praticiens assimilés ou auxiliaires, selon la classification déterminée par le Conseil National de la Communication (CNC), est régulièrement mise à jour et transmise chaque trimestre au Ministre en charge des Médias.
