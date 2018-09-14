@@ -1,0 +1,3 @@
+# Article 13
+
+Le chargé du suivi évaluation est chargé de: 1 Participer à l’élaboration et actualisation des outils standards de planification et de suivi évaluation; 2 Participer à l’élaboration des rapports programmatiques consolidés; 3 Vérifier la conformité des termes de référence transmis par les partenaires et autres programmes de mise en œuvre avec les plans d’action et veiller à la promptitude et complétude de leurs rapports techniques d’activités exécutées; 4 Contribuer à la définition des indicateurs du cadre de performance des subventions de Gavi pour le Burundi, en collaboration avec les différents partenaires impliqués dans la mise en œuvre des activités du Projet; 5 Participer aux réunions d’analyse et de validation des données pour la prise des décisions.
