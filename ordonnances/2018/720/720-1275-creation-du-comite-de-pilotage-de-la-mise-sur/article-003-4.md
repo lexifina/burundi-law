@@ -1,0 +1,3 @@
+# Article 3 4
+
+Le comité d’Adjudication des Bons et Obligations du trésor est composée des représentants du Ministère ayant les Finances dans ses attributions, dont l’un en assure la présidence, et des représentants de la Banque de la République du Burundi dont l’un en assure le secrétariat. Elle est composée par: - Le Directeur Général des Finances Publiques: Président; - Le Chef de Service Marché monétaire à la BRB : Secrétaire; - Un cadre du Service Marché Monétaire à la BRB : Secrétaire Adjoint; - Le Directeur de la Dette: Membre; - Le Directeur de la Comptabilité Publique et du Trésor: Membre; - Le chef de Service Système de Paiement et Caissier de l’Etat à la BRB : Membre; - Le chef de Service Comptabilité à la BRB : Membre.
