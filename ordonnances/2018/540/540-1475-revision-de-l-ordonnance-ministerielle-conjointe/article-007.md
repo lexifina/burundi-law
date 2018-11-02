@@ -1,0 +1,3 @@
+# Article 7
+
+L'entreprise qui demande cet accord doit présenter les documents suivants: 1. Une lettre de demande adressée au Ministre en charge des Finances; 2. Une lettre de motivation indiquant la valeur ajoutée à l'économie nationale ainsi qu'une liste exhaustive des produits et matériels à importées dans le cadre de l'investissement en franchise fiscale de TVA à l'importation; 3. Une copie du certificat d'éligibilité aux avantages liés au code des investissements ou une copie du certificat de la zone franche délivré par l'autorité compétente; 4. Une copie du plan d'affaires; 5. Un certificat de conformité environnementale selon le type de projet; 6. Une licence d'exploitation selon le type de projet.
