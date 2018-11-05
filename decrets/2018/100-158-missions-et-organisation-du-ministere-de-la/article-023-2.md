@@ -1,0 +1,3 @@
+# Article 23 2
+
+A la fin de chaque trimestre, le Directeur Général soumet aux membres du Conseil d’Administration un rapport qui rend compte de la situation générale de l’Autorité, de l’exécution des décisions prises lors des réunions précédentes, des initiatives prises et de l’état d’exécution du budget par rapport aux prévisions. Deux mois avant la fin de l’exercice budgétaire, il présente au Conseil d’Administration son projet du budget prévisionnel pour l’exercice suivant. Après la clôture de l’exercice, il présente au Conseil d’Administration un rapport annuel de gestion faisant ressortir les comptes et le bilan de l’exercice écoulé.

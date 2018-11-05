@@ -1,0 +1,3 @@
+# Article 26 2
+
+Le patrimoine de l’Autorité de Régulation est constitué de: Tous les biens meubles et immeubles mis à sa disposition par l’Etat lors de son démarrage; Subventions budgétaires d’exploitation ou d’équipements émergeant des budgets annexes de l’Etat; Emprunts et des opérations financières nécessaires à la réalisation de sa mission; Subventions, dons, legs et libéralités d’origine interne ou externe offerts par les partenaires techniques et financiers de l’Etat; Redevances fixées, par voie réglementaire, perçues sur les activités mises sous son contrôle; Toutes les acquisitions propres jugées nécessaires à son fonctionnement ainsi que des apports ultérieurs que l’Etat et les partenaires extérieurs pourront lui consentir.
