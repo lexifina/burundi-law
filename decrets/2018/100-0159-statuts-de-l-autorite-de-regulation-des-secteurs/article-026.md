@@ -1,0 +1,3 @@
+# Article 26
+
+Le patrimoine de l'Autorite de Regulation est constitue de : Tous les biens meubles et immeubles mis a sa disposition par l'Etat lors de son demarrage ; Subventions budgetaires d'exploitation ou d'equipements emergeant des budgets annexes de l'Etat ; Emprunts et des operations financieres necessaires a la realisation de sa mISSIOn; Subventions, dons, legs et liberalites d'origine interne ou externe offerts par les partenaires techniques et financiers de l'Etat ; Redevances fixees, par voie reglementaire, per9ues sur les activites mises sous son controle ; Toutes les acquisitions propres jugees necessaires a son fonctionnement ainsi que des apports ulterieurs que l'Etat et les partenaires exterieurs pourront lui cons~ntir.
