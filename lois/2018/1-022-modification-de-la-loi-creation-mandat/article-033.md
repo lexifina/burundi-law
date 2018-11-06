@@ -1,0 +1,3 @@
+# Article 33
+
+La Commission recrute autant d’experts nationaux et internationaux que de besoin. Les experts peuvent être permanents ou à temps partiel. Ils doivent être des personnes jouissant d’une expérience avérée dans le domaine de leur intervention. La Commission recrute des experts pluridisciplinaires qui contribuent à la connaissance de la vérité, à une bonne préparation des audiences et à la réécriture de l’histoire pendant la période couverte par le mandat, Ces experts adhèrent à une conduite élaborée par la Commission et prêtent par écrit le serment suivant: «Je jure d’accomplir ma mission ‘avec conscience et fidélité dans la stricte confidentialité et la ‘protection des informations recueillies».

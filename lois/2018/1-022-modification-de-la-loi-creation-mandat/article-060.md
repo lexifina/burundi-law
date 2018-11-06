@@ -1,0 +1,3 @@
+# Article 60
+
+La Commission établit un programme de réparations qui tient compte des préjudices subis par les victimes, des moyens disponibles et des réalités du pays. Pour la réalisation de ce programme de réparations, l’État met en place un fonds de réparation. L’État est responsable des réparations en cas de sa propre responsabilité ou d’insolvabilité des auteurs, quitte à se retourner contre ces derniers. Les réparations comporteront des mesures individuelles, collectives, matérielles, morales et/ou symboliques. Elles consistent en restitutions, indemnisations, réadaptations et autres mesures selon les cas.

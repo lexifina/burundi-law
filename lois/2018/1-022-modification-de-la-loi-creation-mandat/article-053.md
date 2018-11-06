@@ -1,0 +1,5 @@
+# Article 53
+
+La Commission établit un protocole de conduite des audiences.
+
+Les audiences sont tenues publiquement ou à huis clos suivant l’appréciation de la Commission. Le siège est composé d’au moins trois Commissaires qui ne sont pas de même ethnie. Au cours des audiences, la Commission entend les parties concernées et les témoins. Elle peut, de sa propre initiative, entendre toute personne susceptible de donner des éclaircissements sur les faits. Elle organise aussi des audiences thématiques sur les grandes violations commises dans le passé aux fins d’en connaître les causes profondes et le rôle joué par les institutions étatiques ou privées telles que l’armée, la police, la justice, l’éducation, le secteur financier, les médias, les partis politiques et leurs mouvements affiliés, les églises, les associations, les groupes privés et autres organisations. En cas d’audiences thématiques, la Commission fait comparaître toute personne susceptible de contribuer à la découverte de la vérité.
