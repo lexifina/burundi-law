@@ -1,0 +1,23 @@
+# Article 17
+
+La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 08/.11/2018 Dr. Gaspard ANYANKIMBONA (sé) ANNEXE A L’ORDONNANCE MINISTÉRIELLE n°610/1523 DU 08/11/2018 FIXANT EQUIVALENCE DE CERTAINS DIPLOMES, TITRES SCOLAIRES ET UNIVERSITAIRES 1. « The Degree of Doctor of Philosophy ; Conflict Analysis and Resolution », délivré à NIMURABA Sixte Vigny en 2018, par « George Mason University » en Virginie aux Etats-Unis d’Amérique, équivaut au Diplôme de Docteur en Analyse et Résolution des Conflits (Art.1). 2. Le« Leaving Certificate & Testimonial », décerné à EBELE CHIDMMA Patricia en 1995, par « Akashiede Girls’ College, Obiaruku Delta State » au Nigéria, équivaut au Diplôme d’Etat (Art.2). 3. Le «Nigeria Certificate in Education (NCE) », décerné à EBELE CHIDMMA Patricia en 2003, par « Nwafor Orizu College of Education NSUGBE » au Nigéria, équivaut au Diplôme de Technicien Supérieur de niveau A1 (Art.3). 4. Le« Senior Secondary Leaving Certificate» décerné à DAYANANDA en 1991, par « Karnataka Secondary Education Examination Board» au Karnataka en Inde, équivaut au Diplôme d’Etat (Art 4). 5. Le « Bachelor of Dental Surgery », décerné à DAYANANDA en 1999, par « Bangalore University» en Inde, équivaut au Diplôme de Docteur en Médecine Générale (Art.5). 6. « The Degree of Master of Medicine in Medical Imaging and Nuclear Medicine », décerné à NIMPAGARITSE Daniel en 2018, par « Naval Medical University Chinese People’s Liberation Army» en Chine, équivaut au Diplôme de Mastère en Imagerie Médicale et Médecine Nucléaire (Art.6). 7. «The Degree of Bachelor of Medicine & Bachelor of Surgery », décerné à NDUWAYO Marie-Claude en 2017, par « Taishan Medical University» en Chine, équivaut au Diplôme de Docteur en Médecine Générale (Art.7). 8. Le « Master’s Degree; Option: Zootechnie » décerné à NIMBONA Constantin en 2018, par l’Université Agraire d’Etat de Kouban en Fédération de Russie, équivaut au Diplôme de Mastère en Zootechnie (Art.8). 9. «The Degree of Bachelor of Medicine and Bachelor of Surgery », décerné à BUDOROMYI Obed en 2017, par «Kampala International University» en Ouganda, équivaut au Diplôme de Docteur en Médecine Générale (Art.9). 10. « The Degree of Doctor of Philosophy » décerné à MUGISHA Salomon en 2017, par «University of Chinese Acaderny of Sciences» en Chine, équivaut au Diplôme de Docteur (Ph D) en Physique Théorique (Art. 1 0). 11. Le Diplôme de Technicien Supérieur Spécialisé (Domaine: Sciences de la Société; Mention: Logistique et Transport; Parcours: Exploitation Logistique et Transport) décerné à SEMAYUGI Pierre Claver en 2017, par l’Institut Supérieur de Technologie d’Antananarivo (IST-T) au Madagascar, équivaut au Diplôme de Baccalauréat (Art. 11). 12. Le «Higll School Diplorna », décerné à HITAYEZU Christine en 2018. par « Gitega International Academy » de Gitega au Burundi, équivaut au Diplôme des Humanités Générales (Art. 12). 13. Le « Bachelor of Commerce », décerné à NZOJIBWAMI Ghislain Cyriaque en 2014, par «Shivaji University, Kolhapur» en Inde, équivaut au Diplôme de Baccalauréat (Art.13). 14. Le « Master of Commerce; Accountancy » décerné à NZOJIBWAMI Ghislain Cyriaque en 2017, par «Shivaji University, Kolhapur» en Inde, équivaut au Diplôme de Mastère (Art.14). 15. «The Degree of Bachelor of Business Information Technology (Database Administration Option), décerné à NIJIMBERE Christian Bénit en 2018, par « Strathmore University» de Nairobi au Kenya, équivaut au Diplôme de Baccalauréat (Art.15).
+
+Fait à Bujumbura, le 08/11/2018 Le ministre de l’enseignement superieur et de la recherche scientifique Dr. Gaspard BANYANKIMBONA (sé) ORDONNANCE MINISTÉRIELLE PORTANT CREATION D’UN COMITE DE PILOTAGE CHARGE DU SUIVI DE L’EXECUTION DU PROJET PILOTE DE CATEGORISATION DE LA POPULATION DU SECTEUR INFORMEL ET RURAL DANS UNE DES COMMUNES DU BURUNDI PAR LE PAMUSAB.
+
+Le ministre des droits de la personne humaine, des affaires sociales etdu genre;
+
+Vu la Constitution de la République du Burundi;
+
+Vu le Décret du 15 avril 1958 sur les Associations Mutualistes;
+
+Vu la loi n°1/010 du 16 juin 1999 portant Code de la Sécurité Sociale;
+
+Vu le Décret n°100/237 du 22 août 2012 portant Création, Organisation et Fonctionnement de la Commission Nationale de Protection Sociale;
+
+Vu le Décret n°100/84 du 19 mars 2013 portant Création, Organisation, Missions et Fonctionnement du Secrétariat Exécutif Permanent de la Commission Nationale de Protection Sociale;
+
+Vu le Décret n°100/037 du 19 avril 2018 portant révision du Décret n°100/29 du 19 avril 2015 portant Structure, Fonctionnement et Missions du Gouvernement de la République du Burundi;
+
+Ordonne
