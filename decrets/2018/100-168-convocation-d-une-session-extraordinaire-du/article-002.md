@@ -1,0 +1,3 @@
+# Article 2
+
+La session a pour ordre du jour : 1. Etablir la liste des membres de la Commission Vérité et Réconciliation (CVR) ainsi que son Bureau à transmettre au Président de la République pour nomination conformément aux articles 14,l5 et 16 de la loi n° 11022 du 06 novembre 2018 portant Modification de la loi n°1/18 du 15 mai 2014 portant Création, Mandat, Composition, Organisation et Fonctionnement de la Commission Vérité et Réconciliation. 2. Projet de loi portant changement du mode de gestion et de la structure du capital social de la SOSUMO. 3. Projet de loi portant Ratification du Protocole Paix et Sécurité de la Communauté Est Africaine.
