@@ -1,0 +1,5 @@
+# Article 3 7
+
+Cette Ordonnance confère à son titulaire le droit d’exploiter l’Or sur le site ci-haut cité, de procéder à toutes les opérations de concentration et de commercialisation du minerai dans un Comptoir agréé pour le même type de minerai sous le couvert d’une déclaration visée par l’Office Burundais des Mines et Carrières (OBM).
+
+Le montant issu de la commercialisation de l’Or exploité sur ce site doit être versé au compte n°13122-00100121349-24 ouvert à la BCB Kamenge sous le nom de Coopérative CADEPE.

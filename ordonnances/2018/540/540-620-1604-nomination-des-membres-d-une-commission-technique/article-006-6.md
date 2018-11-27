@@ -1,0 +1,3 @@
+# Article 6 6
+
+La coopérative TEGURA KAZOZA est tenue de respecter scrupuleusement les conditions sécuritaires dont la soutènement des puits et galeries, le dimensionnement des puits et galeries, la clôture du site et l’assurance du site, le bassin de décantation. Elle doit en outre mettre à la disposition des artisans les Equipements de Protection Individuelle (EPI) spécifiques notamment les bottes, les masques, les casques, les lunettes, les gants, les gilets. Elle doit également s’assurer de la présence sur sites des conditions d’hygiène et sanitaires acceptables (Toilettes et accessoires).
