@@ -1,0 +1,3 @@
+# Article 2
+
+La Commission sera chargée de : -organiser toutes les opérations en rapport avec la préparation logistique de l'évaluation; -choisir un échantillon représentatif; -choisir un questionnaire contextuel et valider des items de l'évaluation; -former les Administrateurs de la collecte des données; -élaborer un masque de saisie des données de l'évaluation; -analyser statistiquement les données de l'évaluation; -Interpréter les résultats et dégager des recommandations pertinentes pour faire avancer le système -rédiger un rapport ; -publier les résultats définitifs; -faire une restitution des résultats finaux aux partenaires de l'éducation.

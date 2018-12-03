@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la commission nationale chargée de l'évaluation des acquis scolaires au niveau de l'enseignement fondamental 1. Monsieur MANENGERI Patrice (BESE) 2. Monsieur BWATEMBA Sylvestre (SESE) 3. Monsieur GAHUNGU Réverien (BESE) 4. Madame WEGE Aline (BESE) 5. Madame MPENGEKEZE Scholastique (BPES) 6. Madame NSHIMIRIMANA Aline (BPES) 7. Monsieur JUMA Edouard (Cabinet) 8. Monsieur RURANKIRIZA Jean Marie (Cabinet) 9. Monsieur BARANYIZIYE Rodolphe (Cabinet) 10. Monsieur ASSISA Saleh (SP) 11. Monsieur NZIGAMIYE Daniel (BEPEPF) 12. Madame BIZIMANA Laetitia (IG) 13. Monsieur NDAYIZEYE Prosper (l'IPEPF)
