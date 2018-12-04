@@ -1,0 +1,3 @@
+# Article 4
+
+En référence à l'article 9 de l'Ordonnance Ministérielle conjointe du 13/12/2017 portant cadre réglementaire de mise en place et fonctionnement des commissions/comités techniques, des comités de pilotage, des cellules de gestion des projets ainsi que toute l'activité ou événement gouvernemental impliquant des financements de l'Etat, les membres de ce comité bénéficieront d'un jeton de présence d'un montant de cent cinquante mille francs burundais (150.000Fbu) par séance de travail. Le montant total des jetons de présence ne peut en aucun cas dépasser trois cent mille francs burundais (300.000Fbu) par mois et par membre.
