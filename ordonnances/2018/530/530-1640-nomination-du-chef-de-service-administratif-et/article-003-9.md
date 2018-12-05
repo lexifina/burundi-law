@@ -1,0 +1,5 @@
+# Article 3 9
+
+Cette Ordonnance confère à son titulaire le droit d’exploiter la latérite sur le site ci- haut cité.
+
+Le transport doit être assuré par des véhicules ayant des autorisations valides.
