@@ -1,0 +1,3 @@
+# Article 12
+
+Le Conseil d' Administration se reunit chaque fois que de besoin et au moins une fois par trimestre sur convocation de son President. En cas d'empechement du President, Ie Conseil d' Administration est convoque et preside par Ie Vice-President. Il se reunit obligatoirement Ie dernier trimestre de l'annee pour I' adoption du budget previsionnel et Ie premier trimestre de l' annee pour I'approbation des comptes de l'exercice ecoule. Toutefois, Ie nombre de session du conseil par an ne peut pas depasser celui prevu par les lois et regiements en vigueur au Burundi. 6 ... _--_ ...... _ .

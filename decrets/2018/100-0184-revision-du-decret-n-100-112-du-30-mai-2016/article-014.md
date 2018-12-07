@@ -1,0 +1,3 @@
+# Article 14
+
+Le Conseil d' Administration peut appeler toute personne dotee d'une competence particuliere a pmiiciper dans ses reunions et donner des avis sur les questions portees a l'ordre du jour mais sans voix deliberative. Articie 15 : Les deiiberations et decisions du Conseil d' Administration sont consignees dans un proces-verbal signe par Ie Secretaire et contresigne par tous les membres presents ou representes. Une capie de ce procE~s-verbal est transmise au Ministre de Tutelle et a tous les membres du Conseil d' Administration a la diligence de son secretaire, dans un delai ne depassant pas huit (8) jours ouvrables a dater du jour de la reunion.

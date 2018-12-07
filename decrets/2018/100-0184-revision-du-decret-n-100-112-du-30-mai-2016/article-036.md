@@ -1,0 +1,3 @@
+# Article 36
+
+Les comptes de l'Office sont places sous Ie controle permanent de deux commissaires aux comptes designes par Ie Conseil d' Administration pour un mandat de quatre ans renouvelables une fois. Apres chaque exercice, les commissaires aux comptes etablissent un rapport de contrOle donnant leurs avis sur la regularite et la sincerite des inventaires et des bilans, ainsi que I' exactitude des donnees sur les comptes de l' Office et font toute suggestion utile pour une meilleure administration financiere et comptable. Ce rapport est adresse au Ministere de tutelle, au Ministre des Finances, au Directeur General de l'Office et au Conseil d' Administration.

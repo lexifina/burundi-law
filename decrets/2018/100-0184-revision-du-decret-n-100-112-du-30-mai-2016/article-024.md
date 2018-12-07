@@ -1,0 +1,3 @@
+# Article 24
+
+Sous Ie controle et l' autorite du Directeur General, la Direction des Laboratoires est chargee de : planifier, executer et cOOl"donner toutes les activites d'analyses chimiques, physicochimiques, technologiques, geochimiques, et 61ementaires des echantillons geologiques, miniers et de l' eau pour Ie compte de l'Office ou pour les tiers contre paiement; assurer des stages de formation sur les techniques d' analyse des echantillons aux tiers contre paiement; analyser et caracteriser Ies minerais ; faire des expeliises chimiques ; controler les chargements de minerais destines a l'exportation.
