@@ -1,0 +1,3 @@
+# Article 11
+
+Le Centre National de pharmacovigilance pour les remèdes traditionnels a pour missions de : 1. Fournir des informations aux utilisateurs sur les effets indésirables rapportés dans les bulletins trimestriels; 2. Elaborer les modules de formation en rapport avec la médecine traditionnelle; 3. Sensibiliser, former et éduquer le public sur les effets indésirables des remèdes traditionnels; 4. Apporter un soutien à l'ensemble du système de Pharmacovigilance ; 5. S’assurer de la communication de toutes les décisions prises aux Bureaux Provinciaux de Santé et Districts Sanitaires par le Centre National de Pharmacovigilance ; 6. Proposer des projets de textes législatifs et règlementaires.
