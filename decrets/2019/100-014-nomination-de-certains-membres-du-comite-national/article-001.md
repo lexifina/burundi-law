@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres du Comité National de Sûreté de l’Aviation Civile, CNSAC en sigle, les personnes suivantes: -Ir. Egide NIJIMBERE, Secrétaire Permanent au Ministère ayant les Transports dans ses attributions, en remplacement de l’Ir Déogratias MBABAREMPORE, Président; -Général de Brigade Joseph NKURUNZIZA, Administrateur Directeur Général de la SOBUGEA, en remplacement du Général de Brigade Télésphore IRAMBONA, Membre; -Monsieur Dieudonné ZIMARIMPAKA, Chef du Bureau Régulation de la Sureté de l’Aviation Civile à l’AACB, en remplacement de Madame Godeliève NTIHABOSE, Membre; -Monsieur Emile BUTOYI Directeur Général du Protocole et des Affaires Consulaires au Ministère des Affaires Etrangères, Membre.
