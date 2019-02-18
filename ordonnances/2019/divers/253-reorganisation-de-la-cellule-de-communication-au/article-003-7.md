@@ -1,0 +1,7 @@
+# Article 3 7
+
+Cette Ordonnance confère à son titulaire le droit d’exploiter le moellon et le gravier sur le site ci-haut cité et de procéder à la commercialisation de ces produits exclusivement au niveau national.
+
+Le transport doit être assuré par des véhicules ayant des autorisations valides.
+
+Le montant issu de la commercialisation du moellon et du gravier exploités sur ce site doit être versé au compte n°1760 ouvert à la COOPEC BUKEYE sous le nom de la Coopérative TWIYUNGE DUKINGIRE IBIDUKIKIJE.

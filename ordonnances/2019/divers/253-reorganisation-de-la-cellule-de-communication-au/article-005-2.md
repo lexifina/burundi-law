@@ -1,0 +1,3 @@
+# Article 5 2
+
+Le montant des Dépenses inscrit au budget d’investissement se répartit comme suit: Compte 175 : Remboursement emprunts avec réception de fonds.......... : 154.489.803 Fbu Compte 176 : Remboursement emprunts sans réception de fonds……... : 113.701.077 Fbu Compte 205 : Acquisition des formulaires imprimés sur papiers sécurisés ……………............................................................................... : 746.550.152Fbu Compte 221 : Immobilisations Corporelles (aménagements de terrains) ………………………………………………………………: 3.415.000.000 Fbu Compte 22 : Autres Immobilisations Corporelles ………………….. : 1.004.800.000 Fbu Total des Dépenses d’investissement………………………………... : 5.434.541.032 Fbu
