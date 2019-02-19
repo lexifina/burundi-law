@@ -1,0 +1,3 @@
+# Article 6 19
+
+La coopérative IKANGURE NDORA est tenue de respecter scrupuleusement les conditions sécuritaires dont le soutènement des puits et galeries, le dimensionnement des puits et des galeries confortables, la clôture du site, l’assurance du site, le bassin de décantation. Elle doit en outre mettre à la disposition des artisans les Equipements de Protection Individuelle (EPI) spécifiques notamment les bottes, les masques, les casques, les lunettes, les gants, les gilets. Elle doit également s’assurer de la présence sur le site des conditions d’hygiène et sanitaires acceptables (Toilettes et accessoires).
