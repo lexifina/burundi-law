@@ -1,0 +1,3 @@
+# Article 94
+
+Contravention d’une personne morale aux dispositions relatives au délit d’initié, à l’abus de marché et à la publication des déclarations trompeuses Toute personne morale qui enfreint les dispositions relatives au délit d’initié, à l’abus de marché et à la publication des déclarations trompeuses est passible d’une amende de soixante-dix millions à cent millions de francs burundais, et au paiement du montant égal au gain réalisé ou à la perte évitée. Une personne morale qui se rend coupable des mêmes infractions et de façon continue ou répétée est passible d’une amende de deux cents à cinq cent millions de francs burundais et du paiement du double du montant du gain effectué ou de la perte évitée.

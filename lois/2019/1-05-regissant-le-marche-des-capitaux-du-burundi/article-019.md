@@ -1,0 +1,3 @@
+# Article 19
+
+Enquête préalable au retrait ou à la suspension d’une autorisation ou d’un agrément L’autorité peut refuser de retirer un agrément ou une autorisation lorsqu’elle estime que l’intérêt public exige qu’elle fasse une enquête préalable sur toute question concernant la personne autorisée ou agréée avant qu’une décision sur la demande de retrait ou de suspension de l’autorisation ou de l’agrément ne soit prise. L’autorité peut également refuser de retirer une autorisation ou un agrément lorsqu’elle estime qu’une interdiction ou une restriction doit être imposée à la personne autorisée ou agréée en vertu de la présente loi ou que l’interdiction ou la restriction lui imposée soit maintenue.
