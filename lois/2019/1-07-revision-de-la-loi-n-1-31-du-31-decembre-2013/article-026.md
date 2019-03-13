@@ -1,0 +1,3 @@
+# Article 26
+
+Constitue également une infraction d’entrave au bon fonctionnement du travail de la Commission, punissable d’un an à trois ans de servitude pénale et d’une amende de cinquante mille à cent mille francs, le fait d’exercer sur elle une pression quelconque, de refuser de collaborer, de cacher des renseignements utiles, de produire ou d’exhiber de faux documents, d’annuler ou de gêner l’exécution des décisions prises, de donner un renseignement inexact ou d’user de manœuvres de nature à gêner ou à ralentir la mission de la Commission. A cet effet, la Commission saisit également le Ministère Public pour disposition et compétence.

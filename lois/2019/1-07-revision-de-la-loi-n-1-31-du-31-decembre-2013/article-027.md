@@ -1,0 +1,3 @@
+# Article 27
+
+Toute décision de la Commission, tant au niveau des délégations provinciales qu’au niveau national, non frappée de voies de recours ordinaires est entérinée par un arrêt de la Cour Spéciale des Terres et autres Biens, sur requête du Président de la Commission aux fins d’acquisition des certificats ou titres fonciers. Pour le cas des terres domaniales, le Ministre ayant les terres dans ses attributions, dès la notification d’un arrêt rendu par la Cour Spéciale des Terres et autres Biens, doit formaliser l’acquisition d’un nouveau certificat ou titre fonciers au nom de l’Etat dans un délai ne dépassant pas soixante jours. L’arrêt entérinant la décision de la Commission n’est susceptible d’aucun recours. Il est revêtu de la formule exécutoire.
