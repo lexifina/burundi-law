@@ -1,0 +1,3 @@
+# Article 7
+
+Avant d’entrer en fonction, les membres de la Cour spéciale des terres et autres biens prêtent le serment suivant: «Devant le Président de la République, devant le Parlement, moi (Nom et Prénom), membre de la Cour Spéciale des terres et autres biens, je jure de remplir fidèlement mon mandat en toute indépendance et impartialité, de ne me laisser jamais guider par aucun intérêt partisan et de me consacrer entièrement à l’accomplissement de ma mission dans le respect de la Constitution de la République du Burundi et de l’Accord d’Arusha pour la paix et la réconciliation au Burundi ».

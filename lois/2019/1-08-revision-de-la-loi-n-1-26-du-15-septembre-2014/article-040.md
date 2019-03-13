@@ -1,0 +1,3 @@
+# Article 40
+
+Dès le dépôt de la déclaration, le greffier fait sommation à la partie qui a produit la pièce contestée de déclarer si elle persiste à en faire état. Lorsque la partie qui a produit la pièce contestée renonce à en faire état par une déclaration au greffe, en audience publique ou si elle n’a pas fait de déclaration dans la huitaine, la pièce est écartée. Lorsque la partie persiste à faire état de la pièce contestée, la procédure civile est suspendue jusqu’à la décision de la Cour statuant en matière pénale. L’arrêt rendu aux fins de l’alinéa précédent n’est susceptible ru d’opposition ni de la tierce opposition
