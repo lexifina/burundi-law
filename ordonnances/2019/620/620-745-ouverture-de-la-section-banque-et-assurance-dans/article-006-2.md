@@ -1,0 +1,3 @@
+# Article 6 2
+
+Gestion des terres déjà attribuées aux organismes publics et parapublics Les modalités de gestion des terres domaniales à vocation agro-sylvo-pastorales déjà attribuées aux organismes Publics et parapublics, telles que les réserves cotonnières, les blocs théiers, les Centres semenciers, les centres de recherche agro-sylvo-pastoral, répondent aux conditions fixées dans les textes légaux et règlementaires qui régissent ces organismes. Le changement d’usage ne peut être autorisé que par le Conseil des Ministres, sur présentation d’un rapport dûment motivé par le Ministre dont dépend l’activité à y ériger. Le Ministre ayant l’Agriculture et l’Elevage dans ses attributions doit donner préalablement son avis.
