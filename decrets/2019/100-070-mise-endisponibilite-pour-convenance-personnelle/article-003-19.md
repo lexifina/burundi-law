@@ -1,0 +1,3 @@
+# Article 3 19
+
+Les épreuves faisant objet du Concours National de Certification et d’Orientation à l’Enseignement Post-Fondamental et leurs barèmes sont établies comme suit: N° Matière Epreuve Durée Maxima 1 Domaine des langues Français kirundi 2 heures 30 points + 15 points Anglais -Kiswahili 2 heures 20 points + 10 points 2 Domaine des Mathématiques Mathématiques 2 heures 45 points 3 Domaine des sciences et Technologie Sciences et Technologie 2 heures 40 points 4 Domaine des Sciences Humaines Sciences Humaines 1 heures 40 points 5 Domaine de l’Entrepreneuriat Entrepreneuriat 1 heures 20 points Total 200 points

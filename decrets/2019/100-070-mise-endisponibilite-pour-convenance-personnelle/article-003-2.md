@@ -1,0 +1,3 @@
+# Article 3 2
+
+La Fondation dénommée « FONDATION LANCE D’AFRIQUE BURUNDI» a pour objet: - Promouvoir l’entrepreneuriat féminin; - Stimuler l’écosystème entrepreneurial des créatrices; - Offrir des opportunités aux femmes à s’investir dans la gestion politique et économique du pays; - Offrir aux femmes et aux jeunes filles une formation sur le leadership avancé et la gestion des conflits; - Former les femmes en Managements des Ressources Humaines; - Former les femmes leaders en communication politique; - Mettre sur pied une structure numérique où les jeunes filles suivent une formation de codage; - Créer une génération de femme et jeunes filles codeuses.
