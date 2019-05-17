@@ -1,0 +1,5 @@
+# Article 42
+
+La présente loi entre en vigueur le jour de sa promulgation. Ingingo ya 42 Iri bwirizwa ritangura gukurikizwa kuva umunsi ritereweko igikumu.
+
+Fait à Bujumbura, le 17/5/2019 Bigiriwe i Bujumbura, kuwa 17/5/2019 Pierre NKURUNZIZA (sé) NKURUNZIZA Pierre (sé) PAR LE PRESIDENT DE LA REPUBLIQUE KU BW’UMUKURU W’IGIHUGU VU ET SCELLE DU SCEAU DE LA REPUBLIQUE BIBONYWE KANDI BUSHIZWEKO IKIMANGU CA REPUBURIKA LE MINISTRE DE LA JUSTICE, DE LA PROTECTION CIVIQUE ET GARDE DES SCEAUX UMUSHIKIRANGANJI W’UBUTUNGANE, UKUBAHIRIZA ITEKA N’ITEKANE VY’IGIHUGU N’UGUSHINGURA IKIMANGU Aimée Laurentine KANYANA (sé) KANYANA Aimée Laurentine (sé)

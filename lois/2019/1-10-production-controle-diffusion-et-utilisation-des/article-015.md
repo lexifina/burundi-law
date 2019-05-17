@@ -1,0 +1,3 @@
+# Article 15
+
+Ingingo ya 15 Sans préjudice des dispositions pertinentes relatives à la police sanitaire des animaux domestiques, sauvages, aquacoles et abeilles, seule la semence des reproducteurs enregistrés au catalogue officiel national est récoltée, traitée, stockée, distribuée ou exportée Hatirengagijwe ingingo zerekeye ugucungera amagara y’ibikoko vy’ibitungano, ivy’ibinyeshamba, ivyo mu mazi n’inzuki zivyerekeye, imbuto z’interekwa zanditswe mu Gitabu c’igihugu c’itororokanirizo ry’ibitungwa bitanga imbuto ni zo zonyene zikurwa mu nterekwa, zihingurwa, zishingurwa, zikwiragizwa canke zigashorwa mu mahanga

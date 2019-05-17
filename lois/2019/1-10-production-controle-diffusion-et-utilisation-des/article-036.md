@@ -1,0 +1,3 @@
+# Article 36
+
+Est puni d’une servitude pénale de six mois à deux ans et d’une amende d’un million à cinq millions de francs burundais (1.000.000 Fbu à 5.000.000 Fbu) ou de l’une de ces peines seulement, quiconque produit, stocke ou diffuse à titre professionnel des produits destinés àla reproduction animale sans permis. Ingingo ya 36 Ahanishwa umunyororo uva ku mezi atandatu gushika ku myaka ibiri n’ihadabu riva ku mafaranga y’amarundi umuriyoni umwe gushika ku miriyoni zitanu canke igihano kimwe muri ivyo conyene, uwo wese atororokanije ivyo vyose bijanye n’ukurondora ibitungwa, abishinguye canke abikwiragije nk’uwukora uwo mwuga adafise uruhusha ruvyerekeye.

@@ -1,0 +1,3 @@
+# Article 9
+
+ngingo 9 Les opérations de production, de conditionnement des semences et des embryons d’origine animale, sont effectuées par des centres privés ou publics agréés. Un centre de collecte est seulement autorisé à céder les semences et les embryons d’origine animale à des centres de diffusion publics et privés agréés Ibikorwa vy’ugutororokanya n’ugutekera intanga z’interekwa n’urugirugi bikomoka ku bitungwa birangurwa n’ibigo vy’abikorera utwabo n’ivya Reta vyemewe Ikigo c’itororokanirizo ry’imbuto n’urugirugi bikomoka ku bitungwa cemerewe gusa gushikiriza ivyo catororokanije ibigo bijejwe kubikwiragiza vyemewe. .

@@ -1,0 +1,3 @@
+# Article 11
+
+ingingo ya 11 Tout centre de collecte et de stockage établi au Burundi est autorisé à collecter, traiter, stocker et distribuer des semences animales et des embryons conformément aux dispositions d’une ordonnance du Ministre ayant l’élevage dans ses attributions prise, le cas échéant, conjointement avec les Ministres concernés Ikigo co se c’itororokanirizo ry’imbuto kiri mu Burundi kirekuriwe gutororokanya no guhingura imbuto, ikijejwe ukuzishingura na co kirekuriwe kuzishingura n’ukuzikwiragiza hisunzwe ibitegekanijwe n’itegeko nshikiranganji ry’Umushikiranganji ajejwe ubworozi, iyo bikenewe, iryo tegeko rigashirwako kandi imikono n’abashikiranganji vyerekeye CHAPITRE III. DES REPRODUCTEURS IGICE CA III. IVYEREKEYE INTEREKWA

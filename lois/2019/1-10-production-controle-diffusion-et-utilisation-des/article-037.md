@@ -1,0 +1,3 @@
+# Article 37
+
+Quiconque importe ou exporte des produits destinés à la reproduction animale sans autorisation, est puni d’une servitude pénale Ingingo ya 37 Uwo wese yinjije mu gihugu canke ashoye mu mahanga ivyo vyose bijanye n’ukurondora ibitungwa atabifitiye de six mois à une année et d’une amende de trois millions à cinq millions de francs burundais (3.000.000 Fbu à 5.000.000 Fbu) ou de l’une de ces peines seulement. uruhusha, ahanishwa umunyororo uva ku mezi atandatu gushika ku mwaka umwe n’ihadabu riva ku mafaranga y’amarundi imiriyoni zitatu gushika ku miriyoni zitanu canke igihano kimwe muri ivyo conyene.

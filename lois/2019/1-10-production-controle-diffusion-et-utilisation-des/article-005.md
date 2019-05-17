@@ -1,0 +1,3 @@
+# Article 5
+
+Ingingo ya 5 La production, le contrôle, la diffusion, l’importation, l’exportation des semences et des embryons d’origine animale ainsi que l’importation des reproducteurs sont soumis au contrôle du Centre national d’insémination artificielle et d’amélioration génétique Ibikorwa vy’ugutororokanya imbuto n’urugirugi bikomoka ku bikoko, ukubisuzuma, ukubikwiragiza, ukuvyinjiza mu gihugu, ukubishora mu mahanga hamwe n’ukwinjiza mu gihugu ibitungwa vy’ukurondora bisuzumwa n’Ikigo c’igihugu kijejwe ivyerekeye ukwimisha urushinge no gutuma haboneka akamere nkomoko k’igitungwa keza kuruta
