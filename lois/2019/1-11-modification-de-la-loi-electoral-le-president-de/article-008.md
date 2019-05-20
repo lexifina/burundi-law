@@ -1,0 +1,3 @@
+# Article 8
+
+Les effets de la grâce, de l'amnistie ou de la réhabilitation sur l'application de l'article 5 point 6 et de l'article 7 de la présente loi, sont déterminés conformément aux principes posés respectivement par les articles 163; 173 et 184 du Code pénal. En attendant les conclusions de la Commission Vérité et Réconciliation, les personnes ayant bénéficié de l'immunité provisoire continuent à jouir de leurs droits civils et politiques nonobstant les condamnations éventuelles prononcées. Tout élu dont les responsabilités dans les crimes dont il est question auront été établies par la Commission perd automatiquement son mandat et est remplacé.

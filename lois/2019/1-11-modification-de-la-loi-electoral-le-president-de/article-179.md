@@ -1,0 +1,3 @@
+# Article 179
+
+Le mandat du Conseiller de colline ou de quartier commence le jour où il entre en fonctions et prend fin à l’expiration d’un délai de cinq ans. Il peut prendre fin avant son terme normal par suite de décès, de démission, d’inaptitude physique, d’incapacité permanente, de manquement grave, de déchéance consécutive à la perte d’une condition d’éligibilité ou à la survenance d’une cause d’inéligibilité constatée par le Conseil communal. En cas de manquement grave, le Conseil communal doit délibérer et se prononcer sur les accusations portées à l’encontre de l’intéressé avant sa révocation.

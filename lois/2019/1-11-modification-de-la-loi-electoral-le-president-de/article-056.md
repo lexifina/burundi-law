@@ -1,0 +1,5 @@
+# Article 56
+
+A son arrivée sur le lieu du scrutin, chaque électeur présente au Président du bureau de vote sa carte d'électeur ainsi que sa carte nationale d'identité ou toute autre pièce d'identification reconnue par la Commission Electorale Nationale Indépendante. Après vérification de la qualité de l'électeur, un membre du bureau de vote pointe son nom sur le rôle, lui remet un bulletin de vote par type de scrutin. Ensuite, l'électeur se rend directement dans l'isoloir où il appose son empreinte digitale dans la case réservée à l'insigne du parti politique, coalition des partis politiques ou du candidat indépendant de son choix. L'électeur sort de l'isoloir en sauvegardant le secret de son vote et fait constater qu'il n'est porteur que d'un bulletin par type de scrutin qu'il introduit dans l'urne correspondant au scrutin en présence du bureau et du public. Après cette opération, un membre du bureau lui met l'encre indélébile sur l'un des doigts.
+
+Les membres du bureau de vote s'organisent pour assurer le respect des dispositions du présent article.
