@@ -1,0 +1,3 @@
+# Article 1
+
+La Fondation dénommée «FONDATION SIMBARE POUR L'ACTION SOCIALE ET LE DEVELOPPEMENT» (FOSASOD) est agréée.

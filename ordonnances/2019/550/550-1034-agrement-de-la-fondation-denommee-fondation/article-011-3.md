@@ -1,0 +1,5 @@
+# Article 11 3
+
+Le Directeur Général de l'Office Burundais des Mines et Carrières est chargé de la mise en application de la présente Ordonnance qui entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 06/6/2019 Le Ministre de l’Hydraulique, de l’Energie et des Mines Hon. Côme MANIRAKIZA (sé)
