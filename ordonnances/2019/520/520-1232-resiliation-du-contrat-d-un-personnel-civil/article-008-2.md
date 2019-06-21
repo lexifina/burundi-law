@@ -1,0 +1,3 @@
+# Article 8 2
+
+Les Directions Communales de l’Education, de la Formation Technique et Professionnelle, en collaboration avec leurs Directions Provinciales de l’Education, de la Formation Technique et Professionnelle vont traiter les cas de placement dans les Centres de Formation Professionnelle et dans les Centres d’Enseignement des Métiers de leurs provinces respectives: Les élèves qui ont réussi en classe de 9ème mais qui n’ont pas réussi au Concours National d’orientation et de certification qui le demandent. Les élèves en situation de triplement (ou quadruplement) de classe non autorisé par le jury de délibération de fin d’année qui le demandent.

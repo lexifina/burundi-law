@@ -1,0 +1,7 @@
+# Article 7 2
+
+Les directions des écoles vont recevoir tous les autres cas et selon la disponibilité des places: 1 Le redoublement de classe 2 Le changement de section vers les 1 ères années de l’Enseignement Post Fondamental Général et Pédagogique. Nota Bene. : Ce changement de section ne concerne que les élèves qui ont échoué la 1er année de l’enseignement post fondamental. 3 Le changement d’établissement pour avancement ou redoublement de classe:
+
+a) L’école d’origine est de même statut: -du public (internat) au public/externat -du communal au communal -du privé au privé
+
+b) L’école d’origine est de statut différent (l’inverse ne leur étant pas autorisé): -du public au communal -du public au privé (général ou technique) -du communal au privé (général ou technique) 4 La réintégration d’un élève non classé pour des raisons justifiées 5 La réintégration d’un élève qui a abandonné pour diverses raisons justifiées par les autorités compétentes. 6 La réintégration d’un élève rapatrié officiellement ou volontairement avec des documents justificatifs dûment signés par les autorités compétentes. Documents devant être exigés pour toute demande: Le bulletin de la dernière année fréquentée L’attestation de fréquentation scolaire L’attestation de non redoublement et de non recevabilité. L’extrait d’acte de naissance (en cas de grossesse Les papiers médicaux (en cas de maladie) Attestation de rapatriement ou de reconnaissance (pour les rapatriés). Tout autre document pouvant justifier le cas.

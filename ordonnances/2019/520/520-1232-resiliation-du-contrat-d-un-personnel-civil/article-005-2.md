@@ -1,0 +1,3 @@
+# Article 5 2
+
+Sont nommés membres de la Commission: 1 Monsieur MBANGAMIYE Thomas, Conseiller/DGEFPF : Président 2 Monsieur NIYONKURU Anatole, Conseiller/Cab: V/président 3 Madame MANIRAKOZE Marie, Conseillère/DEPFT: Secrétaire 4 Monsieur Saleh ASSISSA, conseiller / SP: Membre 5 Madame NZEYIMANA Germaine, Conseillère/DGEFPE: Membre 6 Monsieur MVUKIYE Jean, Conseiller /DEPFT: Membre 7 Madame BARAGUNZWA Mélanie, secrétaire. / SP: Dactylographe 8 Madame NTUNGUKA Marcelline, Conseillère/DEPFGP, membre 9 Madame NDUWIMANA Mathilde, Conseillère/DEF : Membre 10 Madame HAKIZIMANA Mathilde, Secrétaire/Cabinet
