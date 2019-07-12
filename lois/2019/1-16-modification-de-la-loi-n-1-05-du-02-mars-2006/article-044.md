@@ -1,0 +1,3 @@
+# Article 44
+
+Le congé de maternité est accordé de droit au personnel féminin sur production d’un certificat médical attestant la date présumée de l’accouchement. Ce congé est d’une durée maximale de quatorze (14) semaines réparties avant ou après selon les avis du médecin traitant. Au cas où la bénéficiaire reprend le service de son propre gré avant l’expiration du délai de quatorze (14) semaines, elle ne peut prétendre à une compensation quelconque pour le prorata de congé non pris ou reporté à une date ultérieure. Par contre, au cas où, pour des raisons de service et sur demande de l’employeur la bénéficiaire interrompt son congé, elle aura une compensation pour le prorata du congé suspendu.

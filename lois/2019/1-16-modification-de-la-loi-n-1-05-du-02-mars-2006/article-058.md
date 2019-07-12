@@ -1,0 +1,3 @@
+# Article 58
+
+Le membre du personnel du Service National de Renseignement accomplit normalement sa carrière dans le cadre de ce service. Toutefois, l’autorité investie du pouvoir de nomination peut détacher ou transférer un membre du personnel auprès d’autres administrations pour y exercer des fonctions d’un rang au moins correspondant au grade déjà acquis. Dans cette position, le détaché reste soumis à la présente loi pour ce qui concerne les avantages acquis au sein du Service National de Renseignement et les droits à l’avancement de grade. Pour d’autres avantages, le détaché relève des règles régissant l’emploi de détachement.
