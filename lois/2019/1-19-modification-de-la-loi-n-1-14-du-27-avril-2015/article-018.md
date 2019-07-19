@@ -1,0 +1,3 @@
+# Article 18
+
+En matière de contrat de partenariat public-privé, tout appel d’offres ouvert ou restreint relève du régime général visé par les dispositions pertinentes de la présente loi. Toutefois, la procédure de pré-qualification est conduite par la commission ad hoc qui est la seule habilitée à initier la procédure d’appel d’offres ou d’appel à candidatures, à préparer les dossiers y afférents, à conduire, le cas échéant, la phase de pré-qualification, à analyser les offres, à sélectionner le cocontractant potentiel ainsi qu’à négocier et à conclure le contrat de partenariat avec ce dernier.

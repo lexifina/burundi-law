@@ -1,0 +1,3 @@
+# Article 41
+
+L’autorité contractante peut autoriser le cocontractant à consentir des baux dans les conditions du droit privé, en particulier des baux à construction ou des baux emphytéotiques pour les biens relevant du domaine privé et à y constituer tous types de droits réels à durée limitée en conformité avec les dispositions pertinentes du code foncier. L’accord de l’autorité contractante doit être expressément formulé pour chacun des baux ou droits consentis au cocontractant. Ces derniers peuvent être consentis pour une durée excédant celle du contrat de partenariat avec l’accord de l’autorité contractante.
