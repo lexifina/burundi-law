@@ -1,0 +1,3 @@
+# Article 5
+
+Avant d’entrer en fonction, les membres de la Cour Constitutionnelle prêtent le serment devant le Président de la République en ces termes: «Devant Dieu le Tout-Puissant, devant le Président de la République et le Peuple Burundais, Moi [énoncer le nom], membre de la Cour Constitutionnelle, je jure de respecter la Constitution et la Charte de l’Unité Nationale, de remplir consciencieusement les devoirs de ma charge avec probité et en toute impartialité et indépendance, de toujours garder le secret des délibérations et de me conduire constamment avec dignité». Acte est dressé de la prestation de serment.

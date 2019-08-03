@@ -1,0 +1,3 @@
+# Article 27
+
+L’autorité qui soumet à la Cour Constitutionnelle une loi ou un acte réglementaire en avise immédiatement les autres autorités ayant qualité pour saisir la Cour Constitutionnelle. S’il s’agit de lois ou actes réglementaires pris dans les matières autres que celles relevant du domaine de la loi soumis au contrôle préalable de constitutionnalité, le recours suspend le délai de promulgation de la loi ou signature de l’acte réglementaire. Si la Cour est saisie par une personne physique ou morale, le Ministère Public, un quart des députés, un quart des sénateurs, les autorités visées à l’alinéa premier doivent également en être avisées.

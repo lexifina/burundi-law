@@ -1,0 +1,3 @@
+# Article 30
+
+Lorsque des personnes physiques ou morales ou le Ministère Public soulèvent l’exception d’inconstitutionnalité d’une loi ou d’un acte réglementaire invoqué par une partie et applicable au litige dont une juridiction est saisie, cette dernière sursoit à statuer et renvoie immédiatement la question à la Cour Constitutionnelle. Dès qu’elle est saisie, la Cour Constitutionnelle demande aux parties à l’instance de lui soumettre leurs conclusions sur l’exception d’inconstitutionnalité. L’appréciation de la conformité à la Constitution est faite après rapport d’un membre de la Cour Constitutionnelle. La Cour statue dans un délai de trente jours.
