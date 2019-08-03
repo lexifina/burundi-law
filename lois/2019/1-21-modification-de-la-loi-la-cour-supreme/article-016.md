@@ -1,0 +1,3 @@
+# Article 16
+
+Les juges à la Cour Suprême et les magistrats du Parquet Général de la République ne peuvent être recherchés, arrêtés, détenus, poursuivis ou jugés pour les opinions qu’ils expriment, les actes qu’ils posent ou l’interprétation qu’ils font de la loi dans l’exercice de leur fonction. Sauf en cas de flagrance, un juge à la Cour Suprême ou un magistrat du Parquet Général de la République ne peut être recherché, arrêté, détenu, poursuivi ou jugé qu’avec l’autorisation du Président de la Cour après que l’intéressé ait été préalablement entendu par une commission ad- hoc mise en place par le Président de la Cour Suprême ou par le Procureur Général de la République selon le cas.

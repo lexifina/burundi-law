@@ -1,0 +1,3 @@
+# Article 134
+
+Le délai pour déposer la requête est de soixante jours à dater de la signification de la décision attaquée. Toutefois, lorsque l’arrêt ou le jugement a été rendu par défaut, le pourvoi n’est ouvert et le délai ne commence à courir à l’égard de la partie défaillante que du jour où l’opposition n’est plus recevable. L’opposition formée contre la décision entreprise suspend la procédure en cassation. Si l’opposition est déclarée recevable, le pourvoi est rejeté faute d’objet.

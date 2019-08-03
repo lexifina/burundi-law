@@ -1,0 +1,3 @@
+# Article 73
+
+En cas de décès d’une partie en cours d’instance, toutes les communications et notifications de la cause sont faites valablement aux ayants droit, collectivement et sans autre désignation de qualité au domicile élu ou au dernier domicile du défunt. En cas de décès, la Cour peut demander en outre au Procureur Général de la République de recueillir des renseignements sur l’identité ou la qualité des parties à l’égard desquelles la reprise d’instance peut avoir lieu.

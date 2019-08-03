@@ -1,0 +1,3 @@
+# Article 174
+
+Les magistrats de la Cour Suprême, de la Cour Constitutionnelle, du Parquet Général de la République, de la Cour Anti-corruption, des Cour d’Appel et des Parquets Généraux près les dites Cours, des Cours administratives, de la Cour militaire et de l’Auditorat général peuvent être pris à partie devant la Cour Suprême s’il Y a manquements professionnels graves commis soit dans le cours de l’instruction soit lors de la prise de décisions. Il en est ainsi notamment lorsqu’il y a dol, concussion, corruption ou déni de justice. Il y a déni de justice notamment lorsque les magistrats refusent de procéder aux devoirs de leurs charges ou négligent de juger les affaires en état d’être jugées. Paragraphe 2 De la procédure préalable à la prise à partie

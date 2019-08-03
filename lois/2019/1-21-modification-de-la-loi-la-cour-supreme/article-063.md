@@ -1,0 +1,3 @@
+# Article 63
+
+Dès que les productions des parties sont déposées ou que les délais pour les produire sont écoulés ou dans le cas où la loi le prévoit, dès que la réquisition ou le rapport du Procureur Général est déposé, le greffier transmet le dossier au Président de la Cour Suprême aux fins de désignation d’un juge rapporteur. Celui-ci rédige un rapport sur les faits de la cause, sur la procédure, sur les moyens invoqués et propose la solution qui lui paraît devoir être réservée à la cause. Il transmet ensuite le dossier au Président de la Cour, qui fixe par ordonnance la date à laquelle la cause sera appelée à l’audience. L’ordonnance de fixation est notifiée au Ministère Public et aux parties au moins huit jours avant la première audience.
