@@ -1,0 +1,3 @@
+# Article 9
+
+La présente Ordonnance peut être annulée dans les conditions spécifiques prévues par Code Minier ou pour non-respect des obligations légales et réglementaires en résultant.
