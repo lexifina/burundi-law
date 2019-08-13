@@ -1,0 +1,29 @@
+# Ordonnance ministérielle conjointe n°610/630/1559 du 13 août 2019
+
+PORTANT REVISION DU PROGRAMME DE FORMATION DE BACCALAUREAT EN SANTE BUCCO-DENTAIRE A L’INSTITUT NATIONAL DE SANTE PUBLIQUE (INSP)
+
+Le Ministre de l’Enseignement Supérieur et de la Recherche Scientifique, Le Ministre de la Santé Publique et de la Lutte contre le SIDA,
+
+Vu la Constitution de la République du Burundi;
+
+Vu la Loi n°1/12 du 30 mai 2018 portant Code de l’Offre des soins et services de santé au Burundi;
+
+Vu la Loi n°1/22 du.30 décembre 2011 portant Réorganisation de l’Enseignement Supérieur au Burundi;
+
+Vu la Loi n°1/012 du 30 mai 1991 portant Création, Organisation et Fonctionnement de l’Institut National de Santé Publique;
+
+Vu le Décret n°100/13 du 18 août 2018 portant Missions, Organisation et Fonctionnement du Ministère de l’Enseignement Supérieur et de la Recherche Scientifique;
+
+Vu le Décret n°100/037 du 19 avril 2018 portant Révision du Décret N°100/29 du 18 septembre 2015 portant Structure, Fonctionnement et Missions du Gouvernement de la République du Burundi;
+
+Vu le Décret n°100/05 du 12 janvier 2015 portant Organisation des Etudes de Premier et Deuxième cycle universitaire;
+
+Vu le Décret n°100/04 du 12 janvier 2015 portant Conditions Requises pour Exercer la Profession d’Enseignement dans les Etablissements d’Enseignement Supérieur au Burundi;
+
+Vu le Décret n°100/258 du 14 novembre 2014 portant Réorganisation et Fonctionnement de la Commission Nationale de l’Enseignement Supérieur ;
+
+Vu le Décret n°100/254 au 04 octobre 2011 portant Organisation et Fonctionnement du Ministère de la Santé Publique et de la Lutte contre le Sida; Revu l’Ordonnance Ministérielle conjointe n°610/630/900 du 13 juillet 2015 portant fixation des programmes de formation de Baccalauréat à l’Institut National de Santé Publique;
+
+Sur avis de la Commission Nationale de l’Enseignement Supérieur ;
+
+Ordonnent
