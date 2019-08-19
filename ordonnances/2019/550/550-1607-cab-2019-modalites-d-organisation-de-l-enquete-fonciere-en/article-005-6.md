@@ -1,0 +1,3 @@
+# Article 5 6
+
+L’exportation de l’Or pour laquelle l’Ordonnance est accordée se fera par le bureau douanier’ sous le couvert d’une déclaration visée conjointement par l’Office Burundais des Mines et Carrières, OBM en sigle, la Direction des Douanes et le Commissariat Général des Migrations, des Frontières et des Etrangers.
