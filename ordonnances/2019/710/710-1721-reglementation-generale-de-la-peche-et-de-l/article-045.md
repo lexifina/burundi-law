@@ -1,0 +1,3 @@
+# Article 45
+
+Toute personne physique ou morale désirant faire de l’aquaculture dans les plans d’eau artificiels du domaine public ou privé doit préalablement en demander une autorisation au Ministre en charge du secteur. Seules les exploitations piscicoles ne dépassant pas un demi-hectare (1/2ha) et dont l’objectif est la consommation familiale ne font pas objet d’aucune demande d’autorisation. Cependant, ces dernières restent soumises à l’encadrement technique de l’administration en charge de la pêche et/ou de l’aquaculture et doivent fournir régulièrement toutes les données statistiques et autres informations leur demandées.
