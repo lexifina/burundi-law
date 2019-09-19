@@ -1,0 +1,3 @@
+# Article 21
+
+La Commission d’homologation a pour principales missions de :  Assister aux réunions auxquelles ils sont convoqués;  Traiter confidentiellement tous les renseignements dont ils prendraient connaissance à l’occasion de leur mission;  Respecter les modalités et les délais déterminés pour la présentation des rapports d’évaluation;  Déclarer, lors de chaque réunion de la Commission concernée, leurs intérêts particuliers qui pourraient être considérés comme préjudiciables à leur indépendance eu égard aux points de l’ordre du jour;  Discuter sur les différents points de l’ordre du jour et donner obligatoirement un avis sur les rapports d’évaluation qui lui ont été soumis.

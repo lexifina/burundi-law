@@ -1,0 +1,3 @@
+# Article 9
+
+Toute demande d’homologation doit être accompagnée de 5 échantillons. La Commission Technique d’homologation des remèdes traditionnels dispose d’un délai maximum de trois mois à compter de la date de réception de la demande d’ homologation pour délibérer et transmettre son avis au Ministre ayant la santé publique dans ses attributions. Passé ce délai, le Ministre peut autoriser la mise temporaire du remède traditionnel sur le marché, sauf avis contraire motivée de la commission. Toute demande de clarification, de complément d’information ou d’expertise suspend le délai précédemment visé jusqu’à la production des éléments sollicités.
