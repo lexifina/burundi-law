@@ -1,0 +1,5 @@
+# Article 23
+
+Le jury ne peut siéger valablement que s’il réunit des formateurs.
+
+Le service de la formation professionnelle est tenu de convoquer les membres du jury au moins 48 heures avant la séance de délibération par lettre d’invitation personnelle et par voie d’affi-chage. Cette lettre d’invitation précise la date et le lieu des délibérations. Une copie est réservée à la direction de l’Institut.
