@@ -1,0 +1,7 @@
+# Article 2
+
+La présente loi entre en vigueur le jour de sa pro-mulgation.
+
+Fait à Bujumbura, le 19 février 2020 Pierre NKURUNZIZA (sé) Par le Président de la République, Le Ministre de la Justice, de la Protection Civique et Garde des Sceaux Aimée Laurentine KANYANA (sé). Instrument de ratification par la république du Burundi de l’accord de ligne de financement entre la République du Burundi et la Banque Arabe pour le Développement Économique en Afrique (BADEA) relatif au financement d’opérations d’importation des biens en provenance des pays arabes, signé à Washington le 18 octobre 2019 Nous, Pierre NKURUNZIZA, Président de la République du Burundi, Ayant vu et examiné l’Accord de Ligne de Finan-cement signé à Washington le 18 octobre 2019 entre la République du Burundi et la Banque Arabe de Développement Économique en Afrique (BADEA), relatif au financement d’opérations d’importation des biens en provenance des Pays Arabes; L’avons approuvé et l’approuvons en toutes et chacune de ses dispositions conformément à la législation en vigueur au Burundi; Déclarons qu’il est accepté, ratifié et confirmé; Promettons qu’il sera intégralement et inviolable-ment observé; EN FOI DE QUOI, Nous avons donné le présent Instrument de Ratification revêtu du Sceau de la République.
+
+Fait à Bujumbura, le 19 février 2020 Pierre NKURUNZIZA (sé) Par le Président de la République, Le Ministre de la Justice, de la Protection Civique et Garde des Sceaux Aimée Laurentine KANYANA (sé).
