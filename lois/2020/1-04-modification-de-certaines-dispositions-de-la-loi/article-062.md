@@ -1,3 +1,0 @@
-# Article 62
-
-Le chef de zone exerce notamment les attribu-tions suivantes: 1. animer et coordonner les activités de dévelop-pement initiées par la commune sur les col-lines ou quartiers de sa zone; 2. assister les services compétents dans la ges-tion des questions de l’état-civil dans la zone; 3. transmettre à la population de la zone tout message, toute communication utile à la demande des autorités communales; 4. transmettre à ces derniers les desiderata et les préoccupations de la population habitant sa circonscription; 5. assurer toute autre tâche lui déléguée par l’administrateur communal.

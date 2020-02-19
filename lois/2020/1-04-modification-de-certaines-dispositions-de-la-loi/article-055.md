@@ -1,3 +1,0 @@
-# Article 55
-
-Le personnel communal comprend au minimum, outre les chefs des zones, les titulaires des emplois suivants: 1. un secrétaire exécutif permanent; 2. un conseiller chargé des questions politiques, administratives, juridiques et sociales; 3. un conseiller chargé des questions écono-miques, du développement et des statistiques; 4. un conseiller chargé des services techniques communaux; 5. un secrétaire communal; 6. des agents d’état-civil par centre d’enregistre-ment; 7. un comptable communal; 8. un responsable de la comptabilité de l’ordon-nateur; 9. des agents de recouvrement; 10.un responsable du guichet foncier.

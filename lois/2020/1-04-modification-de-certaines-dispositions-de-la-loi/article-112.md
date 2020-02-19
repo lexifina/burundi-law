@@ -1,3 +1,0 @@
-# Article 112
-
-Le gouverneur de province ou le maire peut sus-pendre tous règlements ou autres résolutions des· autorités communales qui sortent de leurs attri-butions ou qui sont contraires à la loi ou à l’intérêt général. La suspension doit intervenir dans les quinze jours après la date à laquelle le gouver-neur de province ou le maire a eu connaissance du règlement ou de la résolution. Elle est immédiatement portée à la connaissance du ministre ayant l’administration territoriale dans ses attributions et de l’autorité communale concernée avec les raisons qui la justifient. La suspension prend fin, soit sur décision du Ministre, soit un mois après en avoir avisé le ministre.

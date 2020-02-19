@@ -1,3 +1,0 @@
-# Article 83
-
-Afin d’assurer un développement équilibré entre toutes les communes et régions du pays, en parti-culier en ce qui concerne les infrastructures socio-économiques de base, l’Etat accorde à la com-mune un montant d’au moins cinq cent millions de francs burundais (500.000.000 BIF) par année budgétaire variable selon le poids démogra-phique, les infrastructures et l’étendue du terri-toire comme appui budgétaire, en complément de ses ressources propres ainsi que les moyens suffi-sants pour se doter d’une politique de développe-ment de ses infrastructures, notamment dans les domaines de l’éducation, de la santé, du réseau routier, de l’agriculture, de l’élevage, de l’électri-cité et de l’eau.

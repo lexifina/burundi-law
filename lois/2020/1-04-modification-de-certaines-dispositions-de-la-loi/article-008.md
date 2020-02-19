@@ -1,5 +1,0 @@
-# Article 8
-
-La commune exerce des compétences qui lui sont propres en tant qu’entité administrative décen-tralisée. A ce titre, elle est chargée notamment: 1. de l’encadrement de la population à travers la sensibilisation, l’information et la mobilisa-tion; 2. de la concertation et de la consultation de la population sur la vie de la commune; 3. de la gestion administrative des travailleurs salariés communaux; 4. de la délivrance des actes administratifs, actes d’état civil et des actes d’identification; 5. de l’adoption de l’organigramme des services communaux; 6. de l’adoption, la mise en œuvre, le suivi et éva-luation du plan communal de développement communautaire; 7. de l’adoption et de l’exécution des programmes et des budgets de la commune; 8. de la tenue de la comptabilité communale conformément à la loi; 9. de la propreté et de l’entretien des voiries communales; 10.du contrôle et du suivi des projets de dévelop-pement mis en œuvre sur son territoire; 11.de la collecte et de l’analyse des données sta-tistiques sur le développement économique de la commune.
-
-Section 3 Des compétences transférées

@@ -1,3 +1,0 @@
-# Article 26
-
-La Commission Electorale Nationale Indépen-dante veille à ce que les conseils communaux reflètent d’une manière générale la diversité eth-nique et de genre de leur électorat, et au moins un sur trois doit être une femme. Au cas où la composition d’un conseil communal ne reflèterait pas cette diversité ethnique et de genre, la Commission Electorale Nationale Indé-pendante peut ordonner la cooptation au conseil des personnes provenant d’un groupe ethnique ou du genre sous représenté à condition que les per-sonnes ainsi cooptées ne constituent pas plus d’un cinquième des membres du conseil. Les per-sonnes à coopter sont désignées par la Commis-sion Electorale Nationale Indépendante,

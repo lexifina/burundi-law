@@ -1,3 +1,0 @@
-# Article 71
-
-Le budget ne peut être modifié en cours d’exécu-tion que selon la procédure suivie pour son appro-bation et en respectant la nomenclature des rubriques budgétaires approuvées par le conseil communal. L’administrateur communal établit les projets de virement de crédits et de crédits supplémen-taires. Il les soumet à l’approbation du conseil communal qui peut les amender. Tout amendement entraînant un accroissement des dépenses doit prévoir une augmentation cor-respondante des recettes. Tout amendement entraînant une diminution des recettes qui aurait pour effet de rompre l’équilibre du budget doit prévoir une diminution de dépenses correspondantes ou de nouvelles recettes.
