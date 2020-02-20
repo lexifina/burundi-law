@@ -1,0 +1,3 @@
+# Article 28
+
+A la fin de chaque semaine, toute commune dotée d’un service foncier est tenue de communiquer au conservateur des titres fonciers territorialement compétent un état des certificats fonciers déli-vrés, des hypothèques inscrites ou radiées, des noms ou raisons sociales des créanciers, des iden-tités des débiteurs, des constituants et des éven-tuelles cautions, de la date de constitution, de celle de l’inscription dans le registre foncier com-munal et du ‘montant total de la créance aux fins de leur intégration et centralisation dans le sys-tème d’information foncière de la direction des titres fonciers.

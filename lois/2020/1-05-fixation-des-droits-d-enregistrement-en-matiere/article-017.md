@@ -1,0 +1,3 @@
+# Article 17
+
+Lorsque la mutation ou l’inscription s’est faite sur base d’un contrat d’aliénation, l’amende est encourue solidairement et indivisiblement par l’aliénateur et l’acquéreur.

@@ -1,0 +1,3 @@
+# Article 29
+
+Toute institution exerçant des activités bancaires ou de micro finance, tout établissement de crédit recevant des certificats fonciers en hypothèque ou en nantissement, est tenue, également, à la fin de chaque semaine, de transmettre au conservateur des titres fonciers territorialement compétent, un état des certificats fonciers reçus en garantie des crédits octroyés ou à octroyer, des identités des débiteurs, des constituants et des éventuelles cautions, de la date de constitution, de celle de l’inscription des hypothèques dans le registre fon-cier communal et du montant total de la créance.

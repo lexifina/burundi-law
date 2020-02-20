@@ -1,0 +1,3 @@
+# Article 32
+
+Le défaut ou le retard de communication des informations requises, par les autorités et les ins-titutions visées aux articles 28, 29, 30 et 31 de la présente loi, engage la responsabilité civile des-dites autorités ou institutions sans préjudice d’autres sanctions pour toute suite dommageable envers l’Etat, la commune, les bénéficiaires des titres fonciers, des certificats fonciers, des crédits ou les tiers. En cas de vente d’une propriété foncière enregis-trée sous la certification foncière, l’acheteur doit faire transformer le certificat foncier en titre fon-cier endéans soixante jours ouvrables à compter de la date de signature de l’acte.
