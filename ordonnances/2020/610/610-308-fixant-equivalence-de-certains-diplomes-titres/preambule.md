@@ -1,0 +1,27 @@
+# Ordonnance ministérielle n°610/308 du 27 février 2020
+
+FIXANT EQUIVALENCE DE CERTAINS DIPLÔMES, TITRES SCOLAIRES ET UNIVERSITAIRES
+
+Le Ministre de l’Enseignement Supérieur et de la Recherche Scientifique,
+
+Vu la Constitution de la République du Burundi;
+
+Vu la loi n°1/22 du 30 décembre 2011 portant Réorganisation de l’Enseignement Supérieur au Burundi;
+
+Vu le décret n°100/025 du 30 janvier 2019 portant Nomination des Membres de la Commission Nationale de l’Enseignement Supérieur au Burundi;
+
+Vu le décret n°100/113 du 18 août 2018 portant Missions et Organisation du Ministère de l’Ensei-gnement Supérieur et de la Recherche Scienti-fique;
+
+Vu le décret n°100/037 du 19 avril 2018 portant Révision du décret n°100/29 du 18 septembre 2015 portant Structure, Fonctionnement et Mis-sions du Gouvernement de la République du Burundi;
+
+Vu le décret n°100/258 du 14 novembre 2014 por-tant Réorganisation et Fonctionnement de la Commission Nationale de l’Enseignement Supé-rieur;
+
+Vu le décret n°100/277 du 18 octobre 2012 portant Réorganisation du Système de Collation des Grades Académiques;
+
+Vu le décret n°100/276 du 18 octobre 2012 portant Réorganisation de la Commission d’Equivalence de Diplômes, Titres Scolaires et Universitaires;
+
+Vu l’Arrêté n°121/VP2/0004 du 15 avril 2019 por-tant Révision de l’Arrêté n°121/VP2/044 du 13 septembre 2013 portant Nomination des Membres et de l’Equipe d’Appui de la Commis-sion d’Equivalence de Diplômes, Titres Scolaires et Universitaires;
+
+Sur avis de la Commission d’Equivalence de Diplômes, Titres Scolaires et Universitaires;
+
+Ordonne
