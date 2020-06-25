@@ -14,4 +14,4 @@ L’Assemblée Générale est composée de :
 
 – Deux représentants du département des jeunes;
 
-– Deux Pasteurs représentants de chaque région. Ainsi, le comité de surveillance et le conseil pasto­ ral sont définis dans le règlement d’ordre inté­ rieur.
+– Deux Pasteurs représentants de chaque région. Ainsi, le comité de surveillance et le conseil pastoral sont définis dans le règlement d’ordre intérieur.

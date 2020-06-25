@@ -4,7 +4,7 @@ Le Secrétaire Général est compétent pour:
 
 – Participer dans la conception, l’organisation et l’exécution de tous les programmes d’activités de l’Eglise;
 
-– Faire les procès-verbaux des réunions du comité Exécutif et celles de l’Assemblée Géné­ rale;
+– Faire les procès-verbaux des réunions du comité Exécutif et celles de l’Assemblée Générale;
 
 – Faire la gestion du courrier entrant et sortant;
 

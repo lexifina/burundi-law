@@ -1,6 +1,6 @@
 # Article 26
 
-Le Comité Exécutif est composé de huit (08) per­ sonnes ci-après:
+Le Comité Exécutif est composé de huit (08) personnes ci-après:
 
 – Le Président qui est en même Représentant Légal de l’Eglise;
 

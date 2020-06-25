@@ -1,18 +1,18 @@
 # Article 17
 
-L’Assemblée Générale est l’organe souverain et suprême de l’Eglise. Elle est compétente notam­ ment pour:
+L’Assemblée Générale est l’organe souverain et suprême de l’Eglise. Elle est compétente notamment pour:
 
 – définir et orienter le programme des activités de l’Eglise;
 
 – adopter et modifier les statuts et le règlement d’ordre intérieur de l’Eglise;
 
-– élire et révoquer les membres du Comité Exé­ cutif et des autres Conseils;
+– élire et révoquer les membres du Comité Exécutif et des autres Conseils;
 
-– approuver le bilan des activités de l’année écou­ lée;
+– approuver le bilan des activités de l’année écoulée;
 
 – adopter le programme annuel des activités des districts et régions de l’Eglise;
 
-– approuver des rapports d’activités des diffé­ rentes Eglises locales et externes de l’exercice précédent;
+– approuver des rapports d’activités des différentes Eglises locales et externes de l’exercice précédent;
 
 – approuver l’adhésion et l’exclusion des membres;
 

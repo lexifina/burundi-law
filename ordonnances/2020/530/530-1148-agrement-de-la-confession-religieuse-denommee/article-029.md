@@ -16,4 +16,4 @@ Le Représentant Légal est compétent pour:
 
 – Exécuter ou faire exécuter le programme fixé par l’Assemblée Générale;
 
-– Préparer l’ordre du jour des réunions de l’Assemblée Générale et du Comité Exécutif. Il est assisté dans ses fonctions par le Représen­ tant Légal suppléant et ce dernier le remplace valablement en cas de son empêchement.
+– Préparer l’ordre du jour des réunions de l’Assemblée Générale et du Comité Exécutif. Il est assisté dans ses fonctions par le Représentant Légal suppléant et ce dernier le remplace valablement en cas de son empêchement.

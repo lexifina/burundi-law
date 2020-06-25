@@ -10,4 +10,4 @@ La personne ayant obtenu la qualité de membre peut perdre celle-ci pour plusieu
 
 – L’exclusion décidée par l’Assemblée Générale pour d’autres motifs graves pouvant entraver le bon fonctionnement de l’Eglise.
 
-– S’il viole les principes bibliques du témoignage chrétien. Cela peut être fait avec ou sans avertissement préliminaire dépendant de la gravité du péché commis. L’Eglise locale aura l’autorité de délibé­ rer sur de tels cas pour ses membres. Toute déci­ sion devra être prise sur base des faits réels non par des on dit ou rumeurs et par l’Assemblée Générale.
+– S’il viole les principes bibliques du témoignage chrétien. Cela peut être fait avec ou sans avertissement préliminaire dépendant de la gravité du péché commis. L’Eglise locale aura l’autorité de délibérer sur de tels cas pour ses membres. Toute décision devra être prise sur base des faits réels non par des on dit ou rumeurs et par l’Assemblée Générale.

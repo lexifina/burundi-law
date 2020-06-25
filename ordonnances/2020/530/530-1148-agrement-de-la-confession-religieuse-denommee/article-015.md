@@ -6,7 +6,7 @@ Tout membre effectif a l’obligation de:
 
 – Respecter et faire respecter les textes législatifs et réglementaires régissant l’Eglise;
 
-– Participer à toutes les activités de l’Eglise aux­ quelles il est appelé ;
+– Participer à toutes les activités de l’Eglise auxquelles il est appelé ;
 
 – S’acquitter régulièrement des contributions obligatoires ;
 
@@ -14,4 +14,6 @@ Tout membre effectif a l’obligation de:
 
 – Eviter tout fait ou acte de nature à entraver la bonne marche ou ternir l’image de l’Eglise;
 
-– Ne pas se servir de l’Eglise pour défendre ses intérêts personnels. Chapitre IV Composition et fonctionnement des organes
+– Ne pas se servir de l’Eglise pour défendre ses intérêts personnels.
+
+Chapitre IV Composition et fonctionnement des organes
