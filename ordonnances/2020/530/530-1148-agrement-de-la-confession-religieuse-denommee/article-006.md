@@ -1,0 +1,3 @@
+# Article 6
+
+De la vision L’Eglise Internationale de la Parole Puissante au BURUNDI, « E.I.P.P. en sigle a pour mission de semer la Parole puissante de Dieu à travers une vision basée sur la puissance de cette Parole, celle de la Prière et celle de l’Amour. Cette mission sera accompli au Burundi et dans le monde car désormais le sang de notre Seigneur nous unit tous et fait de nous des vrais frères et sœurs. L’individu ne peut plus donner le sens de son exis­ tence à travers une vision limitative rétrograde et primitive mais plutôt à travers une union recon­ nue dans un même et seul Dieu le Seigneur Jésus Christ.
