@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés au grade de Général Major à la date du 01er juillet 2020, les Généraux de Brigade suivants: Général de Brigade NKURUNZIZA Joseph, SS0042 de la matricule; Général de Brigade NDAYIKENGURUKIYE Aloys, SS0078 de la matricule; Général de Brigade KANDERENGE Théodore, SS0082 de la matricule; Général de Brigade HABARUREMA Ildéphonse, SS0090 de la matricule; Général de Brigade NDUWUMUNSI Audace, SS0096 de la matricule; Général de Brigade GATERETSE Maurice, SS0107 de la matricule; Général de Brigade NGENDABANKA Marius, SS0244 de la matricule; Général de Brigade HABIMANA Jean Paul, SS0372 de la matricule.
