@@ -1,0 +1,3 @@
+# Article 94
+
+L’étudiant n’ayant pas pu défendre son mémoire à la fin de la dernière année pourra le faire au plus tard 6 mois après la proclamation des résultats de la deuxième session se rapportant à la dernière année du cycle. Toutefois, une dérogation peut lui être accordée après avis favorable du Conseil de département sur base d’un rapport circonstancié présenté par le directeur du mémoire. La dérogation accordée ne peut aller au-delà de six mois après la période prévue à l’alinéa premier. Passé ce délai de dérogation, il est définitivement exclu de l’Institut sur le plan académique, sauf cas de force majeure constatée par le Conseil de département.
