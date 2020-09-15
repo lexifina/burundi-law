@@ -1,0 +1,3 @@
+# Article 3
+
+Pour les usagers des points d’eau gérés dans le cadre des Régies Communales d’Eau, le payement sera assuré par le Ministère des Finances, du Budget et du Développement Economique au profit de ces régies, sur présentation des notes dressées par celles-ci et approuvées conjointement par la Commune concernée et l’Agence de l’Hydraulique et de !’Assainissement en milieu rural (AHAMR), au cours de la période considérée Pour les bornes fontaines du milieu urbain, le payement sera directement accordé à la REGIDESO sur présentation des factures de la période considérée, moyennant un tarif de 250 F bu par m3.
