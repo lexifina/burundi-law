@@ -1,0 +1,3 @@
+# Article 7
+
+Le bénéficiaire de cette Ordonnance est tenu de dénoncer tous les exploitants illégaux œuvrant dans son entourage en informant l’administra-tion à la base et/ou le Ministère ayant les Mines dans ses attributions.
