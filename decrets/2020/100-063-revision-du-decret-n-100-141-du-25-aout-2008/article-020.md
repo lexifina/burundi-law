@@ -12,4 +12,6 @@ Le Bureau chargé de la Planification, de l’Instruction et des Opérations Mil
 
 - participer à l’organisation des honneurs militaires de la Force de Défense Nationale du Burundi à rendre au Président de la République et aux Chefs d’Etats étrangers ;
 
-- assurer le suivi et l’évaluation de la situation dans le pays sur le plan de la défense nationale. Un décret spécifique fixe l’organisation et le fonctionnement du Cabinet Civil du Président de la République, du Cabinet chargé des Questions de la Police et du Cabinet chargé des Questions Militaires. Section 4 Du Secrétariat Général de l’Etat
+- assurer le suivi et l’évaluation de la situation dans le pays sur le plan de la défense nationale. Un décret spécifique fixe l’organisation et le fonctionnement du Cabinet Civil du Président de la République, du Cabinet chargé des Questions de la Police et du Cabinet chargé des Questions Militaires.
+
+Section 4 Du Secrétariat Général de l’Etat

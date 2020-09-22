@@ -12,4 +12,6 @@ La Présidence de la République comprend les services suivants :
 
 - Les Services rattachés au Président de la République ;
 
-- Les Administrations Spécialisées. Chapitre II De l’Organisation et des Attributions Section 1 Du Cabinet Civil du Président de la République
+- Les Administrations Spécialisées.
+
+Chapitre II De l’Organisation et des Attributions Section 1 Du Cabinet Civil du Président de la République

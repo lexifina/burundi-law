@@ -10,4 +10,6 @@ Le Bureau chargé des questions judiciaires et mouvement des personnes est dirig
 
 - assurer le suivi du renseignement en matière de sécurité ;
 
-- traiter et suivre tous les cas de mouvements des personnes sur tout le territoire national; Section 3 Du Cabinet chargé des Questions Militaires
+- traiter et suivre tous les cas de mouvements des personnes sur tout le territoire national;
+
+Section 3 Du Cabinet chargé des Questions Militaires

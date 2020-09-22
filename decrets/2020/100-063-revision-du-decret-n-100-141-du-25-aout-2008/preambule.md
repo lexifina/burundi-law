@@ -8,4 +8,6 @@ Vu la Loi n°1/08 du 28 avril 2011 portant Organisation Générale de l’Admini
 
 Vu le Décret n°100/007 du 28 juin 2020 portant Révision du Décret n°100/037 du 19 avril 2018 portant Structure, Fonctionnement et Missions du Gouvernement de la République du Burundi, Revu le Décret n°l00/141 du 25 août 2008 portant Modification du Décret n°l00/247 du 24 août 2007 portant Réorganisation des Services de la Présidence de la République ;
 
-Décrète: Chapitre 1 Des dispositions Générales
+Décrète:
+
+Chapitre 1 Des dispositions Générales
