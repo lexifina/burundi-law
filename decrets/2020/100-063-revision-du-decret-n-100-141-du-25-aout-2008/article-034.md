@@ -1,0 +1,3 @@
+# Article 34
+
+Le Bureau d’Etudes Stratégiques et de Développement est organisé au tour des programmes suivants : 1 programme de Développement Agricole et Sécurité Alimentaire ; 2 programmes de Développement de l’Energie, des Infrastructures et des Logements sociaux ; 3 programmes de Développement Industriel et Commercial ; 4 programmes de Protection de l’Environnement, des Changements Climatiques et du Dividende des Ressources Naturelles ; 5 programme de Développement des TIC et du Climat des Affaires ; 6 programmes de Planification Economique, du Suivi et Evaluation de l’Action Gouvernementale. Un décret spécifique fixe l’organisation et le fonctionnement du Bureau d’Etudes Stratégiques et de Développement.
