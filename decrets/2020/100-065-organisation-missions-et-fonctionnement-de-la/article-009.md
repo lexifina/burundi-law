@@ -14,4 +14,6 @@ Les Bureaux spécialisés sont :
 
 6° le Bureau chargé de l’emploi, des ressources humaines de l’Etat et des Finances;
 
-7° le Bureau chargé de la presse et de la communication. Section 2 Des missions
+7° le Bureau chargé de la presse et de la communication.
+
+Section 2 Des missions
