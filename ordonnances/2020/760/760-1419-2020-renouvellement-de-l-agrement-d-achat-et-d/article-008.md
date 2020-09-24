@@ -1,0 +1,3 @@
+# Article 8
+
+La présente Ordonnance peut être annulée dans les conditions spécifiques prévues par le Code Minier du Burundi ou pour non-respect des obli-gations légales et réglementaires en résultant. Toutefois, l’arrêt ou la suspension des activités non justifié dépassant trois mois successifs conduira à l’annulation pure et simple de cette Ordonnance.
