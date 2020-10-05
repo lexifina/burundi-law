@@ -1,0 +1,19 @@
+# Article 2 4
+
+Le site Nenga-Gitenge, d’une superficie de 0.55 ha, se trouve sur un terrain à pente moyenne et est délimité par les coordonnées géographiques ci-après: Sommet Longitude Est Latitude Sud A
+
+29°19’33,8"
+
+03°00’30,0" B
+
+29°19’33,6"
+
+03°00’32,7" C
+
+29°19’30,7"
+
+03°00’31,4" D
+
+29°19’31,3"
+
+03°00’30,0"

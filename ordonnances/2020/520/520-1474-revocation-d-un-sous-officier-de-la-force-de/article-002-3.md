@@ -1,0 +1,23 @@
+# Article 2 3
+
+Le site Rwimbogo II, d’une superficie de 0.99 ha, se trouve sur un terrain à pente moyenne et est délimité par les coordonnées géographiques ci-après : Sommet Longitude Est Latitude Sud A
+
+30°00’12,3"
+
+2°47’5,8" B
+
+30°00’14,2"
+
+2°47’5,2" C
+
+30°00’15,5"
+
+2°47’3,6" D
+
+30°00’14,6"
+
+2°47’0,7" E
+
+30°00’11,9"
+
+2°47’2,7°

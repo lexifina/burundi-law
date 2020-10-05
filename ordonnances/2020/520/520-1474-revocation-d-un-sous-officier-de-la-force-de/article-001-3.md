@@ -1,0 +1,3 @@
+# Article 1 3
+
+La Coopérative TUGIRUBUMWE KIREMBA, enregistrée sous les numéros RC15869/19 et NIF : 4001219627, domiciliée à Kiremba (Ngozi), télépho ne 69 169 051 / 69 171 355, est autorisée à mener ses activités d’exploitation artisanale de la Cassitérite sur le site Rwimbogo II, colline Rwimbogo, commune Kiremba, province Ngozi.
