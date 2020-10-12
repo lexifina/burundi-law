@@ -1,0 +1,3 @@
+# Article 20
+
+Ingingo ya 20 Toute personne physique ou morale qui détient un stock de sacs ou de sachets en plastique à l’expiration du délai de grâce de 18 mois prévu par l’article 9 du Décret n°100/099 du 08 août 2018.est puni d’une amende de cinq millions (5.000.000) à dix millions (10.000.000) de francs burundais Umuntu wese afise ku giti ciwe canke c’ishirahamwe mububiko imifuko canke amasashe bihinguwe mu bumwanya inyuma y’ikiringo c’amezi cumi n’umunami categekanijwe mu ngingo y’icenda y’itegeko inomero 100/099 ryo ku wa 08/08/2018 ahanishwa ihadabu riri hagati y’imiriyoni zitanu (5.000.000) n’imiriyoni cumi (10.000.000) y’amafaranga y’amarundi

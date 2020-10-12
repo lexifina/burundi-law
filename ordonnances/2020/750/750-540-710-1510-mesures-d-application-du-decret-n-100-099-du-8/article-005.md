@@ -1,0 +1,3 @@
+# Article 5
+
+Ingingo ya 5 En application de l’article 5 du décret susmentionné la demande à adresser au Ministre en charge de l’environnement en vue de l’autorisation de l’importation, de la vente, de l’utilisation ou de la fabrication de tout sachet spécifié à l’article 4 dudit décret concerne limitativement les sacs et les sachets d’emballages en plastique Mw’ishirwa mu ngiro y’ingingo ya 5 y’iri tegeko uruhusha rusabwa umushikiranganji ajejwe ibidukikije kugirango atange uruhusha rwo kwinjiza, guhingura kundandaza no gukoresha amasashe n’ubumwanya ubwo ari bwo bwose vyavuzwe mu ngingo ya 4 y’1ri tegeko rwerekeye gusa amasashe n’ubumwanya n’ibindi bitekezo bikozwe mu kamwanya
