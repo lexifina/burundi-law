@@ -14,4 +14,6 @@ L’Hôpital de la Police Nationale du Burundi a pour missions de :
 
 6° transmettre les statistiques sanitaires au district sanitaire de la circonscription dans laquelle il est établi ;
 
-7° exercer toute autre activité permettant la réalisation de sa mission. CHAPITRE II DE L’ORGANISATION ADMINISTRATIVE
+7° exercer toute autre activité permettant la réalisation de sa mission.
+
+CHAPITRE II DE L’ORGANISATION ADMINISTRATIVE

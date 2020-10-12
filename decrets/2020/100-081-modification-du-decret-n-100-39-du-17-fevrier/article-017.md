@@ -12,4 +12,6 @@ Les ressources de l’Hôpital de la Police Nationale du Burundi proviennent not
 
 5° du produit de vente du matériel déclassé ou réformé ;
 
-6° des emprunts auprès des tiers ; ces emprunts doivent être subordonnés à l’autorisation du Ministre de la Sécurité publique et de la gestion des catastrophes. Section 2 Des dépenses
+6° des emprunts auprès des tiers ; ces emprunts doivent être subordonnés à l’autorisation du Ministre de la Sécurité publique et de la gestion des catastrophes.
+
+Section 2 Des dépenses
