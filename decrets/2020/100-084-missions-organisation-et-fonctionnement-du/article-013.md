@@ -18,4 +18,6 @@ Des administrations personnalisées de l’Etat. Sont placées sous la tutelle d
 
 - Centre National d’Appareillage et de Réadaptation(CNAR) créé par décret n°100/008 du 25 janvier 2000 portant Réorganisation du Centre National d’Appareillage et de Rééducation.
 
-Les statuts de ces administrations, conformes au cadre organique des administrations personnalisées de l’Etat, sont précisés par des décrets spécifiques. Section 2 Du fonctionnement
+Les statuts de ces administrations, conformes au cadre organique des administrations personnalisées de l’Etat, sont précisés par des décrets spécifiques.
+
+Section 2 Du fonctionnement

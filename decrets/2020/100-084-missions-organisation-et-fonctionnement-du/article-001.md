@@ -30,4 +30,6 @@ Le Ministère de la Solidarité Nationale, des Affaires Sociales, des Droits de 
 
 - concevoir la politique du Ministère en matière de bonne gouvernance ;
 
-- élaborer et assurer le suivi des projets d’investissement du Ministère. CHAPITRE II DE L’ORGANISATION ET DU FONCTIONNEMENT Section 1 De l’Organisation
+- élaborer et assurer le suivi des projets d’investissement du Ministère.
+
+CHAPITRE II DE L’ORGANISATION ET DU FONCTIONNEMENT Section 1 De l’Organisation
