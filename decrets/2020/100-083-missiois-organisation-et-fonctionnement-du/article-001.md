@@ -38,4 +38,6 @@ Le Ministère de la Fonction Publique, du Travail et de l’Emploi a pour missio
 
 - mettre au point des normes pour une meilleure gestion services et biens de l’Etat et contrôler leur application effective ;
 
-- élaborer et assurer le suivi des projets d’investissement d Ministère. CHAPITRE II DE L’ORGANISATION ET DES ATTRIBUTIONS Section 1 De l’organisation
+- élaborer et assurer le suivi des projets d’investissement d Ministère.
+
+CHAPITRE II DE L’ORGANISATION ET DES ATTRIBUTIONS Section 1 De l’organisation

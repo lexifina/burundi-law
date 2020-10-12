@@ -6,4 +6,6 @@ La Direction Générale du Travail comprend trois directions :
 
 - la Direction de l’Administration du Travail et des Relations Professionnelles ;
 
-- la Direction de l’Emploi. Section 2 Des attributions
+- la Direction de l’Emploi.
+
+Section 2 Des attributions
