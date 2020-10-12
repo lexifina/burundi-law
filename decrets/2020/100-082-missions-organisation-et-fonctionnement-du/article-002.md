@@ -122,4 +122,6 @@ Le Ministère de l’Intérieur, du Développement Communautaire et de la Sécur
 
 60° élaborer et assurer le suivi des projets d’investissement du ministère;
 
-61° concevoir la politique du ministère en matière de bonne gouvernance. CHAPITRE III DE L’ORGANISATION
+61° concevoir la politique du ministère en matière de bonne gouvernance.
+
+CHAPITRE III DE L’ORGANISATION

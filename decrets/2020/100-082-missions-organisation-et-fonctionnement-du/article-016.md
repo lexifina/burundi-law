@@ -12,4 +12,6 @@ La Direction Générale des Etudes Stratégiques et des Statistiques comprend :
 
 5° une Cellule de Conseillers ;
 
-6° un Secrétariat. CHAPITRE IV DES MISSIONS DES STRUCTURES
+6° un Secrétariat.
+
+CHAPITRE IV DES MISSIONS DES STRUCTURES
