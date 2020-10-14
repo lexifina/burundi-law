@@ -12,4 +12,6 @@ Les membres du Comité technique multisectoriel, ont les tâches suivantes :
 
 - Donner des orientations aux consultants;
 
-- Fixer les cadres d’échanges suffisants pour mieux enrichir le plan d’action. Chapitre V Dispositions finales
+- Fixer les cadres d’échanges suffisants pour mieux enrichir le plan d’action.
+
+Chapitre V Dispositions finales
