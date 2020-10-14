@@ -20,4 +20,6 @@ Vu la Convention 122 de l’OIT qui oblige les Etats membres de mettre en place 
 
 Considérant les axes principaux de la Politique Nationale de L’Emploi (2014) et sa stratégie de mise œuvre (2018)
 
-Ordonne: CHAPITRE 1 DE LA CREATION
+Ordonne:
+
+CHAPITRE 1 DE LA CREATION

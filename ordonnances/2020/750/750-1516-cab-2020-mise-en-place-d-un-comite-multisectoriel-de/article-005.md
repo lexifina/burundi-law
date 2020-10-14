@@ -10,4 +10,6 @@ Les membres du Comité multisectoriel de pilotage, ont les tâches suivantes
 
 - Faciliter la collecte des données des consultants;
 
-- Valider les rapports des consultants et du Comité Technique. Chapitre iv De la prolongation des activités du comité de pilotage
+- Valider les rapports des consultants et du Comité Technique.
+
+Chapitre iv De la prolongation des activités du comité de pilotage
