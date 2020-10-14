@@ -10,4 +10,6 @@ Service Logistique Le Service Logistique a pour missions de :
 
 - Appuyer la gestion logistique des structures du Ministère ;
 
-- Produire les rapports d’activités du service. Section 2 De l’Organisation de la Direction Générale des Finances Publiques
+- Produire les rapports d’activités du service.
+
+Section 2 De l’Organisation de la Direction Générale des Finances Publiques

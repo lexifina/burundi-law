@@ -12,4 +12,6 @@ Service de Contrôle et Audit Interne Le Service de Contrôle et Audit Interne a
 
 - Effectuer régulièrement des évaluations des performances des services ;
 
-- Produire les rapports d’activités du service. Section 2 De l’organisation de la Direction de l’Informatique
+- Produire les rapports d’activités du service.
+
+Section 2 De l’organisation de la Direction de l’Informatique

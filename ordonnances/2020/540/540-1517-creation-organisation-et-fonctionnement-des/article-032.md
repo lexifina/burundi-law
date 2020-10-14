@@ -18,4 +18,6 @@ Service des Etudes et Analyses Le Service des Etudes et Analyses a pour missions
 
 - Préparer les émissions d’emprunts de l’Etat sous forme de bons ou obligations du Trésor en collaboration avec les responsables de la gestion de la trésorerie et sur base d’analyse des besoins de financement de l’Etat ;
 
-- Produire les rapports d’activités du service. Section 3 De l’organisation de la Direction Générale du Budget et de la Politique Fiscale
+- Produire les rapports d’activités du service.
+
+Section 3 De l’organisation de la Direction Générale du Budget et de la Politique Fiscale

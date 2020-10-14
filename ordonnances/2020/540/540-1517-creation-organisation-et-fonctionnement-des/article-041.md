@@ -18,4 +18,6 @@ Service Fiscalité de Porte Le Service Fiscalité de Porte a pour missions de :
 
 - Gérer le contentieux entre l’Administration fiscale (OBR) et les contribuables en matière douanière ;
 
-- Produire les rapports d’activité du service. Section 4 De l’organisation de la Direction Générale de la Planification
+- Produire les rapports d’activité du service.
+
+Section 4 De l’organisation de la Direction Générale de la Planification

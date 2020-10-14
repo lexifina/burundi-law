@@ -10,4 +10,6 @@ Service des Etudes et Suivi-Evaluation Le Service des Etudes et Suivi-Evaluation
 
 - Rédiger et publier les rapports nationaux périodiques de suivi de financement extérieurs ;
 
-- Produire le rapport d’activités du service. Section 5 De l’organisation de la Direction Générale du Portefeuille de l’Etat
+- Produire le rapport d’activités du service.
+
+Section 5 De l’organisation de la Direction Générale du Portefeuille de l’Etat

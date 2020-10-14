@@ -12,4 +12,6 @@ Le Secrétariat Permanent comprend :
 
 - Un Secrétariat.
 
-Les ordonnances ministérielles de mise en place des différentes cellules reprennent les missions leur attribuées. Chapitre II Des rattachements au secrétariat permanent
+Les ordonnances ministérielles de mise en place des différentes cellules reprennent les missions leur attribuées.
+
+Chapitre II Des rattachements au secrétariat permanent

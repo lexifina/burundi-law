@@ -18,4 +18,6 @@ Service de la Base de Données du Patrimoine de l’État Le Service de la Base 
 
 - Assurer la formation et l’assistance aux utilisateurs ;
 
-- Produire les rapports d’activités du service. Chapitre IV Des dispositions finales
+- Produire les rapports d’activités du service.
+
+Chapitre IV Des dispositions finales

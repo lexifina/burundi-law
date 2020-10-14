@@ -20,4 +20,6 @@ Vu le Décret n°100/007 du 28 juin 2020 portant Révision du décret n°100/037
 
 Vu le Décret n°100/069 du 24 septembre 2020 portant Missions, Organisation et Fonctionnement du Ministère des Finances, du Budget et de la Planification Economique ; Revu l’ordonnance ministérielle n°540/21502 du 09/12/2019 portant Création, organisation et fonctionnement des Services de l’Administration centrale du Ministère des Finances, du Budget et de la Coopération au Développement Economique ;
 
-Ordonne: Chapitre I Des dispositions générales
+Ordonne:
+
+Chapitre I Des dispositions générales

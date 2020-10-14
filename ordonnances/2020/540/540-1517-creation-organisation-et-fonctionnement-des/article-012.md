@@ -16,4 +16,6 @@ Service des Infrastructures Informatiques Le Service des Infrastructures Informa
 
 - Faire la sauvegarde des systèmes ;
 
-- Produire les rapports d’activités du service. CHAPITRE III Des directions générales Section 1 De l’organisation de la Direction Générale de l’Administration et des Finances
+- Produire les rapports d’activités du service.
+
+CHAPITRE III Des directions générales Section 1 De l’organisation de la Direction Générale de l’Administration et des Finances
