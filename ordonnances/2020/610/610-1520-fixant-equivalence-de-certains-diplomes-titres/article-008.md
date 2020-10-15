@@ -1,0 +1,3 @@
+# Article 8
+
+Le Diplôme de Master en Technologie des Processus de Transport, Orientation Transport pour les activités du Commerce Extérieur, délivré en juillet 2020 par l’Université Technique d’Etat de Construction Automobile et des Routes de Moscou (MADI) (Moscow Automobile and Road Construction State Technical University) en Fédération de Russie, deux années d’Etudes après le Diplôme de Licence en Administration et Gestion, Option : Marketing et Management, jouit de l’équivalence académique et administrative avec le Diplôme de Master en Technologie des Processus de Transport, Orientation Transport pour les activités du Commerce Extérieur reconnu au Burundi.
