@@ -22,4 +22,6 @@ Les Administrations Personnalisées suivantes :
 
 - le Fonds de Service Universel des TIC (FSU).
 
-Les institutions citées ci-dessus sont régies par des textes spécifiques. CHAPITRE III DES ATTRIBUTIONS DU MINISTERE Section 1 De la Coordination du Cabinet Ministériel
+Les institutions citées ci-dessus sont régies par des textes spécifiques.
+
+CHAPITRE III DES ATTRIBUTIONS DU MINISTERE Section 1 De la Coordination du Cabinet Ministériel

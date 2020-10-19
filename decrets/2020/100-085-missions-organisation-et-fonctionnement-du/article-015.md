@@ -16,4 +16,6 @@ L’Inspection Générale du Ministère a pour mission principale de contrôle i
 
 - dresser des rapports d’audit ;
 
-- proposer des redressements éventuels. Section 7 De la Direction Générale de la Communication et des Médias La Direction Générale de la Communication et des Médias assure la coordination des travaux de la Direction de la Communication ainsi que ceux de la Direction des Médias.
+- proposer des redressements éventuels.
+
+Section 7 De la Direction Générale de la Communication et des Médias La Direction Générale de la Communication et des Médias assure la coordination des travaux de la Direction de la Communication ainsi que ceux de la Direction des Médias.

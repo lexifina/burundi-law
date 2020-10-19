@@ -20,4 +20,6 @@ La Direction de la Planification et des Politiques des TIC a pour missions de :
 
 - assurer le suivi des obligations internationales dont le Burundi est partie prenante en matière des télécommunications et de la poste.
 
-La direction comprend deux services dont le service des politiques du secteur des Technologie de l’Information et le service de coopération et partenariat. Section 12 De la Direction des infrastructures
+La direction comprend deux services dont le service des politiques du secteur des Technologie de l’Information et le service de coopération et partenariat.
+
+Section 12 De la Direction des infrastructures

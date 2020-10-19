@@ -18,4 +18,6 @@ La Direction des infrastructures a pour missions de :
 
 - suivre la mise en œuvre des projets de modernisation et d’extension des réseaux des TIC.
 
-La direction comprend deux services dont le service chargé du suivi et du développement des infrastructures des TIC et le service chargé de la promotion de l’investissement en infrastructure des TIC. CHAPITRE IV DES DISPOSITIONS FINALES
+La direction comprend deux services dont le service chargé du suivi et du développement des infrastructures des TIC et le service chargé de la promotion de l’investissement en infrastructure des TIC.
+
+CHAPITRE IV DES DISPOSITIONS FINALES

@@ -16,4 +16,6 @@ La Direction des Médias est chargée de :
 
 - participer à l’administration du Fonds d’Appui aux Médias.
 
-La Direction des Médias comprend deux services à savoir le Service de la Législation et le Service du Monitoring. Section 10 De la Direction Générale des Technologies de l’Information
+La Direction des Médias comprend deux services à savoir le Service de la Législation et le Service du Monitoring.
+
+Section 10 De la Direction Générale des Technologies de l’Information

@@ -22,4 +22,6 @@ La Direction Générale des Technologies de l’Information a pour missions de :
 
 - participer à l’élaboration et à la négociation des accords régionaux et internationaux en matière de la radiodiffusion et des médias.
 
-La Direction Générale des Technologies de l’Information comprend deux directions à savoir : la direction de la planification et des politiques des TIC ainsi que la direction des infrastructures des TIC. Section 11 De la Direction de la Planification et des Politiques des TIC
+La Direction Générale des Technologies de l’Information comprend deux directions à savoir : la direction de la planification et des politiques des TIC ainsi que la direction des infrastructures des TIC.
+
+Section 11 De la Direction de la Planification et des Politiques des TIC

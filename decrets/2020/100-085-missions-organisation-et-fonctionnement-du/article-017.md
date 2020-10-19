@@ -14,4 +14,6 @@ La Direction de la Communication est chargée de :
 
 - assurer la visibilité du Ministère.
 
-La Direction de la Communication comprend deux services à savoir le service de la communication et le service des relations publiques. Section 9 De la Direction des Médias
+La Direction de la Communication comprend deux services à savoir le service de la communication et le service des relations publiques.
+
+Section 9 De la Direction des Médias

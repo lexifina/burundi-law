@@ -20,4 +20,6 @@ La Direction Générale de la Communication et des Médias est chargée de:
 
 - veiller au respect des compétences partagées entre le Conseil National de la Communication et le Ministère ;
 
-- créer un environnement favorisant l’épanouissement de la liberté de la presse publique et privée. Section 8 De la Direction de la Communication
+- créer un environnement favorisant l’épanouissement de la liberté de la presse publique et privée.
+
+Section 8 De la Direction de la Communication
