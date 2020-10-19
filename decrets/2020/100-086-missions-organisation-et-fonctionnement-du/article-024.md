@@ -26,4 +26,6 @@ Direction de la Gestion des Produits Pétroliers et Gaziers La Direction de la G
 
 - assurer le suivi des entreprises d’importation et de stockage des produits pétroliers et du gaz de pétrole liquéfié (GPL) ;
 
-- participer à la lutte contre la fraude. CHAPITRE III DES DISPOSITIONS TRANSITOIRES ET FINALES.
+- participer à la lutte contre la fraude.
+
+CHAPITRE III DES DISPOSITIONS TRANSITOIRES ET FINALES.

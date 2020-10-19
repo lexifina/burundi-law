@@ -10,4 +10,6 @@ Des administrations personnalisées de l’Etat Sont également placées sous la
 
 - l’Agence Burundaise de l’Hydraulique et de l’Assainissement en Milieu Rural (AHAMR).
 
-Les statuts de ces administrations personnalisées, conformes au cadre organique des Administrations Personnalisées de l’Etat, sont précisés par des décrets spécifiques. Section 2 Du fonctionnement Paragraphe 1 De la Coordination du Cabinet du Ministre
+Les statuts de ces administrations personnalisées, conformes au cadre organique des Administrations Personnalisées de l’Etat, sont précisés par des décrets spécifiques.
+
+Section 2 Du fonctionnement Paragraphe 1 De la Coordination du Cabinet du Ministre

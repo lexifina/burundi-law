@@ -26,4 +26,6 @@ Le Ministère de l’Hydraulique, de l’Energie et des Mines a pour missions pr
 
 - participer, en collaboration avec le Ministère en charge de la Coopération au Développement, aux programmes d’échanges et de partenariat en matière de l’eau, de l’énergie, des mines et des hydrocarbures avec des institutions régionales ou internationales, dont le Burundi est membre;
 
-- élaborer et assurer le suivi des projets d’investissement du Ministère. CHAPITRE II DE L’ORGANISATION ET DU FONCTIONNEMENT Section 1 De l’organisation
+- élaborer et assurer le suivi des projets d’investissement du Ministère.
+
+CHAPITRE II DE L’ORGANISATION ET DU FONCTIONNEMENT Section 1 De l’organisation
