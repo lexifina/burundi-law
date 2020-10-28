@@ -48,4 +48,6 @@ Le Ministère de l’Education Nationale et de la Recherche Scientifique a pour 
 
 - mettre au point des normes pour une meilleure gestion des biens et services de l’Etat et contrôler leur application effective;
 
-- élaborer et assurer le suivi des projets d’investissement du Ministère en collaboration avec les ministères concernés. Chapitre II De l’organisation et des attributions Section 1 De l’organisation
+- élaborer et assurer le suivi des projets d’investissement du Ministère en collaboration avec les ministères concernés.
+
+Chapitre II De l’organisation et des attributions Section 1 De l’organisation

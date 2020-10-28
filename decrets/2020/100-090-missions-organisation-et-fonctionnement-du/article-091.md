@@ -18,4 +18,6 @@ Le Bureau de l’éducation inclusive est chargée de:
 
 8° identifier les besoins des élèves et des étudiants vivant avec handicap et s’assurer qu’ils rentrent dans les prévisions d’accompagnement;
 
-9° s’assurer d’une bonne collaboration avec les partenaires qui travaillent sur cette thématique. Chapitre III Des dispositions finales
+9° s’assurer d’une bonne collaboration avec les partenaires qui travaillent sur cette thématique.
+
+Chapitre III Des dispositions finales
