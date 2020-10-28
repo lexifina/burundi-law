@@ -1,0 +1,17 @@
+# Article 13
+
+La Direction du Suivi-Evaluation a pour missions de:
+
+- concevoir et mettre en place un système de suivi-évaluation des politiques, stratégies, programmes et projets du secteur agricole ;
+
+- assurer la Planification Environnementale, Agricole et de l’Elevage dans ses tâches de renforcement de capacités des Directions Générales Techniques et les Bureaux Provinciaux de l’Environnement, de l’Agriculture et de l’Elevage en matière de suivi-évaluation des programmes et projets ;
+
+- assurer le suivi technique et financier des réalisations dans les centres de responsabilités ;
+
+- évaluer les réalisations des interventions du secteur environnemental, agricole et de l’élevage;
+
+- centraliser et coordonner le suivi technique et financier des programmes d’investissements publics et des autres interventions du secteur dont celles gérées par les organisations non gouvernementales ;
+
+- élaborer les rapports périodiques consolidés du Ministère de l’Environnement, de l’Agriculture et de l’Elevage ;
+
+- préparer les tableaux de bord et autres informations de suivi et d’évaluation destinées aux autorités de la République et des partenaires du Ministère.

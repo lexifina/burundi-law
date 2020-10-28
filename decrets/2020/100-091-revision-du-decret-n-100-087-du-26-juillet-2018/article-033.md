@@ -1,0 +1,33 @@
+# Article 33
+
+La Direction de la Promotion des Filières Animales a pour missions de :
+
+- élaborer les politiques de développement des filières animales en collaboration avec les autres structures concernées ;
+
+- coordonner les activités de production, d’importation et de commercialisation des intrants d’élevage et produits d’origine animale;
+
+- identifier les besoins en intrants d’élevage (animaux de race améliorée, aliments, ....), faisant objet de recherche;
+
+- suivre la production des intrants d’élevage dans les centres naisseurs et les centres de recherche ;
+
+- assurer l’affectation des intrants d’élevage produits par les centres de recherche ;
+
+- en collaboration avec les Bureaux Provinciaux de l’Environnement, de l’Agriculture et de l’Elevage, identifier et organiser les circuits de commercialisation des intrants d’élevage et apicole et produits d’origine animale;
+
+- coordonner et superviser la mise en œuvre de la politique nationale concernant l’ensemble des filières animales ;
+
+- élaborer et suivre la mise en œuvre de la législation relative au développement des filières animales ;
+
+- s’assurer de la disponibilité en quantités et qualités suffisantes des intrants d’élevage;
+
+- proposer les normes de qualité des intrants et produits d’origine animale;
+
+- appuyer la DGPEAE dans la détermination de la contribution de chaque filière animale dans l’économie nationale ;
+
+- appuyer les Bureaux Provinciaux de l’Environnement, de l’Agriculture et de l’Elevage dans sa mission d’accompagnement des acteurs du secteur élevage pour la promotion des filières animales;
+
+- en collaboration avec la DGEPAE, identifier les filières animales les plus porteuses et en produire des études de faisabilité ;
+
+- en collaboration avec la DGPEAE et l’Agence de Promotion des Investissement (API), inciter le secteur privé (national et étranger) à investir dans les filières animales ;
+
+- élaborer les programmes de travail et budget annuels de la Direction.

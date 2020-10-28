@@ -1,0 +1,25 @@
+# Article 14
+
+La Direction des Statistiques et Informations Environnementales, Agricoles et d’Elevage a pour missions de:
+
+- élaborer, en collaboration avec l’Institut de la Statistique et des Etudes Economiques du Burundi, les méthodologies d’enquêtes, recensements et autres systèmes d’informations agricoles;
+
+- faciliter et superviser la mise en œuvre des enquêtes, recensements et autres systèmes d’informations environnementales, agricoles, sylvicoles, animales et halieutiques ;
+
+- rassembler, traiter et diffuser les données statistiques collectées par les centres de responsabilités ou dans le cadre d’enquêtes, de recensements et autres systèmes d’informations environnementales et agricoles ;
+
+- produire un tableau de bord régulier reflétant les statistiques et informations environnementales, agricoles, sylvicoles, animales et halieutiques ;
+
+- constituer une banque de données sur les statistiques et informations environnementales, agricoles, sylvicoles, animales et halieutiques ;
+
+- collecter et analyser les données statistiques au niveau national et sous-régional ;
+
+- organiser et gérer la documentation sur le secteur environnemental, agricole et d’élevage;
+
+- mettre en place et gérer le réseau national d’informations sur le secteur;
+
+- développer des relations avec d’autres circuits internationaux d’information du secteur;
+
+- en collaboration avec la cellule communication, alimenter le site web du Ministère de l’Environnement, de l’Agriculture et de l’Elevage en statistiques et informations environnementales et agricoles ;
+
+- préparer les informations économiques agricoles destinées à la mobilisation des investissements privés dans le secteur environnemental, agricole et de l’élevage.
