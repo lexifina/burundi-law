@@ -70,4 +70,6 @@ Le Ministère de l’Environnement, de l’Agriculture et de l’Elevage a pour 
 
 - concevoir la politique du Ministère en matière de la bonne gouvernance ;
 
-- élaborer et assurer le suivi des projets d’investissement du Ministère. Chapitre II De l’organisation et des attributions Section 1 De l’organisation
+- élaborer et assurer le suivi des projets d’investissement du Ministère.
+
+Chapitre II De l’organisation et des attributions Section 1 De l’organisation

@@ -24,4 +24,6 @@ Les administrations personnalisées et des sociétés paraétatiques sont :
 
 - Institut Géographique du Burundi (IGEBU);
 
-Les administrations personnalisées et les sociétés paraétatiques sont créées par décret et dépendent de l’administration centrale. Section 2 Des attributions
+Les administrations personnalisées et les sociétés paraétatiques sont créées par décret et dépendent de l’administration centrale.
+
+Section 2 Des attributions
