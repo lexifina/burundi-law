@@ -1,0 +1,3 @@
+# Article 55
+
+Les établissements d’enseignement supérieur publics et privés non universitaires ayant un statut particulier ont pour missions principales de: 1. assurer la formation initiale et continue dans les domaines relatifs au secteur dont ils relèvent ; 2. préparer à l’insertion ou à la réinsertion dans la vie active ; 3. développer la recherche-développement et l’innovation technologique au secteur dont ils relèvent; 4. participer au processus du développement économique à travers la création des entreprises ou des industries par des start-ups; 5. établir des relations de partenariat avec les secteurs de productions publics et privés dont ils relèvent; 6. participer à toute autre action de développement du pays au secteur dont ils relèvent.

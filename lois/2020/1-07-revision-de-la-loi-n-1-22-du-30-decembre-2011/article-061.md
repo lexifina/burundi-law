@@ -1,0 +1,3 @@
+# Article 61
+
+Les ressources des universités et autres établissements publics d’enseignement supérieur proviennent: 1. des subventions de l’Etat; 2. des droits payés par les étudiants à titre de frais d’inscription aux cours et au rôle, ainsi que des frais de scolarité ; 3. des droits perçus au titre de la formation continue; 4. des contributions financières ou autres en provenance des coopérations bilatérales ou multilatérales ; 5. des produits et bénéfices provenant des travaux de recherche et prestations de services notamment des travaux d’expertise; 6. des ressources à caractère exceptionnel provenant des transactions relatives aux éléments du patrimoine foncier et immobilier ; 7. des dons et legs régulièrement accordés ; 8. des recettes et produits divers.

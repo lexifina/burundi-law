@@ -1,0 +1,3 @@
+# Article 43
+
+Dans le cadre des missions assignées à l’enseignement supérieur par la présente loi, les universités publiques et privées jouent un rôle pilote en matière de formation, de recherche/innovation et de coopération interuniversitaire notamment : 1. en offrant préférentiellement les parcours de formation conduisant aux titres académiques les plus élevés ; 2. en animant des programmes de recherche/innovation auxquels peuvent être associées des entreprises publiques et privées; 3. en participant au processus du développement économique à travers la création des entreprises ou des industries par des start-ups ; 4. en participant à des réseaux régionaux et/ou internationaux d’établissements d’enseignement supérieur.

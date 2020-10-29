@@ -1,0 +1,3 @@
+# Article 62
+
+Les dépenses sont constituées : 1. des traitements, salaires, indemnités et allocations versés aux personnels ; 2. des charges sociales ; 3. des dépenses de fonctionnement et d’équipement; 4. des dépenses d’enseignement et de recherche/innovation/start-ups; 5. des dépenses relatives aux activités culturelles et sportives ; 6. des stages, bourses et prêt-bourses accordés aux étudiants ; 7. des dépenses diverses. Les dépenses des établissements publics d’enseignement supérieur non universitaires ayant un statut particulier peuvent également comprendre le montant des bourses d’études et de stages ou des prêt-bourses versées aux étudiants.
