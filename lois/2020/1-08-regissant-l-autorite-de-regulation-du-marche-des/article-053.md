@@ -28,4 +28,6 @@ Coopération avec les Autorités de régulation étrangères L’Autorité peut,
 
 6° retirer l’agrément d’une personne agréée ou autorisée ;
 
-7° requérir une décision de la juridiction commerciale compétente. CHAPITRE VI DE L’INDEMNISATION DES INVESTISSEURS
+7° requérir une décision de la juridiction commerciale compétente.
+
+CHAPITRE VI DE L’INDEMNISATION DES INVESTISSEURS

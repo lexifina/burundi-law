@@ -48,4 +48,6 @@ Missions L’Autorité a pour missions de :
 
 23° entreprendre d’autres activités susceptibles de donner plein effet aux dispositions de la présente loi et à ses mesures d’application ;
 
-24° exercer toute autre fonction lui conférée par toute autre loi ou règlement en vigueur au Burundi. CHAPITRE III DE L’ORGANISATION DE L’AUTORITÉ Section 1 De l’organisation administrative
+24° exercer toute autre fonction lui conférée par toute autre loi ou règlement en vigueur au Burundi.
+
+CHAPITRE III DE L’ORGANISATION DE L’AUTORITÉ Section 1 De l’organisation administrative

@@ -14,4 +14,6 @@ Les règlements visés à l’alinéa précédent doivent :
 
 5° conférer à l’Autorité ou à un organe qui administre le fonds un droit de recours contre une personne autorisée ou agréée pour les indemnités versées au titre d’une réclamation faite contre elle et, dans le cas de son insolvabilité, un droit de revendication comme créancier ;
 
-6° régler toute autre question qui s’y rapporte. CHAPITRE VII DES DISPOSITIONS TRANSITOIRES ET FINALES
+6° régler toute autre question qui s’y rapporte.
+
+CHAPITRE VII DES DISPOSITIONS TRANSITOIRES ET FINALES
