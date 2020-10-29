@@ -1,0 +1,3 @@
+# Article 42
+
+Pouvoir d’imposer des interdictions L’Autorité peut interdire à une personne autorisée ou agréée de conclure des transactions, de solliciter ou d’exercer ses activités dans le cadre ou aux fins du marché des capitaux. L’Autorité peut, de son initiative ou à la demande d’une personne à qui une interdiction ou une obligation a été imposée en vertu de l’alinéa 1, annuler ou modifier l’interdiction ou l’exigence si l’Autorité trouve qu’il n’est plus nécessaire que l’interdiction ou l’exigence prenne effet ou reste en vigueur ou, le cas échéant, qu’elle prenne effet ou demeure en vigueur sous une forme différente.

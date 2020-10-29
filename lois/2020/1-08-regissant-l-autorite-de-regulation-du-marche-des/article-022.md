@@ -1,0 +1,3 @@
+# Article 22
+
+Procédure de traitement des conflits d’intérêts Lorsqu’un membre du Conseil d’Administration a déclaré un conflit d’intérêts par rapport à toute question devant être discutée dans une réunion du Conseil d’Administration, la déclaration doit être enregistrée et l’administrateur concerné ne compte plus dans le quorum et ne participe pas aux délibérations sur la question dans laquelle il a un intérêt. L’omission de révéler un conflit d’intérêts constitue une violation des responsabilités fiduciaires et peut entraîner l’interruption du mandat d’un membre du Conseil d’Administration conformément à l’article 15 de la présente loi.

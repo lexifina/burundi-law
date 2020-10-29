@@ -1,0 +1,3 @@
+# Article 38
+
+Consultation avec les parties prenantes Lorsque l’Autorité prépare des projets de lois ou de règlements, des déclarations de principe ou des codes de pratique, elle les porte à la connaissance des parties prenantes de la manière qu’elle juge convenable. Les propositions et le coût de la mise en conformité avec ces dernières sont accompagnés d’un avis selon lequel les considérations des parties prenantes doivent parvenir à l’Autorité dans un délai qu’elle détermine. L’Autorité tient compte des avis et considérations des parties prenantes dans la finalisation des projets de lois ou de règlements, dans l’optique de faire prévaloir l’intérêt général.

@@ -1,0 +1,7 @@
+# Article 50
+
+Demande de renseignements L’Autorité ou son représentant peut, par écrit, demander à toute personne autorisée ou agréée, de lui fournir, dans le délai qu’elle précise, tous les documents ou renseignements spécifiés. Tout responsable ou agent de l’Autorité ne peut révéler à personne, ni utiliser les documents ou les renseignements acquis, en violation des restrictions imposées par les lois et règlements en vigueur. Nonobstant les dispositions de l’alinéa 2, l’Autorité peut fournir l’assistance demandée ou d’autres formes d’aide qu’elle juge nécessaires, lorsqu’elle reçoit une demande d’un organisme de régulation, que celui-ci soit établi au Burundi ou en dehors du Burundi, visant à recevoir de l’aide pour faire des enquêtes sur une personne spécifiée par l’organisme de régulation, qui a contrevenu ou contrevient à l’une des dispositions légales ou règlementaires qui:
+
+1° sont appliquées par l’organisme de régulation ;
+
+2° portent sur les transactions de titres réglementés par cet organisme de régulation et si elle est d’avis que cette demande satisfait aux exigences de l’alinéa 4. Un organisme de régulation qui demande une aide au titre de l’alinéa 3 doit démontrer que l’intérêt public le justifie et que l’aide contribue à l’amélioration de l’exercice de ses fonctions. Lorsque les conditions visées à l’alinéa précédent sont réunies, l’Autorité doit s’assurer que l’organisme de régulation paye à l’Autorité les frais et les dépenses encourues dans le cadre de l’offre de l’aide et qu’il est en mesure de fournir une aide réciproque.
