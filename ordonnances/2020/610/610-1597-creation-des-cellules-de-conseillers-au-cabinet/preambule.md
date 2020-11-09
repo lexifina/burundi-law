@@ -6,11 +6,11 @@ Le Ministre de l’Education Nationale et de la Recherche Scientifique,
 
 Vu la Constitution de la République du Burundi;
 
-Vu la loi n°1/09 du 17 mars 2005 portant Distinc­ tion des Fonctions Politiques des Fonctions Tech­ niques;
+Vu la loi n°1/09 du 17 mars 2005 portant Distinction des Fonctions Politiques des Fonctions Techniques;
 
-Vu la loi n°1/08 du 28 avril 2011 portant Organi­ sation Générale de l’ Administration Publique;
+Vu la loi n°1/08 du 28 avril 2011 portant Organisation Générale de l’ Administration Publique;
 
-Vu la loi n°1/019 du 10 septembre 2013 portant organisation de l’enseignement de base et secon­ daire;
+Vu la loi n°1/019 du 10 septembre 2013 portant organisation de l’enseignement de base et secondaire;
 
 Vu le décret n°100/007 du 28 juin 2020 portant Révision du décret n°100/037 du 19 avril 2018 portant Structure, Fonctionnement et Missions du Gouvernement de la République du Burundi;
 
