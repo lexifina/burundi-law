@@ -1,6 +1,6 @@
 # Article 4
 
-Des services de l’administration centrale Les services de l’administration centrale com­ prennent:
+Des services de l’administration centrale Les services de l’administration centrale comprennent:
 
 – la coordination du Cabinet du Ministre;
 

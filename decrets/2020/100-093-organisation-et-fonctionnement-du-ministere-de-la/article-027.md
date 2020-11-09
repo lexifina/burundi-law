@@ -1,18 +1,18 @@
 # Article 27
 
-De la Direction Générale des Ressources La Direction Générale des Ressources a pour mis­ sions de:
+De la Direction Générale des Ressources La Direction Générale des Ressources a pour missions de:
 
-– élaborer, mettre à jour et appuyer la politique de développement et de répartition équitable des ressources humaines, matérielles et finan­ cières du ministère;
+– élaborer, mettre à jour et appuyer la politique de développement et de répartition équitable des ressources humaines, matérielles et financières du ministère;
 
-– suivre les études et l’exécution de construction et de réhabilitation des infrastructures sani­ taires;
+– suivre les études et l’exécution de construction et de réhabilitation des infrastructures sanitaires;
 
-– assurer la supervision et le suivi de l’exécution des budgets des services, programmes et pro­ jets de santé;
+– assurer la supervision et le suivi de l’exécution des budgets des services, programmes et projets de santé;
 
 – veiller au fonctionnement optimal de la cellule de passation des marchés publics;
 
 – préparer la passation des marchés en fonction des politiques, normes et procédures en vigueur;
 
-– assurer et coordonner les formations ou le ren­ forcement des capacités en matière de gestion à tous les niveaux du système de santé;
+– assurer et coordonner les formations ou le renforcement des capacités en matière de gestion à tous les niveaux du système de santé;
 
 – élaborer les outils de gestion et de rapportage financier;
 

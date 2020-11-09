@@ -4,7 +4,7 @@ De la Direction Générale des Ressources La Direction Générale des Ressources
 
 – la Direction des Ressources Humaines;
 
-– la Direction du Budget et des Approvisionne­ ments;
+– la Direction du Budget et des Approvisionnements;
 
 – la Direction des Infrastructures Sanitaires et Equipements;
 

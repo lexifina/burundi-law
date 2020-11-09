@@ -14,14 +14,14 @@ De la Coordination du Cabinet du Ministre La coordination du Cabinet comprend:
 
 – l’Institut National de Santé Publique (INSP);
 
-– la Centrale d’Achat des Médicaments Essen­ tiels du Burundi (CAMEBU);
+– la Centrale d’Achat des Médicaments Essentiels du Burundi (CAMEBU);
 
 – le Centre National de Transfusion Sanguine (CNTS);
 
-– les Hôpitaux Nationaux de Troisième Réfé­ rence;
+– les Hôpitaux Nationaux de Troisième Référence;
 
-– le Programme National de Santé de la Repro­ duction (PNSR);
+– le Programme National de Santé de la Reproduction (PNSR);
 
-– le Centre National de Référence en Kinésithé­ rapie et Réadaptation médicale (CNRKR);
+– le Centre National de Référence en Kinésithérapie et Réadaptation médicale (CNRKR);
 
-– l’Autorité Burundaise de Régulation des Médi­ caments à usage humain et des Aliments (ABREMA).
+– l’Autorité Burundaise de Régulation des Médicaments à usage humain et des Aliments (ABREMA).

@@ -6,24 +6,24 @@ De la Direction Générale de la Planification La Direction Générale de la Pla
 
 – veiller à l’élaboration, au suivi-évaluation des diverses planifications des directions sous sa coordination;
 
-– coordonner et superviser l’ensemble du mana­ gement et de l’administration de la direction générale de la planification;
+– coordonner et superviser l’ensemble du management et de l’administration de la direction générale de la planification;
 
 – veiller à la tenue conforme et au respect des calendriers de réunions des directions sous sa coordination;
 
 – veiller à l’application du système de contrôle de la performance inhérent à la méthodologie de planification du ministère;
 
-– coordonner le cycle de planification de tout le ministère y compris la planification opération­ nelle annuelle;
+– coordonner le cycle de planification de tout le ministère y compris la planification opérationnelle annuelle;
 
-– veiller à l’élaboration, au suivi-évaluation des diverses planifications du ministère et des dif­ férents échelons de la pyramide sanitaire;
+– veiller à l’élaboration, au suivi-évaluation des diverses planifications du ministère et des différents échelons de la pyramide sanitaire;
 
-– coordonner l’élaboration et le suivi des plans stratégiques et opérationnels des différents ser­ vices du ministère et à tous les niveaux du sys­ tème de santé;
+– coordonner l’élaboration et le suivi des plans stratégiques et opérationnels des différents services du ministère et à tous les niveaux du système de santé;
 
-– coordonner la consolidation des plans opéra­ tionnels des différents services du ministère et de ceux des partenaires techniques et finan­ ciers afin d’arriver à une planification globale et intégrée du secteur de la santé;
+– coordonner la consolidation des plans opérationnels des différents services du ministère et de ceux des partenaires techniques et financiers afin d’arriver à une planification globale et intégrée du secteur de la santé;
 
 – coordonner la conduite d’études et de recherches opérationnelles en collaboration avec des institutions nationales, régionales et internationales de recherche;
 
-– coordonner la gestion de l’information sani­ taire;
+– coordonner la gestion de l’information sanitaire;
 
 – élaborer la politique de planification et celle régissant le système d’information sanitaire;
 
-– collaborer à la rédaction des documents des politiques de santé et de plan national de déve­ loppement sanitaire.
+– collaborer à la rédaction des documents des politiques de santé et de plan national de développement sanitaire.
