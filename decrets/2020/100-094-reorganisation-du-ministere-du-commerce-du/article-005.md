@@ -1,10 +1,10 @@
 # Article 5
 
-Sont placés sous la tutelle du Ministre les institu­ tions publiques et à participation publique sui­ vantes:
+Sont placés sous la tutelle du Ministre les institutions publiques et à participation publique suivantes:
 
 – le Bureau Burundais de Normalisation et Contrôle de la Qualité (BBN);
 
-– le Centre National des Technologies Alimen­ taires (CNTA);
+– le Centre National des Technologies Alimentaires (CNTA);
 
 – la Loterie Nationale (LONA);
 
@@ -14,7 +14,7 @@ Sont placés sous la tutelle du Ministre les institu­ tions publiques et à par
 
 – l’Autorité de l’Aviation Civile du Burundi (AACB);
 
-– la Société Burundaise de Gestion Aéropor­ tuaire (SOBUGEA);
+– la Société Burundaise de Gestion Aéroportuaire (SOBUGEA);
 
 – Global Ports Services (GPSB);
 
@@ -22,4 +22,4 @@ Sont placés sous la tutelle du Ministre les institu­ tions publiques et à par
 
 – la Société Hôtelière et Touristique du Burundi (SHTB);
 
-– le Cadre de Dialogue et de Concertation pour un Partenariat du Secteur Public et du Secteur Privé. Chaque institution est régie par un texte spéci­ fique.
+– le Cadre de Dialogue et de Concertation pour un Partenariat du Secteur Public et du Secteur Privé. Chaque institution est régie par un texte spécifique.

@@ -1,14 +1,14 @@
 # Article 21
 
-La Direction des Transports Intérieurs est char­ gée notamment de:
+La Direction des Transports Intérieurs est chargée notamment de:
 
 – participer à l’élaboration et assurer l’exécution de la politique des transports intérieurs;
 
-– mettre en œuvre des réglementations et straté­ gies de développement des activités des trans­ ports intérieurs;
+– mettre en œuvre des réglementations et stratégies de développement des activités des transports intérieurs;
 
 – organiser et encadrer les opérateurs du secteur des transports intérieurs;
 
-– suivre en permanence le comportement du sec­ teur des transports intérieurs et en tenir les statistiques;
+– suivre en permanence le comportement du secteur des transports intérieurs et en tenir les statistiques;
 
 – veiller à l’application des lois et règlements en matière de transports intérieurs;
 

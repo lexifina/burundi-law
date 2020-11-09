@@ -1,12 +1,12 @@
 # Article 31
 
-La Direction de la Production Artisanale est char­ gée notamment de:
+La Direction de la Production Artisanale est chargée notamment de:
 
-– encadrer les artisans et les groupements d’arti­ sans;
+– encadrer les artisans et les groupements d’artisans;
 
 – promouvoir la commercialisation des produits artisanaux;
 
-– organiser des actions de promotion de l’artisa­ nat et de micro- entreprise artisanale tant à l’intérieur du pays qu’à l’extérieur du pays;
+– organiser des actions de promotion de l’artisanat et de micro- entreprise artisanale tant à l’intérieur du pays qu’à l’extérieur du pays;
 
 – identifier les sources de matières premières et autres intrants pour la diversification et le développement des produits artisanaux;
 
@@ -14,4 +14,6 @@ La Direction de la Production Artisanale est char­ gée notamment de:
 
 – prospecter les marchés des produits artisanaux tant au niveau local qu’à l’étranger;
 
-– tenir à jour le registre des artisans profession­ nels et des unités et micro-entreprises artisa­ nales. Chapitre III Des dispositions finales
+– tenir à jour le registre des artisans professionnels et des unités et micro-entreprises artisanales.
+
+Chapitre III Des dispositions finales

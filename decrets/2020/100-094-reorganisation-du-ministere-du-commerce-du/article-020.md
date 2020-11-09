@@ -1,8 +1,8 @@
 # Article 20
 
-La Direction Générale des Transports a pour mis­ sions notamment de:
+La Direction Générale des Transports a pour missions notamment de:
 
-– élaborer des stratégies de promotion et de déve­ loppement du secteur du transport;
+– élaborer des stratégies de promotion et de développement du secteur du transport;
 
 – exécuter la politique gouvernementale en matière des transports en collaboration avec les départements sous tutelle, offices, régies et administrations personnalisées du secteur;
 
@@ -24,12 +24,12 @@ La Direction Générale des Transports a pour mis­ sions notamment de:
 
 – promouvoir le développement et l’entretien du réseau routier et ferroviaire en vue de favoriser le désenclavement du pays;
 
-– développer et réglementer les systèmes de transport par voies terrestre, aérienne, ferro­ viaire et lacustre favorables au désenclavement du pays;
+– développer et réglementer les systèmes de transport par voies terrestre, aérienne, ferroviaire et lacustre favorables au désenclavement du pays;
 
-– concevoir et mettre en œuvre une politique de rentabilisation maximale des infrastructures routières, portuaires, aéroportuaires et ferro­ viaires;
+– concevoir et mettre en œuvre une politique de rentabilisation maximale des infrastructures routières, portuaires, aéroportuaires et ferroviaires;
 
-– promouvoir la prévention en matière de sécu­ rité routière en collaboration avec les autres ministères concernés;
+– promouvoir la prévention en matière de sécurité routière en collaboration avec les autres ministères concernés;
 
 – mettre en œuvre une politique d’acquisition et de gestion rationnelle du charroi de l’Etat et en assurer le suivi;
 
-– élaborer et assurer le suivi des projets d’inves­ tissement en matière des transports routiers, ferroviaires, lacustres et aériens.
+– élaborer et assurer le suivi des projets d’investissement en matière des transports routiers, ferroviaires, lacustres et aériens.

@@ -4,15 +4,15 @@ La Direction des Transports Internationaux est chargée notamment de:
 
 – participer à l’élaboration de la politique de désenclavement du pays par voies routière, lacustre, ferroviaire et aérienne;
 
-– organiser et encadrer les transporteurs et les transitaires routiers internationaux en met­ tant à leur disposition une réglementation appropriée;
+– organiser et encadrer les transporteurs et les transitaires routiers internationaux en mettant à leur disposition une réglementation appropriée;
 
-– initier des études et stratégies pour le dévelop­ pement des infrastructures de transports rou­ tiers, ferroviaires, lacustres et aéroportuaires;
+– initier des études et stratégies pour le développement des infrastructures de transports routiers, ferroviaires, lacustres et aéroportuaires;
 
 – assurer le suivi des transports nationaux;
 
-– suivre en permanence le comportement des sec­ teurs concernés et en tenir les statistiques;
+– suivre en permanence le comportement des secteurs concernés et en tenir les statistiques;
 
-– traiter les dossiers de demande d’agrément des transporteurs et transitaires routiers interna­ tionaux;
+– traiter les dossiers de demande d’agrément des transporteurs et transitaires routiers internationaux;
 
 – assurer le suivi des relations entre l’Etat et les opérateurs économiques des différents secteurs et résoudre les cas litigieux pouvant naître de ces relations ou ceux pouvant naître entre les opérateurs eux-mêmes;
 

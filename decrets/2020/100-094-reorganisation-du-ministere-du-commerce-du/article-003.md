@@ -1,6 +1,6 @@
 # Article 3
 
-Les services de l’administration centrale com­ prennent: 1. la Coordination du Cabinet Ministériel; 2. le Secrétariat Permanent du Ministère; 3. l’Inspection Générale; 4. cinq Directions Générales, à savoir:
+Les services de l’administration centrale comprennent: 1. la Coordination du Cabinet Ministériel; 2. le Secrétariat Permanent du Ministère; 3. l’Inspection Générale; 4. cinq Directions Générales, à savoir:
 
 – la Direction Générale du Commerce;
 
