@@ -6,7 +6,7 @@ Sont nommés Chefs de Bureaux aux Etats-Majors des Divisions d’infanterie:
 
 – Bureau Chargé du Renseignement Militaire: Colonel Joël NKEZABAHIZI, SS0306 de la matricule.
 
-– Bureau Chargé de l’Instruction, Entraine­ ment et des Opérations: Colonel Richard BIMENYIMANA, SS0474 de la matricule.
+– Bureau Chargé de l’Instruction, Entrainement et des Opérations: Colonel Richard BIMENYIMANA, SS0474 de la matricule.
 
 – Bureau Chargé de la Logistique: Colonel Fidèle NIKOBAMEZE, SS0383 de la matricule.
 
@@ -16,11 +16,11 @@ Sont nommés Chefs de Bureaux aux Etats-Majors des Divisions d’infanterie:
 
 – Deuxième Division d’infanterie:
 
-– Bureau Chargé du Personnel: Lieutenant-Colonel Samuel BARARUNYE­ RETSE, SS1789 de la matricule.
+– Bureau Chargé du Personnel: Lieutenant-Colonel Samuel BARARUNYERETSE, SS1789 de la matricule.
 
 – Bureau Chargé Renseignement Militaire: Colonel Révérien NDUWUMWAMI SS0402 de la matricule.
 
-– Bureau Chargé de l’instruction, Entraine­ ment et des Opérations: Lieutenant-Colonel Eliphase NGENDAKU­ RIYO, SS0568 de la matricule.
+– Bureau Chargé de l’instruction, Entrainement et des Opérations: Lieutenant-Colonel Eliphase NGENDAKURIYO, SS0568 de la matricule.
 
 – Bureau Chargé de la Logistique: Lieutenant-Colonel Willy MUHANUKA, SS0505 de la matricule.
 
@@ -38,10 +38,10 @@ Sont nommés Chefs de Bureaux aux Etats-Majors des Divisions d’infanterie:
 
 – Quatrième Division d’infanterie:
 
-– Bureau Chargé du Personnel: Lieutenant-Colonel Léonidas NDUWI­ MANA, SS0605 de la matricule.
+– Bureau Chargé du Personnel: Lieutenant-Colonel Léonidas NDUWIMANA, SS0605 de la matricule.
 
-– Bureau Chargé de l’instruction, Entraine­ ment et des Opérations: Colonel Casimir NIHANKURA, SS0477 de la matricule.
+– Bureau Chargé de l’instruction, Entrainement et des Opérations: Colonel Casimir NIHANKURA, SS0477 de la matricule.
 
 – Bureau Chargé de la Logistique: Lieutenant-Colonel Diomède NDAYI-SHIMIYE, SS0575 de la matricule.
 
-– Bureau Chargé du Moral et des Relations Publiques: Lieutenant-Colonel Léopold BIGIRIN­ DAVYI, SS0572 de la matricule.
+– Bureau Chargé du Moral et des Relations Publiques: Lieutenant-Colonel Léopold BIGIRINDAVYI, SS0572 de la matricule.

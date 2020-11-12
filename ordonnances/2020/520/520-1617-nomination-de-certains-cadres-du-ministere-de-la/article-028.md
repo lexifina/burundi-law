@@ -10,17 +10,17 @@ Sont nommés Commandants des Bataillons:
 
 – Trois Cent Vingt-et-Unième Bataillon: Lieutenant-Colonel Astérie MASABO, SS1047 de la matricule.
 
-– Trois Cent Vingt-Deuxième Bataillon: Lieutenant-Colonel Jean de Dieu NTAKIRUTI­ MANA, SS1124 de la matricule.
+– Trois Cent Vingt-Deuxième Bataillon: Lieutenant-Colonel Jean de Dieu NTAKIRUTIMANA, SS1124 de la matricule.
 
 – Quatre Cent Douzième Bataillon: Lieutenant-Colonel Alfred MAYUYU, SS0541 de la matricule.
 
 – Quatre Cent Vingt-Deuxième Bataillon: Lieutenant-Colonel Désiré NDAYISENGA, SS0754 de la matricule.
 
-– Bataillon de Défense Contre Avion Active: Lieutenant -Colonel Jean Baptiste NAHISHA­ KIYE, SS0742 de la matricule.
+– Bataillon de Défense Contre Avion Active: Lieutenant -Colonel Jean Baptiste NAHISHAKIYE, SS0742 de la matricule.
 
 – Bataillon Police Militaire: Lieutenant-Colonel Antoine NKUNZIMANA, SS0833 de la matricule.
 
-– Bataillon d’infanterie Lacustre Lieutenant-Colonel Léonidas NGENZEBU­ HORO, SS0522 de la matricule.
+– Bataillon d’infanterie Lacustre Lieutenant-Colonel Léonidas NGENZEBUHORO, SS0522 de la matricule.
 
 – Bataillon Mortier: Major Diomède NIYONGABO, SS1236 de la matricule.
 

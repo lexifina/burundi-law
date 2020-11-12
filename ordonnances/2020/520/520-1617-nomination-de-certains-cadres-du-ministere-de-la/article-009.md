@@ -1,6 +1,6 @@
 # Article 9
 
-Sont nommés Adjoints Commandants des Divi­ sions:
+Sont nommés Adjoints Commandants des Divisions:
 
 – Première Division d’infanterie: Colonel Déogratias HATUNGIMANA, SS0390 de la matricule.
 

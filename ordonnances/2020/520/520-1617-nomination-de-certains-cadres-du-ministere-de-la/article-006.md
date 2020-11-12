@@ -1,6 +1,6 @@
 # Article 6
 
-Sont nommés Chefs de Service à la Direction Administrative et Financière de la Régie Mili­ taire de Construction:
+Sont nommés Chefs de Service à la Direction Administrative et Financière de la Régie Militaire de Construction:
 
 – Service Chargé de la Comptabilité et des Finances: Lieutenant-Colonel Jonas MARIBICURO, SS0713 de la matricule.
 

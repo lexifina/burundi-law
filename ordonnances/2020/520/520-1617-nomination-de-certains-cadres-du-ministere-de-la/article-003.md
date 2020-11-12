@@ -1,8 +1,8 @@
 # Article 3
 
-Sont nommés Inspecteurs Techniques à l’Inspec­ tion Générale au Ministère de la Défense Natio­ nale et des Anciens Combattants:
+Sont nommés Inspecteurs Techniques à l’Inspection Générale au Ministère de la Défense Nationale et des Anciens Combattants:
 
-– Chargé de l’instruction, Formation, Entraîne­ ment et Opérations: Colonel Ildephonse KABURUNDI, SS0394 de la matricule.
+– Chargé de l’instruction, Formation, Entraînement et Opérations: Colonel Ildephonse KABURUNDI, SS0394 de la matricule.
 
 – Chargé des Transports: Colonel Emile HAVUGIYAREMYE, SS0245 de la matricule.
 

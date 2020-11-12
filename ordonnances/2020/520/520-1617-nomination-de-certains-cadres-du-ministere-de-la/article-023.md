@@ -1,14 +1,14 @@
 # Article 23
 
-Sont nommés Adjoints Commandants des Bri­ gades:
+Sont nommés Adjoints Commandants des Brigades:
 
 – Cent Dixième Brigade: Lieutenant-Colonel Gérard NZEYIMANA, SS0612 de la matricule.
 
-– Deux Cent Dixième Brigade: Lieutenant-Colonel Désiré NDIHO­ KUBWAYO, SS1783 de la matricule.
+– Deux Cent Dixième Brigade: Lieutenant-Colonel Désiré NDIHOKUBWAYO, SS1783 de la matricule.
 
 – Deux Cent Vingtième Brigade: Lieutenant-Colonel Claver NDAYISHIMIYE, SS0771 de la matricule.
 
-– Trois Cent Dixième Brigade: Lieutenant-Colonel Protais NTAKIRUTI­ MANA, SS0587 de la matricule.
+– Trois Cent Dixième Brigade: Lieutenant-Colonel Protais NTAKIRUTIMANA, SS0587 de la matricule.
 
 – Trois Cent Vingtième Brigade: Lieutenant-Colonel Léonidas MATONDE, SS0674 de la matricule.
 

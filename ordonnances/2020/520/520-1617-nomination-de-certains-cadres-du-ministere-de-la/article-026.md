@@ -1,6 +1,6 @@
 # Article 26
 
-Sont nommés Chefs de Bureaux dans les Bri­ gades:
+Sont nommés Chefs de Bureaux dans les Brigades:
 
 – Cent Dixième Brigade:
 
@@ -8,41 +8,41 @@ Sont nommés Chefs de Bureaux dans les Bri­ gades:
 
 – Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Libère NIYONKURU, SS0947 de la matricule.
 
-– Bureau Chargé de l’Instruction, Entraîne­ ment et des Opérations: Lieutenant-Colonel Janvier RUZOBA­ VAKO, SS0896 de la matricule.
+– Bureau Chargé de l’Instruction, Entraînement et des Opérations: Lieutenant-Colonel Janvier RUZOBAVAKO, SS0896 de la matricule.
 
-– Bureau Chargé Publiques du Moral des Mili­ taires et des Relations: Lieutenant-Colonel Jonas NIMBONA, SS0803 de la matricule.
+– Bureau Chargé Publiques du Moral des Militaires et des Relations: Lieutenant-Colonel Jonas NIMBONA, SS0803 de la matricule.
 
-– Bureau Chargé de la Logistique: Lieutenant-Colonel Evariste NIHORIM­ BERE, SS0903 de la matricule.
+– Bureau Chargé de la Logistique: Lieutenant-Colonel Evariste NIHORIMBERE, SS0903 de la matricule.
 
 – Cent Vingtième Brigade:
 
-– Bureau Chargé du Personnel: Lieutenant-Colonel Dismas BIGIRIN­ DAVYI, SS0746 de la matricule.
+– Bureau Chargé du Personnel: Lieutenant-Colonel Dismas BIGIRINDAVYI, SS0746 de la matricule.
 
-– Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Déo NTAHONDAKI­ RIRA, SS1059 de la matricule:
+– Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Déo NTAHONDAKIRIRA, SS1059 de la matricule:
 
-– Bureau Chargé de l’instruction, de l’Entrai­ nement et des Opérations: Lieutenant-Colonel Joseph MAJAMBERE, SS0706 de la matricule.
+– Bureau Chargé de l’instruction, de l’Entrainement et des Opérations: Lieutenant-Colonel Joseph MAJAMBERE, SS0706 de la matricule.
 
-– Bureau Chargé de la Logistique: Lieutenant-Colonel Bonaventure NIBA­ RUTA, SS0794 de la matricule.
+– Bureau Chargé de la Logistique: Lieutenant-Colonel Bonaventure NIBARUTA, SS0794 de la matricule.
 
 – Deux Cent Dixième Brigade:
 
-– Bureau Chargé de l’instruction, de l’Entraî­ nement et des Opérations: Lieutenant-Colonel Liévin NYANDWI, SS0878 de la matricule.
+– Bureau Chargé de l’instruction, de l’Entraînement et des Opérations: Lieutenant-Colonel Liévin NYANDWI, SS0878 de la matricule.
 
-– Bureau Chargé du Personnel et de la Logis­ tique: Lieutenant-Colonel Justin NKUNZIMANA, SS0853 de la matricule.
+– Bureau Chargé du Personnel et de la Logistique: Lieutenant-Colonel Justin NKUNZIMANA, SS0853 de la matricule.
 
-– Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Germain NTI­ RANDEKURA, SS1801 de la matricule.
+– Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Germain NTIRANDEKURA, SS1801 de la matricule.
 
 – Deux Cent Vingtième Brigade:
 
-– Bureau Chargé du Personnel: Lieutenant-Colonel Pierre-Claver SHIRAM­ BERE, SS1192 de la matricule.
+– Bureau Chargé du Personnel: Lieutenant-Colonel Pierre-Claver SHIRAMBERE, SS1192 de la matricule.
 
-– Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Hussein BINYAM­ AHANGA, SS0649 de la matricule.
+– Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Hussein BINYAMAHANGA, SS0649 de la matricule.
 
-– Bureau Chargé de l’instruction, de l’Entraî­ nement et des Opérations: Lieutenant-Colonel Prudence NSHIMIRI­ MANA, SS0844 de la matricule.
+– Bureau Chargé de l’instruction, de l’Entraînement et des Opérations: Lieutenant-Colonel Prudence NSHIMIRIMANA, SS0844 de la matricule.
 
-– Bureau Chargé de la Logistique: Lieutenant-Colonel Désiré BASEKAKA­ RIYO, SS1804 de la matricule.
+– Bureau Chargé de la Logistique: Lieutenant-Colonel Désiré BASEKAKARIYO, SS1804 de la matricule.
 
-– Bureau Chargé du Moral des Militaires et Relations Publiques: Lieutenant-Colonel Léonard NTIBAM­ FASHE, SS0583 de la matricule.
+– Bureau Chargé du Moral des Militaires et Relations Publiques: Lieutenant-Colonel Léonard NTIBAMFASHE, SS0583 de la matricule.
 
 – Trois Cent Dixième Brigade:
 
@@ -50,7 +50,7 @@ Sont nommés Chefs de Bureaux dans les Bri­ gades:
 
 – Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Eric Simon GAHUNGU, SS0664 de la matricule.
 
-– Bureau Chargé de l’Instruction, Entraîne­ ment et des Opérations: Lieutenant-Colonel Côme NGARUKIYE, SS0790 de la matricule.
+– Bureau Chargé de l’Instruction, Entraînement et des Opérations: Lieutenant-Colonel Côme NGARUKIYE, SS0790 de la matricule.
 
 – Bureau Chargé de la Logistique: Lieutenant-Colonel Egide NDAYENGENGE, SS1098 de la matricule.
 
@@ -60,9 +60,9 @@ Sont nommés Chefs de Bureaux dans les Bri­ gades:
 
 – Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Révérien NZIRUBUSA, SS0594 de la matricule.
 
-– Bureau Chargé de l’Instruction, Entraîne­ ment et des Opérations: Lieutenant-Colonel Nicolas BASHIZIM­ PAKA, SS1019 de la matricule.
+– Bureau Chargé de l’Instruction, Entraînement et des Opérations: Lieutenant-Colonel Nicolas BASHIZIMPAKA, SS1019 de la matricule.
 
-– Bureau Chargé de la Logistique: Lieutenant-Colonel Patrice BANTEYAM­ ANGA, SS0646 de la matricule.
+– Bureau Chargé de la Logistique: Lieutenant-Colonel Patrice BANTEYAMANGA, SS0646 de la matricule.
 
 – Bureau Chargé du Moral des Militaires et des Relations Publiques: Lieutenant-Colonel Sylvain SIBOMANA, SS0901 de la matricule.
 
@@ -80,17 +80,17 @@ Sont nommés Chefs de Bureaux dans les Bri­ gades:
 
 – Brigade Logistique de la Force de Défense Nationale du Burundi:
 
-– Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Nicodème HAVYARI­ MANA, SS0510 de la matricule.
+– Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Nicodème HAVYARIMANA, SS0510 de la matricule.
 
-– Bureau Chargé de l’Instruction, Entraîne­ ment et des Opérations: Lieutenant-Colonel Etienne HORUGAVYE, SS0769 de la matricule.
+– Bureau Chargé de l’Instruction, Entraînement et des Opérations: Lieutenant-Colonel Etienne HORUGAVYE, SS0769 de la matricule.
 
 – Bureau Chargé du Moral des Militaires et des Relations Publiques: Lieutenant-Colonel Daniel HAHORIMANA, SS0670 de la matricule.
 
 – Brigade d’Artillerie:
 
-– Bureau Chargé du Personnel: Lieutenant-Colonel Théophile HAVYARI­ MANA, SS1187 de la matricule.
+– Bureau Chargé du Personnel: Lieutenant-Colonel Théophile HAVYARIMANA, SS1187 de la matricule.
 
-– Bureau Chargé de l’instruction, Entraîne­ ment et des Opérations: Lieutenant-Colonel Emmanuel NDAYI-SHIMIYE, SS1039 de la matricule.
+– Bureau Chargé de l’instruction, Entraînement et des Opérations: Lieutenant-Colonel Emmanuel NDAYI-SHIMIYE, SS1039 de la matricule.
 
 – Bureau Chargé de la Logistique: Lieutenant-Colonel Pascal NDIKUMANA, SS1795 de la matricule.
 
@@ -100,9 +100,9 @@ Sont nommés Chefs de Bureaux dans les Bri­ gades:
 
 – Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel André HAKIZIMANA, SS0734 de la matricule.
 
-– Bureau Chargé de l’instruction, Entraine­ ment et des Opérations: Lieutenant-Colonel Jean-Claude IRAKOZE, SS1319 de la matricule.
+– Bureau Chargé de l’instruction, Entrainement et des Opérations: Lieutenant-Colonel Jean-Claude IRAKOZE, SS1319 de la matricule.
 
-– Bureau Chargé de la Logistique: Lieutenant-Colonel Pamphile NTAHOM­ VUKIYE, SS1808 de la matricule.
+– Bureau Chargé de la Logistique: Lieutenant-Colonel Pamphile NTAHOMVUKIYE, SS1808 de la matricule.
 
 – Brigade de Défense contre Avion:
 
@@ -110,7 +110,7 @@ Sont nommés Chefs de Bureaux dans les Bri­ gades:
 
 – Bureau Chargé du Renseignement Militaire: Lieutenant-Colonel Isaac NIYONZIMA, SS0824 de la matricule.
 
-– Bureau Chargé de l’instruction, Entraine­ ment et des Opérations: Lieutenant-Colonel Elie NIYONKURU, SS1690 de la matricule.
+– Bureau Chargé de l’instruction, Entrainement et des Opérations: Lieutenant-Colonel Elie NIYONKURU, SS1690 de la matricule.
 
 – Bureau Chargé de la Logistique: Lieutenant-Colonel Bonaventure NDAYIZEYE, SS0457 de la matricule.
 

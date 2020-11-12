@@ -8,19 +8,19 @@ Sont nommés Chefs de Bureaux à l’Etat-Major Général de la Force de Défens
 
 – Service Chargé du Renseignement:
 
-– Bureau Chargé du Contre Renseignement: Lieutenant-Colonel Jean Marie SIN­ DAYIHEBURA, SS0892 de la matricule.
+– Bureau Chargé du Contre Renseignement: Lieutenant-Colonel Jean Marie SINDAYIHEBURA, SS0892 de la matricule.
 
-– Bureau Chargé de la Sûreté Militaire: Lieutenant-Colonel Frédéric NTAMARE­ RERO, SS1115 de la matricule.
+– Bureau Chargé de la Sûreté Militaire: Lieutenant-Colonel Frédéric NTAMARERERO, SS1115 de la matricule.
 
 – Bureau Chargé de la Coopération de Défense: Colonel Symphorien KARIKUNZIRA, SS0398 de la matricule.
 
 – Service Chargé de l’instruction, Entraînement et des Opérations:
 
-– Bureau Chargé de l’instruction, Entraîne­ ment et suivi des Réservistes: Lieutenant-Colonel Léonidas BATEZE, SS0500 de la matricule.
+– Bureau Chargé de l’instruction, Entraînement et suivi des Réservistes: Lieutenant-Colonel Léonidas BATEZE, SS0500 de la matricule.
 
 – Service Chargé de la Logistique:
 
-– Bureau Chargé de l’Habillement et Equipe­ ments: Colonel Sedechias NIYUKURI, SS0566 de la matricule.
+– Bureau Chargé de l’Habillement et Equipements: Colonel Sedechias NIYUKURI, SS0566 de la matricule.
 
 – Bureau Chargé du Transport: Lieutenant-Colonel Israël NDIKURIYO, SS0862 de la matricule.
 
@@ -28,21 +28,21 @@ Sont nommés Chefs de Bureaux à l’Etat-Major Général de la Force de Défens
 
 – Service Chargé de la Planification:
 
-– Bureau Chargé d’Etudes et de la Planifica­ tion: Lieutenant-Colonel Wenceslas NTETU­ RUYE, SS0551 de la matricule.
+– Bureau Chargé d’Etudes et de la Planification: Lieutenant-Colonel Wenceslas NTETURUYE, SS0551 de la matricule.
 
-– Bureau Chargé des Statistique et Suivi-Eva­ luation: Lieutenant-Colonel Didace MIRUKIRO, SS0979 de la matricule.
+– Bureau Chargé des Statistique et Suivi-Evaluation: Lieutenant-Colonel Didace MIRUKIRO, SS0979 de la matricule.
 
 – Bureau Chargé de la Production et de la Documentation: Lieutenant-Colonel Epitace MPEKEYE, SS0728 de la matricule.
 
 – Service Chargé des Systèmes d’informations et des Communications:
 
-– Bureau Chargé des Technologies de l’Infor­ mation et des Communications: Lieutenant-Colonel Jean Bosco SAHABO, SS1111 de la matricule.
+– Bureau Chargé des Technologies de l’Information et des Communications: Lieutenant-Colonel Jean Bosco SAHABO, SS1111 de la matricule.
 
 – Bureau Chargé des Transmissions: Major Féliasé NIBAMPA, SS1166 de la matricule.
 
 – Service Chargé de la Formation:
 
-– Bureau Chargé de la Formation Supérieure et Spécialisée: Lieutenant-Colonel Alexis NCUTINA­ MAGARA, SS0584 de la matricule.
+– Bureau Chargé de la Formation Supérieure et Spécialisée: Lieutenant-Colonel Alexis NCUTINAMAGARA, SS0584 de la matricule.
 
 – Service Chargé du Moral des Militaires et des Relations Publiques:
 
