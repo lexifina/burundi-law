@@ -1,0 +1,3 @@
+# Article 25
+
+Sont nommés Instructeurs Permanents à l’Ecole de Commandement Bataillon et d’Etat-Major: Lieutenant-Colonel Richard NIKOYAGIZE, SS0699 de la matricule; Lieutenant-Colonel Jean-Claude RUKUNDO, SS0714 de la matricule; Lieutenant-Colonel Epitace NIYONZIMA, SS0775 de la matricule; Lieutenant-Colonel Sylvestre NINTERETSE, SS1007 de la matricule; Lieutenant -Colonel Désiré NKURUNZIZA, SS0992 de la matricule; Lieutenant-Colonel Oscar NDAYIKUNDA, SS0749 de la matricule; Major Jean HAVYARIMANA, SS0971 de la matricule; Major Pierre Claver NIYOMWUNGERE, SS1175 de la matricule; Major Abdallah NIYOKINDI, SS1151 de la matricule.
