@@ -1,8 +1,8 @@
 # Article 3
 
-Selon les dispositions de la présente loi, les ser­ vices publics sont classés comme suit: 1.les services de la superstructure gouvernemen­ tale qui comportent:
+Selon les dispositions de la présente loi, les services publics sont classés comme suit: 1.les services de la superstructure gouvernementale qui comportent:
 
-a) les services de la Présidence de la Répu­ blique;
+a) les services de la Présidence de la République;
 
 b) les services de la Vice-Présidence de la République;
 
