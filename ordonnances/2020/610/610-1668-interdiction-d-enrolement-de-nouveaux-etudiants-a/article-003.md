@@ -1,3 +1,3 @@
 # Article 3
 
-L’Université Paix et Réconciliation peut intro­ duire une requête en changement de structure institutionnelle et organisationnelle conformé­ ment à la réglementation applicable en la matière.
+L’Université Paix et Réconciliation peut introduire une requête en changement de structure institutionnelle et organisationnelle conformément à la réglementation applicable en la matière.
