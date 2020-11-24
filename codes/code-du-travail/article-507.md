@@ -1,0 +1,3 @@
+# Article 507
+
+L’exercice du droit de grève dans les services indispensables suit des procédures permettant le maintien du service minimum nécessaire à la satisfaction des besoins de base de la population. Un service minimum est également organisé en vue de permettre la sûreté et l’entretien des équipements et des installations de l’entreprise de façon qu’une fois la grève terminée, le travail puisse reprendre normalement. Une ordonnance du Ministre ayant le travail dans ses attributions, prise après avis du Comité national du travail, détermine les services indispensables et les modalités d’exercice du droit de grève dans ces serv1ces.

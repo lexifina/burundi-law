@@ -1,0 +1,3 @@
+# Article 626
+
+Est passible d’une amende de cinq cent mille à un million (500.000 à 1.000.000) francs burundais, tout employeur qui enfreint les dispositions de l’article 203 relatives aux retenues sur les salaires.

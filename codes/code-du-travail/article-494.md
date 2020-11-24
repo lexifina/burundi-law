@@ -1,0 +1,3 @@
+# Article 494
+
+Le tribunal du travail ou le tribunal de grande instance a les plus larges pouvoirs pour s’informer sur la situation économique des entreprises et celle des travailleurs intéressés par le conflit. Il peut procéder à toutes enquêtes auprès des entreprises et des syndicats et requérir des parties la production de tout document ou renseignement d’ordre économique, comptable, financier, statistique ou administratif susceptible de lui être utile pour l’accomplissement de sa mission. Il peut recourir aux offices d’experts, notamment d’experts comptables agréés, et généralement, de toute personne qualifiée susceptible de l’éclairer.

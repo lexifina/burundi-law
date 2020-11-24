@@ -1,0 +1,3 @@
+# Article 106
+
+Au cours de la période de suspension, l’employeur ne peut résilier le contrat, sauf faute grave ou cas de force majeure rendant impossible son maintien et dont la preuve doit être apportée par lui. A l’issue de la période de suspension, le travailleur retrouve son emploi ou un emploi similaire s’il est médicalement déclaré apte à l’occuper. Si, à l’issue de la période de suspension, le travailleur est médicalement reconnu inapte à l’emploi occupé précédemment, l’employeur lui propose un autre emploi compatible avec son état. S’il n’en existe pas dans l’entreprise ou si le travailleur refuse le nouvel emploi proposé, il est licencié conformément à la loi.

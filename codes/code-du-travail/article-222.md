@@ -1,0 +1,5 @@
+# Article 222
+
+Le cautionnement est un contrat par lequel un travailleur dépose une somme d’argent entre les mains de son employeur au moment de la conclusion du contrat de travail. Il a pour objet de garantir la restitution des fonds que ce travailleur peut perdre ou dissiper à l’occasion de l’exercice de ses fonctions.
+
+Le montant du cautionnement ne peut être supérieur à trois mois de rémunération.

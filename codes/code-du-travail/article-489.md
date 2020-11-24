@@ -1,0 +1,3 @@
+# Article 489
+
+En cas d’échec total ou partiel ou en cas de carence constatée dans les formes prévues à l’article 484, l’inspecteur du travail et de la sécurité sociale établit un rapport sur l’état du différend, précisant notamment les points SUI lesquels le différend persiste et la décision des parties de saisir le tribunal du travail ou le tribunal de grande instance, le cas échéant, ou le conseil d’arbitrage. Lorsque les parties optent pour l’arbitrage, le rapport accompagné de tous documents et renseignements utiles est transmis immédiatement au Ministre ayant le travail dans ses attributions qui crée à son tour le conseil d’arbitrage.

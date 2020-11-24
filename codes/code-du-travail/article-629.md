@@ -1,0 +1,3 @@
+# Article 629
+
+L’employeur qui ne se conforme pas aux dispositions de l’article 316 relatives à la santé et à la sécurité au travail est puni d’une amende de cinq cent mille à un million (500.000 à 1.000.000) francs burundais. L’amende est portée à cinq million (5.000.000) de francs burundais lorsqu’il survient un accident de travail ou une maladie professionnelle alors que l’employeur a demandé aux travailleurs de reprendre le travail dans une situation où persiste un péril imminent et grave pour la vie ou la santé ou a refusé de mettre en œuvre la décision de l’inspecteur du travail et de la sécurité sociale, prise conformément à l’article 427 du présent Code d’arrêter le travail.

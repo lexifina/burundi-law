@@ -1,0 +1,3 @@
+# Article 570
+
+Les représentants du personnel sont soumis à l’obligation de discrétion en ce qui concerne les informations dont leur mission les rend destinataires.

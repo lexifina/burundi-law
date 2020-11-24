@@ -1,0 +1,3 @@
+# Article 308
+
+Le travailleur a droit, à charge de l’employeur, pendant toute la durée du congé légal aux avantages en nature dont il bénéficiait au moment de son départ en congé. Lorsque le travailleur en fait la demande au moins huit jours calendrier à l’avance, l’employeur est tenu de lui verser la contre-valeur en espèces des avantages en nature dont il bénéficiait au moment du départ en congé, exception faite de la fourniture d’un logement. L’employeur remet à cet effet au travailleur autant de fois la contrevaleur légale journalière moyenne lesdits avantages que la période de congé ou la partie de cette période comporte de jours ouvrables.

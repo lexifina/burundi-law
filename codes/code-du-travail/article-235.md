@@ -1,0 +1,3 @@
+# Article 235
+
+Le règlement d’entreprise est arrêté par l’employeur après consultation des représentants du personnel au conseil d’entreprise et des délégués syndicaux. Néanmoins, les travailleurs gardent leur droit d’être consultés directement s’ils en expriment le besoin ou au cas où ils n’ont ni syndicat ni conseil d’entreprise. Le projet de règlement d’entreprise, accompagné de l’exposé éventuel des observations des représentants du personnel au conseil d’entreprise et des délégués syndicaux et/ou tous les membres du personnel est soumis au contrôle de l’inspecteur du travail et de la sécurité sociale qui peut exiger le retrait ou la modification des dispositions contraires aux lois et aux règlements en vigueur.

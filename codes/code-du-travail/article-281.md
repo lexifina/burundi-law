@@ -1,0 +1,3 @@
+# Article 281
+
+L’inspecteur du travail et de la sécurité sociale peut requérir l’examen des enfants par un médecin en vue de vérifier si le travail dont ils sont chargés n’excède pas leurs forces. La réquisition est de droit à la demande des intéressés, des parents, du représentant légal, du délégué syndical ou du représentant du personnel. L’enfant ne peut être maintenu dans un emploi ainsi reconnu au-dessus de ses forces et doit être affecté à un autre emploi convenable. En cas d’impossibilité, le contrat est rompu du fait de l’employeur avec paiement de l’indemnité de préavis et le cas échéant, de l’indemnité de licenciement.

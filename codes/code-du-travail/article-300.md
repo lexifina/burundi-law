@@ -1,0 +1,5 @@
+# Article 300
+
+Le travailleur a droit, à sa demande et à charge de l’employeur, à des congés de circonstance payés. Faute de conventions collectives, une ordonnance du Ministre ayant le travail dans ses attributions, prise après avis du Comité national du travail, détermine les événements qui ouvrent droit aux congés de circonstance. L’octroi des congés de circonstance coïncide avec l’événement qui en est la cause. Les congés de circonstance ne peuvent être fractionnés et ne sont déductibles ni du congé annuel payé visé à la section 1 du présent chapitre, ni des congés d’éducation ouvrière, de formation syndicale, de formation et de perfectionnement professionnel visés à la section 3 du même chapitre. Lorsque le droit au congé de circonstance s’ouvre à un moment où le· travailleur bénéficie d’un autre congé légal, le congé de circonstance est accordé au travailleur immédiatement après le dernier jour de la période du congé légal au cours de laquelle s’est ouvert le droit au congé de circonstance.
+
+Section 3 Des congés d’éducation ouvrière, de formation syndicale, de formation et perfectionnement professionnel

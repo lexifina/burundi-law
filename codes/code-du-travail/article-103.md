@@ -1,0 +1,3 @@
+# Article 103
+
+En cas de maladie ou d’accident, l’organisme de sécurité sociale auquel l’employeur et le travailleur sont affiliés est tenu de fournir au travailleur et à sa famille les soins de santé. En cas de suspension du contrat par la suite de maladie ou d’accident, la famille du travailleur conserve le droit aux prestations visées à l’alinéa précédent. Au cas où l’employeur n’a pas cotisé pour le travailleur dans une institution de sécurité sociale, il bénéficie, de la part de l’employeur, d’une indemnité équivalente aux prestations dont il aurait bénéficié d’une institution de sécurité sociale si l’employeur avait cotisé pour lui, y compris les frais médicaux et les autres dépenses y relatives.

@@ -1,0 +1,3 @@
+# Article 313
+
+Lorsqu’au cours du congé légal intervient une période de suspension conventionnelle ou légale du contrat, le travailleur perçoit, pour les jours ou fractions de jours de congé, les prestations prévues aux articles 304 et 305 et, pour les jours ou fractions de jours de suspension de contrat, les prestations auxquelles il peut éventuellement prétendre, en vertu d’une convention individuelle ou collective de travail, d’une sentence arbitrale ou d’un règlement d’entreprise. Chaque jour de congé fractionné suite à la survenance d’une indisponibilité de travail résultant d’un accident, d’une maladie ou d’une grossesse, donne droit à une journée complète de prolongation du congé interrompu.

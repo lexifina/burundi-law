@@ -1,0 +1,3 @@
+# Article 274
+
+La travailleuse enceinte occupant un poste de travail l’exposant à des risques est affectée temporairement dans un autre emploi, à sa demande ou à l’initiative de l’employeur, lorsque son état de santé médicalement constaté l’exige. En cas de désaccord entre l’employeur et la travailleuse ou lorsque le changement intervient à l’initiative de l’employeur, seul le médecin du travail peut établir la nécessité médicale du changement d’emploi et l’aptitude de la travailleuse à occuper le nouvel emploi envisagé. L’affectation dans un autre établissement est subordonnée à l’accord de l’intéressée. L’affectation temporaire ne peut excéder la durée de la grossesse et prend fin dès que l’état de santé de la travailleuse lui permet de retrouver son emploi initial.

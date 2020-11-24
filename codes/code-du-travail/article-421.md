@@ -1,0 +1,3 @@
+# Article 421
+
+Les inspecteurs du travail et de la sécurité sociale ont les plus larges pouvoirs pour s’informer de la situation économique des entreprises et de la situation sociale des travailleurs. A cette fin, ils peuvent procéder à toutes enquêtes auprès des entreprises, des syndicats et requérir la production de tout document ou renseignement d’ordre professionnel, économique, comptable, financier ou administratif susceptible de leur être utile pour l’accomplissement de leur mission. Ils peuvent recourir aux offices d’experts ou de toute personne qualifiée susceptible de les éclairer, et se faire accompagner de représentants du personnel au cours de leur contrôle.

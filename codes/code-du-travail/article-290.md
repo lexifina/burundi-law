@@ -1,0 +1,3 @@
+# Article 290
+
+La durée du congé annuel payé, auquel le travailleur peut prétendre en vertu de l’article 289, est fixée par le Ministre ayant le travail dans ses attributions, après avis du Comité national du travail, à défaut de conventions collectives. Sauf dispositions plus favorables du contrat de travail, de la convention collective de travail, du règlement d’entreprise ou des usages, le travailleur a droit à un congé dont la durée ne peut en aucune manière être inférieure à 1 jour 2/3 ouvrables par mois complet d’ancienneté de service soit 20 jours ouvrables par année d’ancienneté de service.

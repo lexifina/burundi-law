@@ -1,0 +1,3 @@
+# Article 198
+
+Les commissions acquises au cours d’un trimestre sont payées dans les trois mois suivant la fin du trimestre. A défaut de conventions collectives, les participations aux bénéfices réalisés durant un exercice sont payées dans les neuf mois qui suivent l’exercice. Des ordonnances du Ministre ayant le travail dans ses attributions prises après avis du Comité national du travail, précisent, s’il y a lieu, les modalités d’application de l’article 197 et du présent article ainsi que les modalités relatives au paiement du salaire pour les professions où les usages prévoient une périodicité de paiement différente.
