@@ -6,7 +6,7 @@ a) Niveau baccalauréat:
 
 – Gestion et politique Economique
 
-b) Enseignement supérieur technique et profes­ sionnel de niveau I:
+b) Enseignement supérieur technique et professionnel de niveau I:
 
 – Gestion hospitalière;
 
