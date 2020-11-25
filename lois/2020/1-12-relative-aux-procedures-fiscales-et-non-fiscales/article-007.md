@@ -8,6 +8,6 @@ Toute communication officielle entre le Ministre, l’Administration fiscale, la
 
 3° une signification officielle par un périodique à diffusion nationale ou la Radio Nationale au cas où ce dernier oppose un refus de recevoir un acte ou une signification précisant l’objet;
 
-4° une signification par un huissier de justice ou par toute voie autorisée par le Code de procé­ dure civile;
+4° une signification par un huissier de justice ou par toute voie autorisée par le Code de procédure civile;
 
 5° une communication par voie électronique.

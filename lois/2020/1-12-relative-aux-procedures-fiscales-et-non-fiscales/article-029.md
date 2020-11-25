@@ -1,6 +1,6 @@
 # Article 29
 
-Nonobstant les prescriptions de l’article 28, les personnes visées à cet article ont l’obligation de déposer, en même temps que la déclaration fis­ cale annuelle, les documents suivants:
+Nonobstant les prescriptions de l’article 28, les personnes visées à cet article ont l’obligation de déposer, en même temps que la déclaration fiscale annuelle, les documents suivants:
 
 1° le bilan;
 
@@ -14,4 +14,4 @@ Nonobstant les prescriptions de l’article 28, les personnes visées à cet art
 
 6° les notes annexées aux états financiers;
 
-7° le tableau de passage aux soldes des comptes patrimoniaux. Outre les documents visés au précédent alinéa, le contribuable est tenu de déposer un inventaire détaillé et valorisé des stocks dans les trente (30) jours qui suivent la clôture de l’exercice comp­ table.
+7° le tableau de passage aux soldes des comptes patrimoniaux. Outre les documents visés au précédent alinéa, le contribuable est tenu de déposer un inventaire détaillé et valorisé des stocks dans les trente (30) jours qui suivent la clôture de l’exercice comptable.

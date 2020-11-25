@@ -8,10 +8,10 @@ Les personnes visées à l’article 13 de la présente loi sont:
 
 3° le propriétaire d’une entreprise;
 
-4° un des membres d’un groupement de per­ sonnes dont la responsabilité est illimitée;
+4° un des membres d’un groupement de personnes dont la responsabilité est illimitée;
 
 5° le président, le gestionnaire, l’administrateur ou tout autre représentant d’une société ou de toute autre personne morale;
 
 6° le curateur ou le représentant d’une société ou de toute autre personne morale en liquidation;
 
-7° toute autre personne mandatée pour repré­ senter ou assister le contribuable.
+7° toute autre personne mandatée pour représenter ou assister le contribuable.

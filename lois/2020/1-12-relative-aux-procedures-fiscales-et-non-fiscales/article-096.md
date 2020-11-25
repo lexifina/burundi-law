@@ -1,6 +1,6 @@
 # Article 96
 
-La charge de la preuve incombe à l’Administra­ tion fiscale lorsque celle-ci:
+La charge de la preuve incombe à l’Administration fiscale lorsque celle-ci:
 
 1° procède à une rectification de l’assiette;
 
