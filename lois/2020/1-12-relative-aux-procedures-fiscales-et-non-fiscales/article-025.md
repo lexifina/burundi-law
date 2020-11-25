@@ -1,0 +1,3 @@
+# Article 25
+
+Le contribuable peut librement corriger toute déclaration qu’il a soumise à l’Administration fis­ cale jusqu’à la date limite de dépôt ou jusqu’à l’écoulement de la prorogation accordée par le Commissaire général en vertu de l’article 27 ali­ néa 2 et 3 de la présente loi. Une correction est encore possible, sans préjudice sur le paiement des pénalités d’assiette sur le sur­ plus, après la date limite de dépôt de la déclara­ tion mais avant la réception par le contribuable ou son représentant d’un avis de vérification, d’un avis rectificatif, d’un avis d’imposition d’office ou de tout autre document annonçant un contrôle fiscal.

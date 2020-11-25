@@ -1,0 +1,3 @@
+# Article 134
+
+Sans préjudice des dispositions particulières de la présente loi, toute personne qui s’est frauduleuse­ ment soustraite à l’établissement ou au paiement partiel ou total des impôts visés à l’article 1 de la présente loi, soit qu’il ait volontairement omis de faire sa déclaration, soit qu’il ait volontairement dissimulé une part des sommes sujettes à l’impôt, soit qu’il ait organisé son insolvabilité, soit en agissant de toute autre manière frauduleuse, est passible d’une amende administrative égale à cent pour cent (100%) de l’impôt éludé. Si la fraude fiscale a été effectuée par ou avec l’assentiment d’un professionnel agréé par l’Ordre des Professions Comptables, ce profes­ sionnel encourt une amende égale à cinquante pour cent (50%) de l’impôt éludé.

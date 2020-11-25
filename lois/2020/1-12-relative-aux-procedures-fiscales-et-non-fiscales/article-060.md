@@ -1,0 +1,3 @@
+# Article 60
+
+En cas de procédure d’imposition d’office pour absence de déclaration, l’Administration fiscale envoie au contribuable un avis d’imposition d’office qui doit contenir tous les éléments qui ont entraîné l’imposition d’office. L’avis d’imposition d’office doit en outre mentionner les amendes visées aux articles 130 à 142. Tous les renseigne­ ments dont dispose l’Administration fiscale peuvent être utilisés pour procéder à l’imposition d’office. Lorsque l’imposition d’office est engagée confor­ mément aux points 2°, 3° et 4 ° de l’article précé­ dent, la procédure de vérification sur place est applicable.

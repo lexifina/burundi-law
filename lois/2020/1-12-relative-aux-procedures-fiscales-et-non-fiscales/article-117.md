@@ -1,0 +1,3 @@
+# Article 117
+
+Pour le recouvrement des recettes, des intérêts, des amendes et des frais de recouvrement, l’Administration fiscale détient une hypothèque légale sur l’ensemble des biens immeubles appar­ tenant au contribuable ou transférés à titre gra­ tuit par celui-ci à un tiers à compter de l’exercice fiscal au titre duquel l’impôt est dû et quel que soit le lieu où ils se trouvent. L’Administration fiscale a en outre le droit d’hypothèque légale sur les biens immeubles appartenant aux autres membres du foyer du contribuable, s’il est prouvé que la propriété de ces biens a été acquise ou transférée aux per­ sonnes concernées pour se soustraire aux obliga­ tions fiscales.

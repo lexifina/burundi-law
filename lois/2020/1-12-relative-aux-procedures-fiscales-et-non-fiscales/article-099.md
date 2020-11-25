@@ -1,0 +1,3 @@
+# Article 99
+
+Il y a prescription pour le recouvrement des recettes après une période de dix (10) ans à comp­ ter de la date d’exigibilité. L’interruption de la prescription intervient une seule fois par l’un des actes suivants: une lettre de rappel, un avis à tiers détenteur, des saisies des biens, l’inscription hypothécaire légale ou par tout autre moyen prévu par le code civil. En cas d’interruption de la prescription, un nou­ veau délai de recouvrement d’une période de dix (10) ans commence à courir à partir de l’expira­ tion de la période initiale de dix (10) ans. Paragraphe 3 De la transaction

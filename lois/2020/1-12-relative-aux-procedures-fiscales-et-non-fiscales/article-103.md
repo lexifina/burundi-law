@@ -1,0 +1,3 @@
+# Article 103
+
+Sur demande écrite du contribuable, le Ministre peut accorder au contribuable une remise des pénalités, des intérêts et amendes lorsqu’il est établi que le contribuable fait face à des difficultés financières sérieuses ou qu’il est dans une situa­ tion d’indigence qui entraîne son insolvabilité. Il peut également remettre totalement ou partiel­ lement la dette fiscale ou non fiscale lorsqu’il est établi que le contribuable fait face à des difficultés financières sérieuses ou qu’il est dans une situa­ tion d’indigence qui entraîne son insolvabilité. Le Ministre se prononce définitivement après avis d’une commission mixte mise en place à cet effet. Paragraphe 6 De l’annulation des créances irrécouvrables

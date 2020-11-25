@@ -1,0 +1,3 @@
+# Article 89
+
+Dans la mesure où l’imposition litigieuse est révo­ quée totalement ou partiellement par une déci­ sion administrative ou juridictionnelle devenue définitive, les impositions concernées sont prises en compte pour le paiement des obligations fis­ cales antérieures ou futures à moins que le contri­ buable n’en demande le remboursement. Dans ce cas, l’Administration fiscale est obligée de restituer le trop-perçu au contribuable dans un délai de soixante (60) jours calendaires. Après écoulement de ce délai, l’Administration fiscale est tenue de payer des intérêts moratoires de cinq pour cent (5%) de pénalités majorées de un pour cent (1 %) par mois de retard. Chapitre VIII De l’administration de la preuve Section 1 Des procès-verbaux

@@ -1,0 +1,3 @@
+# Article 26
+
+Toute correction postérieure à l’envoi d’un avis de vérification, ou de tout autre document annon­ çant un contrôle fiscal n’a aucun effet juridique sur l’application des sanctions que le contribuable encourt. En cas de contrôle sur pièces, une correction de la déclaration effectuée suite à un avis rectificatif n’empêche pas l’application des sanctions rela­ tives au paiement tardif. En cas de dépôt de la déclaration effectuée après une notification partielle, les sanctions pour déclaration et paiement tardif restent appli­ cables. Paragraphe 2 De la prorogation du délai de dépôt de la déclaration

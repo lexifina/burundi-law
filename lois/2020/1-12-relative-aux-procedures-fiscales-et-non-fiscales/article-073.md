@@ -1,0 +1,5 @@
+# Article 73
+
+Le recours devant le Commissaire général sus­ pend l’obligation de payer l’impôt, les intérêts et les amendes. Toutefois, un contribuable doit, avant de déposer une réclamation auprès de l’Administration fis­ cale, payer trente pour cent (30%) du montant en principal contesté.
+
+Le montant de l’impôt non contesté reste exigible conformément au délai prévu par la note d’impo­ sition. Un contribuable disposant d’un solde créditeur sur son compte courant fiscal est dispensé d’effec­ tuer ce paiement à hauteur du montant de son solde. Néanmoins, un contribuable peut être dispensé de payer le montant prévu à l’alinéa précédent en cas d’erreur matérielle ou administrative com­ mise sur la note d’imposition. L’erreur matérielle s’entend d’une erreur de calcul ou de saisie des montants sur la note d’imposition tandis que l’erreur administrative se manifeste par l’erreur au niveau de l’identification du contribuable sur la note d’imposition, notamment le nom du contri­ buable, le Numéro d’Identification Fiscale et l’adresse.
