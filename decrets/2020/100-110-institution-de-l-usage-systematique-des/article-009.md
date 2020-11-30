@@ -1,0 +1,3 @@
+# Article 9
+
+Ces nomenclatures peuvent également donner lieu à des adaptations agrégées, détaillées ou par­ tielles sur un domaine en vue d’applications spé­ cifiques. Lesdites adaptations suivent les principes sui­ vants: 1. les classifications plus agrégées se définissent par des regroupements exacts de rubriques élémentaires; 2. les classifications plus détaillées se défi­ nissent par des éclatements exactement emboîtés dans les rubriques élémentaires; 3. en cas de modification des nomenclatures, la correspondance des valeurs supprimées ou modifiées avec les nouvelles valeurs ainsi qu’avec les autres nomenclatures en éven­ tuelle interaction doit être formalisée, pour éviter toute distorsion de l’information.

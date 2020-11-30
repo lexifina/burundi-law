@@ -1,0 +1,3 @@
+# Article 6
+
+Les nomenclatures visées sont les suivantes: 1. Nomenclature du Panier de Consommation de la Ménagère au Burundi (Classification Of Individual Consumption by PurposeCOICOP); 2. Classification des Infractions au Burundi (CIB); 3. Classification des Produits de l’Agriculture au Burundi (CPAB); 4. Classification des Professions au Burundi (CPB); 5. Classification Internationale des Maladies au Burundi (CIM-10-BDI); 6. Nomenclature d’Activités au Burundi (NABU); 7. Nomenclature des Produits du Burundi (NOPROBU); 8. Nomenclature Budgétaire au Burundi (NBB); 9. Nomenclature de l’Education au Burundi (NEB); 10.Nomenclature du Système Harmonisé (NSH).
