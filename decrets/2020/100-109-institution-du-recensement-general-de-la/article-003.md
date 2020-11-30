@@ -1,3 +1,3 @@
 # Article 3
 
-Le RGPHAE 2022 doit établir le bilan démogra­ phique et déterminer les caractéristiques de l’habi­ tat ainsi que le potentiel agricole et pastoral.
+Le RGPHAE 2022 doit établir le bilan démographique et déterminer les caractéristiques de l’habitat ainsi que le potentiel agricole et pastoral.

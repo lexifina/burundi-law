@@ -1,6 +1,6 @@
 # Article 26
 
-Le BCR s’occupe de la conduite des opérations du recensement sur l’ensemble du territoire natio­ nal. A ce titre, il est chargé de:
+Le BCR s’occupe de la conduite des opérations du recensement sur l’ensemble du territoire national. A ce titre, il est chargé de:
 
 – concevoir, réaliser, traiter les données, publier les données et gérer les ressources mobilisées;
 
@@ -22,4 +22,6 @@ Le BCR s’occupe de la conduite des opérations du recensement sur l’ensemble
 
 – conduire les opérations du RGPHAE;
 
-– rédiger les rapports technique et financier et s’occuper de tous les aspects techniques et administratifs du RGPHAE. Section VII De l’organisation et du fonctionnement du BCR
+– rédiger les rapports technique et financier et s’occuper de tous les aspects techniques et administratifs du RGPHAE.
+
+Section VII De l’organisation et du fonctionnement du BCR

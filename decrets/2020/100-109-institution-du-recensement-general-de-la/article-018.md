@@ -8,7 +8,7 @@ Le CTR est chargé de:
 
 – sensibiliser la population;
 
-– harmoniser les interventions des différents ser­ vices et organismes concourant à la réalisation du RGPHAE;
+– harmoniser les interventions des différents services et organismes concourant à la réalisation du RGPHAE;
 
 – préparer et exécuter le budget du RGPHAE 2022;
 

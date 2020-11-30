@@ -1,6 +1,6 @@
 # Article 38
 
-Les fonds destinés au Recensement de la Popula­ tion, de l’Habitat, de l’Agriculture et de l’Elevage de 2022 comprennent:
+Les fonds destinés au Recensement de la Population, de l’Habitat, de l’Agriculture et de l’Elevage de 2022 comprennent:
 
 – des dotations du budget de l’Etat;
 

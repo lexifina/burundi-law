@@ -14,7 +14,7 @@ Les Comités Provinciaux et Communaux du Recensement (CPR et CCR) sont composés
 
 – du Commissaire Provincial de la Sécurité Publique;
 
-– du délégué provincial du Ministère de la Défense Nationale et des Anciens Combat­ tants;
+– du délégué provincial du Ministère de la Défense Nationale et des Anciens Combattants;
 
 – Trois représentants des confessions religieuses. Au niveau communal:
 
@@ -26,6 +26,6 @@ Les Comités Provinciaux et Communaux du Recensement (CPR et CCR) sont composés
 
 – du Commissaire Communal de la Sécurité Publique;
 
-– du délégué communal du Ministère de la Défense Nationale et des Anciens Combat­ tants;
+– du délégué communal du Ministère de la Défense Nationale et des Anciens Combattants;
 
 – Trois représentants des confessions religieuses.
