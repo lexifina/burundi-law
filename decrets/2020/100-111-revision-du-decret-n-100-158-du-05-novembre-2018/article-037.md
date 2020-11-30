@@ -4,4 +4,4 @@ Le Ministre de la Défense Nationale et des Anciens Combattants est chargé de l
 
 Fait à Gitega, le 30 novembre 2020 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Alain-Guillaume BUNYONI (sé) Commissaire de Police Général.
 
-Le Ministre de la Défense Nationale et des Anciens Combattants, Ir Alain Tribert MUT ABAZI (sé). N°760/1625/2020 17/11/2020
+Le Ministre de la Défense Nationale et des Anciens Combattants, Ir Alain Tribert MUT ABAZI (sé).

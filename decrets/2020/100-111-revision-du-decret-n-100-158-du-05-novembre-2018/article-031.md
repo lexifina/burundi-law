@@ -1,6 +1,6 @@
 # Article 31
 
-La Direction de la Planification et de la Réinser­ tion a notamment pour missions de:
+La Direction de la Planification et de la Réinsertion a notamment pour missions de:
 
 – concevoir et étudier les projets en matière de réinsertion;
 

@@ -2,7 +2,7 @@
 
 La Direction Générale de l’Administration et des Finances (D.G.A.F) a notamment pour missions de:
 
-– exécuter les orientations du Secrétariat Perma­ nent en matière du budget des services cen­ traux;
+– exécuter les orientations du Secrétariat Permanent en matière du budget des services centraux;
 
 – veiller à la mise en place et/ou l’actualisation du cadre réglementaire du ministère ·
 

@@ -1,6 +1,6 @@
 # Article 13
 
-L’Inspection Principale chargée de l’Instruction, de la formation, de l’Entraînement et des Opéra­ tions comprend cinq inspections techniques:
+L’Inspection Principale chargée de l’Instruction, de la formation, de l’Entraînement et des Opérations comprend cinq inspections techniques:
 
 – une inspection chargée des droits de l’homme et du droit international humanitaire;
 

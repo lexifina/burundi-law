@@ -12,6 +12,6 @@ La Direction de l’Administration et du Budget (D.A.B) a notamment pour mission
 
 – assurer le suivi de la comptabilité budgétaire des crédits alloués au ministère;
 
-– contrôler les procédures des dépenses budgé­ taires;
+– contrôler les procédures des dépenses budgétaires;
 
 – participer à l’élaboration du cadre des dépenses à moyen terme.

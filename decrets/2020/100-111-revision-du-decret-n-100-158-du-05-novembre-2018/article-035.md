@@ -2,16 +2,18 @@
 
 La Direction d’Appui Logistique et Technique (DALT) a notamment pour missions de:
 
-– assurer les prestations de service ainsi que l’acquisition des biens et équipements des ser­ vices centraux du ministère;
+– assurer les prestations de service ainsi que l’acquisition des biens et équipements des services centraux du ministère;
 
-– gérer les moyens de transport des services cen­ traux du ministère;
+– gérer les moyens de transport des services centraux du ministère;
 
 – gérer le matériel informatique et les T.I.C des services centraux du ministère;
 
-– fournir tout autre appui technique et/ou logis­ tique pouvant faciliter l’action de l’administra­ tion centrale;
+– fournir tout autre appui technique et/ou logistique pouvant faciliter l’action de l’administration centrale;
 
 – vérifier le respect des procédures de passation des marchés publics;
 
 – participer à l’élaboration du cadre des dépenses à moyen terme;
 
-– élaborer et assurer le suivi des projets d’inves­ tissement du ministère. Chapitre IV Des dispositions finales
+– élaborer et assurer le suivi des projets d’investissement du ministère.
+
+Chapitre IV Des dispositions finales

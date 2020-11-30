@@ -6,10 +6,10 @@ Le Secrétariat Permanent comprend:
 
 – trois cellules de conseillers techniques:
 
-a) la cellule de conseillers chargés de l’admi­ nistration et des finances;
+a) la cellule de conseillers chargés de l’administration et des finances;
 
-b) la cellule de conseillers chargés de la plani­ fication et études stratégiques;
+b) la cellule de conseillers chargés de la planification et études stratégiques;
 
-c) la cellule de conseillers chargés des ques­ tions des anciens combattants.
+c) la cellule de conseillers chargés des questions des anciens combattants.
 
 – un secrétariat.
