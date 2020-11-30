@@ -1,3 +1,3 @@
 # Article 3
 
-Les examens de rattrapage sont organisés pen­ dant la période des grandes vacances.
+Les examens de rattrapage sont organisés pendant la période des grandes vacances.
