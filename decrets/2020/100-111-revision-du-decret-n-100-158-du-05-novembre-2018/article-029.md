@@ -1,0 +1,23 @@
+# Article 29
+
+La Direction Générale des Anciens Combattants a notamment pour missions de:
+
+– mettre en œuvre la politique nationale de ges­ tion des anciens combattants;
+
+– exécuter les directives du ministère en rapport avec les anciens combattants;
+
+– coordonner les actions des différents interve­ nants au profit des anciens combattants;
+
+– mobiliser, organiser et encadrer les anciens combattants autour des activités génératrices de revenus;
+
+– initier des projets de développement intégrant les anciens combattants;
+
+– fournir une assistance médicale aux anciens combattants vivant avec un handicap sévère;
+
+– fournir une assistance sociale et technique aux anciens combattants;
+
+– donner le soutien moral aux anciens combat­ tants et les encourager à être les messagers du patriotisme et de la paix;
+
+– exécuter le budget doté à la DGAC;
+
+– administrer les anciens combattants.

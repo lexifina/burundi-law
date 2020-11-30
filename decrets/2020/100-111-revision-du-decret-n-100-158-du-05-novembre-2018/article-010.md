@@ -1,0 +1,15 @@
+# Article 10
+
+Le Secrétariat Permanent comprend:
+
+– le Secrétaire Permanent;
+
+– trois cellules de conseillers techniques:
+
+a) la cellule de conseillers chargés de l’admi­ nistration et des finances;
+
+b) la cellule de conseillers chargés de la plani­ fication et études stratégiques;
+
+c) la cellule de conseillers chargés des ques­ tions des anciens combattants.
+
+– un secrétariat.
