@@ -2,4 +2,4 @@
 
 Le Chef de la Force de Défense Nationale du Burundi est chargé de la mise en application de la présente Ordonnance qui entre en vigueur le jour de sa signature.
 
-Fait à Bujumbura, le 30 novembre 2020 Ir. Alain Tribert MUTABAZI (sé) B. SOCIETES COMMERCIALES
+Fait à Bujumbura, le 30 novembre 2020 Ir. Alain Tribert MUTABAZI (sé)
