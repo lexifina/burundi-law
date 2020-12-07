@@ -10,4 +10,6 @@ Les directions générales qui composent le ministère sont les suivantes :
 
 4° la direction générale chargée de la coordination des affaires sociales et des secteurs productifs ;
 
-5° la direction générale chargée de la jeunesse, des sports et de la culture. Section 2 Des Attributions Paragraphe 1 Des directions rattachées au Cabinet du Ministre
+5° la direction générale chargée de la jeunesse, des sports et de la culture.
+
+Section 2 Des Attributions Paragraphe 1 Des directions rattachées au Cabinet du Ministre

@@ -32,4 +32,6 @@ Dans le domaine des affaires de la Communauté Est Africaine, le ministère des 
 
 15° s’assurer en collaboration avec les services concernés que le Burundi honore ses engagements financiers auprès de la Communauté Est Africaine;
 
-16° rendre compte au Gouvernement et au Parlement sur toutes les questions et activités liées à l’intégration du Burundi au sein de la Communauté Est Africaine; Section 2 Du domaine de la Jeunesse
+16° rendre compte au Gouvernement et au Parlement sur toutes les questions et activités liées à l’intégration du Burundi au sein de la Communauté Est Africaine;
+
+Section 2 Du domaine de la Jeunesse

@@ -6,4 +6,6 @@ Pour remplir ses missions, la direction chargée de la culture est dotée des se
 
 2°le service chargé de la culture;
 
-3°le service chargé de la bibliothèque et des archives. Chapitre III Des Dispositions Finales
+3°le service chargé de la bibliothèque et des archives.
+
+Chapitre III Des Dispositions Finales

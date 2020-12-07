@@ -14,4 +14,6 @@ Dans le domaine de la jeunesse, le ministère a pour missions de :
 
 6° veiller à la bonne organisation des centres pour jeunes, des antennes régionales et provinciales du ministère, conformément à la politique nationale de décentralisation ;
 
-7° former et appuyer la jeunesse dans l’élaboration et l’analyse des projets à soumettre aux partenaires et à la Banque d’Investissement pour les Jeunes. Section 3 Du domaine des Sports et de la Culture
+7° former et appuyer la jeunesse dans l’élaboration et l’analyse des projets à soumettre aux partenaires et à la Banque d’Investissement pour les Jeunes.
+
+Section 3 Du domaine des Sports et de la Culture

@@ -32,4 +32,6 @@ Dans le domaine de sports et de la culture, le ministère a pour missions de :
 
 15° promouvoir et protéger les textes et lois réglementaires en matière de culture;
 
-16° assurer la promotion des activités artisanales et artistiques locales. Section 4 Missions à caractère transversal
+16° assurer la promotion des activités artisanales et artistiques locales.
+
+Section 4 Missions à caractère transversal
