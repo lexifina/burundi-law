@@ -22,4 +22,6 @@ Vu le Décret n°100/082 du 12 octobre 2020 portant Missions, Organisation et Fo
 
 Sur proposition du Ministre de l’Intérieur, du Développement Communautaire et de la Sécurité Publique ; Revu le Décret n°100/145 du 12 octobre 1995 portant Réorganisation des Services Provinciaux · Le Conseil des Ministres ayant délibéré ;
 
-Décrète : Chapitre I Des Dispositions Générales
+Décrète :
+
+Chapitre I Des Dispositions Générales
