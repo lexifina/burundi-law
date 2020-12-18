@@ -50,4 +50,6 @@ lngingo ya 39 La direction de la coopération judiciaire et de la sécurisation 
 
 13° proposer des matières de renforcement des capacités.
 
-13° Gushikiriza ibisata abakozi bokwongererezwamwo ubumenyi n’ubushobozi. CHAPITRE IV IGICE CA IV DES DISPOSITIONS FINALES INGINGO ZISOZERA
+13° Gushikiriza ibisata abakozi bokwongererezwamwo ubumenyi n’ubushobozi.
+
+CHAPITRE IV IGICE CA IV DES DISPOSITIONS FINALES INGINGO ZISOZERA

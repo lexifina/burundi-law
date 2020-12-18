@@ -44,4 +44,6 @@ lngingo ya 30 Les missions et les attributions du Secrétariat Permanent sont fi
 
 11° assurer l’intérim en cas d’empêchement du Ministre.
 
-11° Gusigarira Umushikiranganji mu gihe afatiriwe. Sous-section 3 Agahimba k’agace ka 3 Des attributions de l’Inspection Générale de la Justice lvyo Ubugenduzi bukuru bw’ubutungane bujejwe
+11° Gusigarira Umushikiranganji mu gihe afatiriwe.
+
+Sous-section 3 Agahimba k’agace ka 3 Des attributions de l’Inspection Générale de la Justice lvyo Ubugenduzi bukuru bw’ubutungane bujejwe

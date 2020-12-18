@@ -70,4 +70,6 @@ lngingo ya 2 Le Ministère de la Justice a pour missions principales de: Ubushik
 
 18° s’assurer de la prise en compte de la bonne gouvernance en tout temps et en tout lieu.
 
-18° Gusuzumako ivyerekeye intwaro ibereye bikurikizwa igihe cose na hose. CHAPITRE III IGICE CA III DE L’ORGANISATION ET DES ATTRIBUTIONS IVYEREKEYE IRINGANIZWA RY’UBUSHIKIRANGANJI BW’UBUTUNGANE N’IVYO BUJEJWE Section 1 Agace ka 1 De l’organisation lngene Ubushikiranganji buringanijwe
+18° Gusuzumako ivyerekeye intwaro ibereye bikurikizwa igihe cose na hose.
+
+CHAPITRE III IGICE CA III DE L’ORGANISATION ET DES ATTRIBUTIONS IVYEREKEYE IRINGANIZWA RY’UBUSHIKIRANGANJI BW’UBUTUNGANE N’IVYO BUJEJWE Section 1 Agace ka 1 De l’organisation lngene Ubushikiranganji buringanijwe

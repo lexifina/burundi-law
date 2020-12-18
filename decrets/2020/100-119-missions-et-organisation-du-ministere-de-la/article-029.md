@@ -42,4 +42,6 @@ La coordination consiste notamment à : Umurimo w’uguhuza ibikorwa werekeye nk
 
 10° assurer le fonctionnement du secrétariat du Ministre.
 
-10° Gutuma lbiro vy’abanyamabanga b’Umushikiranganji bikora neza. Sous-section 2 Agahimba k’agace ka 2 Des attributions du Secrétariat Permanent lvyo lbiro vy’Umunyamabanga ntayegayezwa bijejwe
+10° Gutuma lbiro vy’abanyamabanga b’Umushikiranganji bikora neza.
+
+Sous-section 2 Agahimba k’agace ka 2 Des attributions du Secrétariat Permanent lvyo lbiro vy’Umunyamabanga ntayegayezwa bijejwe

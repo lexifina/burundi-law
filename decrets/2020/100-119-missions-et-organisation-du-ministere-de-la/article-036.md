@@ -20,4 +20,6 @@ lngingo ya 36 La direction des affaires juridiques et du contentieux est chargé
 
 5° rédiger les projets de saisine et défendre les intérêts de l’Etat en matière d’action récursoire initiée contre les mandataires ou les préposés de l’Etat et de ses démembrements.
 
-5° Kwandika integuro z’ibirego no guhagararira inyungu za Reta mu vyerekeye urubanza rwa Reta irihisha ivyo yarihiye abari bashinzwe amabanga ya Reta canke abo Reta yatumye hamwe n’iz’ibisata vyayo. Sous-section 5 Agahimba k’agace ka 5 Des attributions de la Direction Générale des Affaires Judiciaires lvyo Ubuyobozi bukuru bujejwe ibijanye n’imanza bushinzwe
+5° Kwandika integuro z’ibirego no guhagararira inyungu za Reta mu vyerekeye urubanza rwa Reta irihisha ivyo yarihiye abari bashinzwe amabanga ya Reta canke abo Reta yatumye hamwe n’iz’ibisata vyayo.
+
+Sous-section 5 Agahimba k’agace ka 5 Des attributions de la Direction Générale des Affaires Judiciaires lvyo Ubuyobozi bukuru bujejwe ibijanye n’imanza bushinzwe
