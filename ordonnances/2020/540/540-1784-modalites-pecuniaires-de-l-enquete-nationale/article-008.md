@@ -26,4 +26,6 @@ Le Groupe technique chargé de l’analyse et de la rédaction des rapports sais
 
 g.
 
-Les membres des groupes techniques sont nommés à la fin de chaque saison par le Directeur en charge des statistiques agricoles et fixe la période que va durer l’activité. Chapitre IV Des modalités pécuniaires
+Les membres des groupes techniques sont nommés à la fin de chaque saison par le Directeur en charge des statistiques agricoles et fixe la période que va durer l’activité.
+
+Chapitre IV Des modalités pécuniaires
