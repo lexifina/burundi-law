@@ -1,3 +1,5 @@
 # Article 25
 
-La Direction des Equipements et de l'Entretien a pour missions de : - concevoir et mettre en œuvre la politique de dotation des équipements aux services de l'Etat et en assurer le suivi ; - mettre en place une base de données des équipements et en tenir les statistiques ; - confectionner les dossiers techniques relatifs à l'achat des équipements de l'Etat en collaboration avec les services concernés; - veiller à la gestion rationnelle des équipements de l'Etat ; - décider de la mise hors d'usage les équipements de l'Etat sur proposition des utilisateurs ; - participer à la vente des équipements hors d’usage. Section 4 De la Direction Générale du Logement
+La Direction des Equipements et de l'Entretien a pour missions de : - concevoir et mettre en œuvre la politique de dotation des équipements aux services de l'Etat et en assurer le suivi ; - mettre en place une base de données des équipements et en tenir les statistiques ; - confectionner les dossiers techniques relatifs à l'achat des équipements de l'Etat en collaboration avec les services concernés; - veiller à la gestion rationnelle des équipements de l'Etat ; - décider de la mise hors d'usage les équipements de l'Etat sur proposition des utilisateurs ; - participer à la vente des équipements hors d’usage.
+
+Section 4 De la Direction Générale du Logement
