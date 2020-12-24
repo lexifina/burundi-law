@@ -1,0 +1,3 @@
+# Article 27
+
+La Direction de la Planification du Logement a pour missions de : - concevoir une politique nationale en matière de logement ; - élaborer les stratégies de la mise en œuvre de la politique nationale du logement en objectifs et actions ; - élaborer et proposer les politiques relatives à la mobilisation des financements du logement et de la promotion immobilière tant publique que privée ; - élaborer les indicateurs d'évaluation de l'impact de l'exécution de la politique du logement au niveau national ; - élaborer les fiches de projets d'investissement en matière de logements sociaux.
