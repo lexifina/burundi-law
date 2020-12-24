@@ -1,0 +1,7 @@
+# Article 21
+
+Pour les personnes résidentes, le montant des revenus imposables appartenant aux revenus d’emploi et aux revenus locatifs est arrondi au millier de francs burundais le plus proche et imposé par tranches selon le tableau suivant : Revenu annuel net imposable (en francs burundais) Taux d’imposition De A 0 1.800.000 0% 1.800.001 3.600.000 20% de la part qui dépasse 1.800 000 3.600.001 et plus 30% de la part qui dépasse 3.600 000 Le même barème s’applique également aux personnes non-résidentes au Burundi pour leurs revenus imposables appartenant à la première cédule. Toutefois, seuls les revenus suivants sont pris en compte pour le calcul du montant des revenus imposables :
+
+1° les revenus d’emploi de source burundaise au sens des articles 6 et 7;
+
+2° les revenus locatifs. Toute personne physique exerçant des activités d’affaires au Burundi, qu’elle soit de droit burundais ou de droit étranger est soumise à l’impôt minimal quels qu’en soient ses résultats y compris les bénéficiaires des avantages du code des investissements, à l’exception des bénéficiaires des avantages de la zone franche pendant les dix (10) premières années de son existence. L’impôt minimal est fixé à 1 % du chiffre d’affaires. Il est établi lorsque les revenus nets imposables sont inférieurs au quotient obtenu en divisant le chiffre d’affaires par 30. Toutefois, les personnes physiques exerçant des activités d’affaires sont imposées au taux unique de trente pour cent (30%).

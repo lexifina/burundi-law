@@ -1,0 +1,3 @@
+# Article 82
+
+L’impôt sur les revenus locatifs est établi chaque année sur le revenu de l’année antérieure. Toutefois, en cas d’aliénation de tous les droits immobiliers d’un redevable, l’impôt est calculé sur la base des revenus acquis entre le l janvier et la date d’aliénation. Ce paiement est rattaché à l’exercice désigné par le millésime de l’année de cette aliénation. En outre, pour la détermination de l’impôt dû au trésor, il est procédé à l’application du prorata temperés ris pour les loyers encaissés sur une période inférieure à 12 mois pendant un exercice comptable. Une ordonnance du Ministre détermine les modalités d’application du présent alinéa. Paragraphe 2 Des exonérations et abattements

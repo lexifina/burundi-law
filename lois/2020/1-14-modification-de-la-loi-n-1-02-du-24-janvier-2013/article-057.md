@@ -1,0 +1,9 @@
+# Article 57
+
+Pour l’établissement de l’impôt sur les revenus des sociétés dû par les entreprises qui sont sous la dépendance ou qui possèdent le contrôle d’entreprises situées hors du Burundi, les bénéfices indirectement transférés à ces dernières, soit par majoration ou diminution des prix d’achat ou de vente, soit par sous-capitalisation, soit par tout autre moyen, seront incorporés aux résultats accusés par les comptabilités. Il est procédé de même pour les entreprises qui sont sous la dépendance d’une entreprise ou d’un groupe possédant également le contrôle d’entreprises situées hors du Burundi.
+
+La condition de dépendance ou de contrôle n’est pas exigée lorsque le transfert s’effectue avec des entreprises établies dans un Etat étranger ou dans un territoire situé hors du Burundi dont le régime fiscal est privilégié ou dans un pays non coopératif. Des liens de dépendance sont réputés exister entre deux entreprises :
+
+a) lorsque l’une détient directement ou par personne interposée la majorité du capital social de l’autre ou y exerce en fait le pouvoir de décision;
+
+b) lorsqu’elles sont placées l’une et l’autre dans les conditions définies au point a) sous le contrôle d’une même entreprise. Toute personne morale établie au Burundi doit tenir à la disposition de l’Administration fiscale une documentation permettant de justifier la politique des prix pratiqués dans le cadre de transactions de toute nature réalisées avec des entreprises associées établies à l’étranger. L’Administration fiscale est en droit de demander des renseignements par écrit concernant les informations sur la fixation des prix des transactions intragroupes surtout en cas d’absence de production ou de production partielle de la documentation mentionnée au 4 alinéa du présent article. Une Ordonnance du Ministre précise la documentation à tenir et les modalités d’imposition des prix de transfert. Paragraphe 9 Des stocks commerciaux
