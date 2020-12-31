@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés au grade d’Officier de Police Chef de Deuxième Classe (OPC2) à la date du 31 décembre 2020, les Officiers de Police Principal de Première Classe (OPP1), dont les noms, prénoms et matricules suivent : Série Nom et Prénom Matricule 1 BARANYANKA Vital OPN 0882 2 BERAHINO Jean Marie OPN 1228 3 BIMENYIMANA Gilbert OPN 1264 4 BIZIMANA Georges OPN 1099 5 BUDENGERI Lydia OPN 1277 6 HABARUGIRA Domitien OPN 0975 7 NDAYIRAGIJE Salvator OPN 0701 8 NDAYISHIMIYE JIMMY OPN 1132 9 NDORERAHO Bonfort OPN 1299 10 NIYUBAHWE Frédéric OPN 1230 11 NZEYIMANA Oscar OPN 0974 12 TUYIZERE Serges OPN 0829

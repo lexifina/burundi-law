@@ -1,0 +1,3 @@
+# Article 6
+
+Sont nommés, sans effet rétroactif, au grade d’Officier de Police Chef de Première Classe (OPC1) à la date du 31 décembre 2020, les Officiers de Police Chef de Deuxième Classe (OPC2), dont les noms, prénoms et matricules suivent: Série Nom et Prénom Matricule 1 NYANDWI Hermès OPN 1271 2 GIRUKWIGOMBA Pie OPN 0910 3 NIYONZIMA Gérard OPN 1239 4 MBOGAMBI Jean Berchmans OPN 0550 5 NTAMWANA Jérémie OPN 0913 6 NYABENDA Sylvestre OPN 0964 7 HABOGORIMANA Evariste OPN 1251 8 NDAYAMBAJE Zénobus OPN 1254 9 BIZIMANA Désiré OPN 1077 10 MIBURO Gérard OPN 1216 1 1 NJIRI Méthode OPN 1243 12 NGENDAKUMANA Pantaléon OPN 0941

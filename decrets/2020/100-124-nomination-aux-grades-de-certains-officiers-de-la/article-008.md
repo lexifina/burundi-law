@@ -1,0 +1,3 @@
+# Article 8
+
+Sont nommés, sans effet rétroactif, au grade d’Officier de Police Chef de Deuxième Classe (OPC2) à la date du 31 décembre 2016, les Officiers de Police Chef de Deuxième Classe (OPC2) harmonisés, dont les noms, prénoms et matricules suivent: Série Nom et Prénom Matricule 1 NZOMWITA Léandre OPN 0738 2 MPOZENZI Célestin OPN 0712 3 HAKIZIMANA Rénovât OPN 0704 4 NKURUNZIZA Philippe OPN 0730 5 NDAYISHIMIYE Ladislas OPN 0718 6 HAKIZIMANA Ernest OPN 0702 7 GAHUNGU Pierre OPN 0698 8 HATUNGIMANA Jean Marie OPN 0706 9 NAHIMANA Jean Marie OPN 0714 10 NZOKIRA Vincent OPN 0736 11 GAHUNGU Prime OPN 0698 12 NDAYIKENGURUKIYE Thomas OPN 0640 13 NDAYISABA Fabien OPN 0595
