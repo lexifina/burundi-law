@@ -1,0 +1,3 @@
+# Article 1 2
+
+La Coopérative KIDUDU MINING COMPANY, enregistrée sous les numéros RC: 23668/20 et NIF: 4001416041, domiciliée à Mugina (Cibitoke), téléphone 68 999 000, est autorisée à mener ses activités d’exploitation artisanale de I’Or sur le site Nyakajoro, colline Nyamihana, commune Mugina, province Cibitoke.
