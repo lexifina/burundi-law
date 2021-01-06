@@ -1,0 +1,31 @@
+# Article 2 6
+
+Le site Musumba II, d’une superficie de 0,066 ha, se trouve sur la colline Musumba et est délimité par les coordonnées géographiques ci-après : Sommets Longitude Est Latitude Sud Sommets Longitude Est Latitude Sud A
+
+29°10’56,7"
+
+02°54’54,3" E
+
+29°10’56,3"
+
+02°54’53,7" B
+
+29°10’57,2"
+
+02°54’55,1" F
+
+29°10’56,1"
+
+02°54’53,0" C
+
+29°10’56,7"
+
+02°54’54,9" G
+
+29°10’56,8"
+
+02°54’53,3" D
+
+29°10’56,7"
+
+02°54’54,0" - - -

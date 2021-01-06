@@ -1,0 +1,3 @@
+# Article 6 5
+
+Monsieur SINDIMWO Floribert est tenu de respecter scrupuleusement les conditions sécuritaires dont la clôture et l’assurance du site. II doit en outre mettre à la disposition des artisans les Equipements de Protection Individuelle (EPI) spécifiques notamment les bottes, les masques, les casques, les lunettes, les gants et les gilets. II doit également s’assurer de la présence sur le site des conditions d’hygiène et sanitaires acceptables (Toilettes et accessoires).

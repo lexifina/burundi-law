@@ -1,0 +1,3 @@
+# Article 1 5
+
+La COOPERATIVE D’EXPLOITATION MINIERE DE GITEGA, enregistrée sous les numéros RC: SC/0078/2020 et NIF: 4001463704 domiciliée à Makebuko (Gitega), téléphone 61 234 040 / 75 414 113, est autorisée à mener ses activités d’exploitation artisanale de la cassitérite sur le site Buga, colline Buga, commune Makebuko, province Gitega.

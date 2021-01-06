@@ -1,0 +1,3 @@
+# Article 8 3
+
+La présente autorisation a une validité de deux ans. La Coopérative ITERITEKA est tenue de présenter des rapports trimestriels de production et de commercialisation du coltan et de la cassitérite produits sur ce site.

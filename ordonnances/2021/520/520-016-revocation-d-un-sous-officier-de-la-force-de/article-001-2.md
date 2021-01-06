@@ -1,0 +1,3 @@
+# Article 1 2
+
+La Coopérative KORA NEZA, enregistrée sous les numéros RC: SC/00448/2020 et NIF : 40011500463 domiciliée à Bujumbura-Mairie, téléphone 79 968 241 / 69 127 127, est autorisée à mener ses activités d’exploitation artisanale de la cassitérite sur le site Gitemezi, colline Gitemezi, commune Busiga, province Ngozi.
