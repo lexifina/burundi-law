@@ -20,4 +20,6 @@ h) veiller à la mise en application des missions et des décisions de la Commis
 
 i) proposer des initiatives à la Commission pour répondre à une situation urgente relevant de sa compétence;
 
-j) en cas de situations complexes, proposer des solutions possibles à transmettre au Gouvernement pour disposition et compétence. Section 3 De l’Organisation et du Fonctionnement
+j) en cas de situations complexes, proposer des solutions possibles à transmettre au Gouvernement pour disposition et compétence.
+
+Section 3 De l’Organisation et du Fonctionnement
