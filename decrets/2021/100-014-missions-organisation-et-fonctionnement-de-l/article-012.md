@@ -10,4 +10,6 @@ L’Inspection Provinciale du Travail et de la Sécurité Sociale est chargée d
 
 - réunir tous renseignements et statistiques concernant les problèmes du travail;
 
-- toute autre mission lui donnée par l’autorité compétente. Chapitre IV Du fonctionnement
+- toute autre mission lui donnée par l’autorité compétente.
+
+Chapitre IV Du fonctionnement
