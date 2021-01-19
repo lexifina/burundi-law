@@ -10,4 +10,6 @@ Le Ministère ayant les finances dans ses attributions transfère ces fonds de l
 
 4° Onze milliards neuf cent soixante-onze millions de francs burundais (11.971 milliards Fbu) directement sur les comptes bancaires spécifiques des fournisseurs, sur base des dossiers préparés par les Communes et centralisés par le FONIC ;
 
-5° Onze milliards neuf millions de francs burundais (11.9 Milliards Fbu) transféré directement sur le compte de fournisseur des véhicules. Chapitre III De l’utilisation
+5° Onze milliards neuf millions de francs burundais (11.9 Milliards Fbu) transféré directement sur le compte de fournisseur des véhicules.
+
+Chapitre III De l’utilisation

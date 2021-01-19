@@ -1,3 +1,5 @@
 # Article 18
 
-La coopérative bénéficiaire a l’obligation de réaliser le projet et de rembourser le prêt dans les délais convenus avec la commune. Chapitre VII Des dispositions transitoires et finales
+La coopérative bénéficiaire a l’obligation de réaliser le projet et de rembourser le prêt dans les délais convenus avec la commune.
+
+Chapitre VII Des dispositions transitoires et finales
