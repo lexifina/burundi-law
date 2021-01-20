@@ -1,0 +1,3 @@
+# Article 1 4
+
+La Coopérative ABANYAMWETE TERIMBERE, enregistrée sous les numéros RC: 14090/18 et NIF: 400116686 domiciliée à Marangara (Ngozi), téléphone 69 169 105, est autorisée à mener ses activités d’exploitation artisanale de la cassitérite sur le site Gakenke, colline Mariza, commune Ntega, province Kirundo.

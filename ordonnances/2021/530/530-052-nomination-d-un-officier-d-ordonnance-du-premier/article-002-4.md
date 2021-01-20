@@ -1,0 +1,19 @@
+# Article 2 4
+
+Le site Gakenke, d’une superficie de 0.51 ha, se trouve sur un terrain à pente moyenne et est délimité par les coordonnées géographiques ci-après : Sommet Longitude Est Latitude Sud A
+
+29°57’13,1"
+
+02°34’58,1" B
+
+29°57’13,9"
+
+02°34’56,5" C
+
+29°57’16,8"
+
+02°34’56,3" D
+
+29°57’15,3"
+
+02°34’58,7"
