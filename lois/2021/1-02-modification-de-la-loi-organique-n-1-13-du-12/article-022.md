@@ -10,4 +10,6 @@ Est frappé d’incapacité électorale :
 
 4° le magistrat suspendu dans le cadre d’une procédure judiciaire ou disciplinaire ;
 
-5° le magistrat mis à la retraite. CHAPITRE V DU FONCTIONNEMENT
+5° le magistrat mis à la retraite.
+
+CHAPITRE V DU FONCTIONNEMENT

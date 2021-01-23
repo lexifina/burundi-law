@@ -4,4 +4,6 @@ Le Conseil Supérieur de la Magistrature est la plus haute instance chargée de 
 
 Le Conseil est le garant de l’indépendance fonctionnelle et matérielle des magistrats du siège.
 
-Le Conseil est présidé par le Président de la République, Magistrat Suprême. CHAPITRE II DES MISSIONS
+Le Conseil est présidé par le Président de la République, Magistrat Suprême.
+
+CHAPITRE II DES MISSIONS

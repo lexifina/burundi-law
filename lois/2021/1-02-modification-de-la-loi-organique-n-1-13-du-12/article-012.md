@@ -20,4 +20,6 @@ Sans préjudice des missions assignées aux autres institutions de l’appareil 
 
 9° la rédaction des procès-verbaux des sessions, des avis et des décisions du Conseil;
 
-10° la préparation et l’exécution du budget du Conseil. CHAPITRE IV DE LA COMPOSITION, DES MODALITES DE DESIGNATION DES MEMBRES, DU MANDAT ET DE LEUR REMPLACEMENT Section 1 De la composition du Conseil
+10° la préparation et l’exécution du budget du Conseil.
+
+CHAPITRE IV DE LA COMPOSITION, DES MODALITES DE DESIGNATION DES MEMBRES, DU MANDAT ET DE LEUR REMPLACEMENT Section 1 De la composition du Conseil
