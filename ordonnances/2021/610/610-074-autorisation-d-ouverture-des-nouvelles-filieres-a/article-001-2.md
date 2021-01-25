@@ -1,0 +1,3 @@
+# Article 1 2
+
+La COOPERATIVE MINIERE DE KINYINYA, enregistrée sous les numéros RC : 06099 et NIF : 4000646085, domiciliée à Kinyinya (Ruyigi), téléphone 69 701 688, est autorisée à mener ses activités d’exploitation artisanale de l’Or sur le site Nkondo I, colline Nyabitsinda, commune Nyabitsinda, province Ruyigi.
