@@ -8,4 +8,6 @@ Les produits fermentés de préparation artisanale à base de sucre, et autres p
 
 • Liste II des produits dangereux;
 
-• Liste des stupéfiants; Substance contrôlée: Toute forme de drogue que le gouvernement a catégorisée comme ayant un potentiel d’abus ou d’accoutumance plus élevé que la moyenne. Chapitre 2 De la classification des stupéfiants
+• Liste des stupéfiants; Substance contrôlée: Toute forme de drogue que le gouvernement a catégorisée comme ayant un potentiel d’abus ou d’accoutumance plus élevé que la moyenne.
+
+Chapitre 2 De la classification des stupéfiants
