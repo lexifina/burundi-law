@@ -1,0 +1,3 @@
+# Article 4
+
+Le salaire brut d’un membre du Comité de Direction, d’un Cadre et agent de l’Autorité de Régulation des secteurs de l’Eau potable et de l’Energie « AREEN » comprend un salaire de base, une indemnité de logement de 60% du salaire de base, une indemnité de déplacement de 15% du salaire de base et une indemnité de fonction de 15% du salaire de base pour les membres du personnel occupant des postes de responsabilité dont ceux du Directeur Général, des Directeurs et des Chefs de Service. Les membres du Comité de Direction et du personnel disposant de véhicule de fonction ne bénéficient pas de l’indemnité de déplacement.
