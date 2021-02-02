@@ -1,0 +1,19 @@
+# Article 2 4
+
+Le site Mungwa, d’une superficie de 0.56 ha, se trouve sur un terrain à pente moyenne et est délimité par les coordonnées géographiques ci-après : Sommets Longitude Est Latitude Sud A
+
+30°00’02,9"
+
+3°51’02,2" B
+
+30°00’00,9"
+
+3°51’01,6" C
+
+30°00’00,8"
+
+3°51’04,7" D
+
+30°00’03,3"
+
+3°51’03,2"

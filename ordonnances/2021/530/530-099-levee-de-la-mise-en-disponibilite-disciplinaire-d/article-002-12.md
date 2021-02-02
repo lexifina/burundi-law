@@ -1,0 +1,3 @@
+# Article 2 12
+
+Les étudiants cités aux alinéas (a) et (b) de l’article précédent ont droit au diplôme A1 qui, combiné avec un certificat obtenu après la réussite de la formation complémentaire dans la filière concernée, donne droit à l’obtention d’une équivalence au diplôme de licence de l’ancien système ; Sans préjudice d’autres conditions dûment exigées, l’acquisition de l’équivalence de diplôme de licence de l’ancien système est subordonnée à la présentation d’un Certificat de formation complémentaire et d’un diplôme A1 à la Commission d’Equivalence des Diplômes, Titres scolaires et Universitaires.
