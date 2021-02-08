@@ -1,0 +1,3 @@
+# Article 1 2
+
+La Cellule Nationale du Renseignement Financier (CNRF), ci-après dénommée « La Cellule », créée par le Décret n°100/044 du 16 mars 2020 portant création, missions, organisation et fonctionnement de la Cellule Nationale du Renseignement Financier au Burundi, « C.N.R.F » en sigle est un service administratif placé sous l’autorité du Ministère ayant les finances dans ses attributions. Elle est dotée de la personnalité juridique chargée de la réception des déclarations de soupçons, de leur traitement et de la transmission du rapport qui en découle et autres informations concernant les actes susceptibles d’être constitutifs du blanchiment de capitaux et de financement du terrorisme au Ministère Public.

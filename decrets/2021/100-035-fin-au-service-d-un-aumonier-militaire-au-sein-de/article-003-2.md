@@ -1,0 +1,3 @@
+# Article 3 2
+
+La Cellule reçoit toutes autres informations utiles à l’accomplissement de sa mission notamment celles communiquées par les autorités de contrôle et les officiers de police judiciaire. Elle peut demander la communication par les assujettis ainsi que par toute personne physique ou morale, d’informations détenues par eux en vue d’enrichir les déclarations de soupçons. Le secret professionnel ne peut être invoqué par les assujettis pour refuser de fournir les informations à la Cellule. En cas d’urgence, les déclarations peuvent être reçues par téléphone ou par moyen électronique sous réserve d’une confirmation écrite. Un accusé de réception est envoyé par la Cellule à la partie déclarante.
