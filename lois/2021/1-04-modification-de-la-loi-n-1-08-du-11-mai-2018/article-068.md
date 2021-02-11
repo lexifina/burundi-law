@@ -14,4 +14,6 @@ La confidentialité ne s’applique pas :
 
 5° aux mesures de décontamination à prendre au cas où le pesticide se répand accidentellement ou en cas de fuite accidentelle :
 
-6° aux premiers soins et au traitement médical à appliquer en cas de lésions corporelles. Chapitre V Des infractions et des sanctions administratives et pénales Seetion1 Des infractions
+6° aux premiers soins et au traitement médical à appliquer en cas de lésions corporelles.
+
+Chapitre V Des infractions et des sanctions administratives et pénales Seetion1 Des infractions

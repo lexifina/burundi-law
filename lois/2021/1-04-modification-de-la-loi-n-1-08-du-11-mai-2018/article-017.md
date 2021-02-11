@@ -20,4 +20,6 @@ Les facteurs à tenir en compte comprennent entre autres :
 
 8° la qualité du pesticide ;
 
-9° la persistance et les autres facteurs contribuant à la persistance des résidus dans les récoltes concernées. Section 2 Des décisions d’homologation
+9° la persistance et les autres facteurs contribuant à la persistance des résidus dans les récoltes concernées.
+
+Section 2 Des décisions d’homologation

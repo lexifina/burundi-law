@@ -64,4 +64,6 @@ Au sens de la présente loi, on entend par :
 
 31° risque: la probabilité d’un effet négatif sur la santé humaine, animale ou sur l’environnement à la suite de l’exposition à un pesticide ;
 
-32° toxicité: les propriétés physiologiques ou biologiques qui font qu’un produit chimique peut endommager ou altérer un organisme vivant par des moyens autres que mécaniques. Section 3 Des principes généraux
+32° toxicité: les propriétés physiologiques ou biologiques qui font qu’un produit chimique peut endommager ou altérer un organisme vivant par des moyens autres que mécaniques.
+
+Section 3 Des principes généraux
