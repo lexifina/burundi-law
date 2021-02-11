@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés membres de la Commission Foncière Nationale : 1. Monsieur Bernard NTAVYIBUHA : Président; 2. Honorable Martin NINTERETSE: Vice-Président; 3. Monsieur Damien MACUMI : Secrétaire ; 4. Msc. Arch. Jean Pierre GATORE : Membre; 5. Monsieur Emmanuel NDORIMANA: Membre; 6. Monsieur Melchiade NZOPFABARUSHE: Membre; 7. OPC1 Didace BAZIRUBUSA: Membre ; 8. Lieutenant-Colonel Valentin MINANI: Membre; 9. Dr. Ir. Régis MPAWENAYO : Membre; 10. Monsieur Désiré MUSHARITSE: Membre; 11. Monsieur Nestor BIMENYIMANA: Membre; 12. Monsieur Jean Claude NDUWAYO: Membre; 13. Monsieur Audace NDAYIZEYE: Membre; 14. Monsieur Salomon NIBIGIRA: Membre; 15. Monsieur Frédéric NGENDABAKANA: Membre.
