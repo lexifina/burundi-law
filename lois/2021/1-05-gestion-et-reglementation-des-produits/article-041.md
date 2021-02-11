@@ -14,4 +14,6 @@ La confidentialité ne s’applique pas :
 
 5° aux mesures de décontamination à prendre au cas où le produit vétérinaire serait répandu accidentellement ou en cas de fuite accidentelle;
 
-6° aux premiers soins et au traitement médical à appliquer en cas de lésions corporelles. Chapitre VII De la recherche et de la constatation des infractions
+6° aux premiers soins et au traitement médical à appliquer en cas de lésions corporelles.
+
+Chapitre VII De la recherche et de la constatation des infractions

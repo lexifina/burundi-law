@@ -38,4 +38,6 @@ Au sens de la présente loi, on entend par :
 
 18° produit vétérinaire: tout produit pouvant être administré à l’animal en vue d’établir un diagnostic médical, de restaurer, de corriger ou de modifier ses fonctions organiques ainsi que les produits de désinfection, de désinsectisation, de dératisation utilisés en élevage ou prescrits dans le cadre de la lutte contre les maladies animales réputées contagieuses ;
 
-19° services vétérinaires: les structures gouvernementales ou non gouvernementales chargées de mettre en œuvre les mesures relatives à la santé et au bien-être des animaux. Chapitre II De l’enregistrement et de l’autorisation de commercialisation des produits vétérinaires
+19° services vétérinaires: les structures gouvernementales ou non gouvernementales chargées de mettre en œuvre les mesures relatives à la santé et au bien-être des animaux.
+
+Chapitre II De l’enregistrement et de l’autorisation de commercialisation des produits vétérinaires

@@ -32,4 +32,6 @@ Commet une infraction au sens de la présente loi, toute personne qui :
 
 15° gène ou empêche une inspection;
 
-16° mêle ou mélange des produits vétérinaires avec d’autres matières ou substances et en altère la qualité. Section 2 Des sanctions administratives et pénales
+16° mêle ou mélange des produits vétérinaires avec d’autres matières ou substances et en altère la qualité.
+
+Section 2 Des sanctions administratives et pénales
