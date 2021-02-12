@@ -1,0 +1,3 @@
+# Article 3
+
+La formation complémentaire est organisée en faveur des étudiants des catégories (a) et (b) repris à l’article 1er par l’établissement d’enseignement supérieur qui a délivré la formation initiale, après validation par la Commission Nationale de l’Enseignement Supérieur, des modules de formation y afférentes. En cas d’incapacité pour un établissement d’enseignement supérieur d’organiser la formation complémentaire, la Direction Générale de l’Education Nationale oriente les étudiants concernés dans un autre établissement d’enseignement supérieur public ou privé organisant la formation filière similaire.
