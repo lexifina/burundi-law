@@ -16,4 +16,6 @@ Le Directeur est chargé de l’administration quotidienne du Fonds. Il a notamm
 
 - mobiliser le personnel requis pour la bonne exécution des activités du Fonds;
 
-- soumettre le rapport des activités au Ministre de tutelle. Section 4 Du Personnel
+- soumettre le rapport des activités au Ministre de tutelle.
+
+Section 4 Du Personnel

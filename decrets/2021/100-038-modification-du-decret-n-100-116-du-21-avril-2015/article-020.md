@@ -8,4 +8,6 @@ Le personnel du Fonds est regroupé dans des services spécifiés dont l’organ
 
 - service administratif et financier.
 
-Les missions de ces services sont définies dans le Règlement d’Ordre Intérieur du Fonds. Section 5 De la Tutelle administrative
+Les missions de ces services sont définies dans le Règlement d’Ordre Intérieur du Fonds.
+
+Section 5 De la Tutelle administrative

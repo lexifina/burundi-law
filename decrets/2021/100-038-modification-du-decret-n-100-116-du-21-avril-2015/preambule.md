@@ -1,6 +1,6 @@
 # Décret n°100/038 du 18 février 2021
 
-PORTANT MODIFICATION DU DECRET N°100/116 DU 21 AVRIL 2015 PORTANT CREATION D’UN ETABLISSEMENT PUBLIC A CARACTERE ADMINISTRATIF DENOMME « FONDS D’IMPULSION, DE GARANTIE ET D’ACCOMPAGNEMENT»
+PORTANT MODIFICATION DU DECRET CREATION D’UN ETABLISSEMENT PUBLIC A CARACTERE ADMINISTRATIF DENOMME « FONDS D’IMPULSION, DE GARANTIE ET D’ACCOMPAGNEMENT»
 
 Le Président de la République,
 
@@ -22,4 +22,6 @@ Sur proposition du Ministre des Finances, du Budget et de la Planification Econo
 
 Le Conseil des Ministres ayant délibéré ;
 
-Décrète: Chapitre I De la Nature, la Dénomination et la Mission
+Décrète:
+
+Chapitre I De la Nature, la Dénomination et la Mission

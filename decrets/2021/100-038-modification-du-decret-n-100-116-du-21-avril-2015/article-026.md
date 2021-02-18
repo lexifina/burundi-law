@@ -12,4 +12,6 @@ Les dépenses du Fonds sont constituées par :
 
 - le paiement des appels de garanties sur les risques couverts par le Fonds de garantie en cas de défaillance de paiement par les promoteurs de projet ;
 
-- le financement des missions d’accompagner les entrepreneurs pendant et après le démarrage du projet. Section 2 De l’Engagement des Dépenses
+- le financement des missions d’accompagner les entrepreneurs pendant et après le démarrage du projet.
+
+Section 2 De l’Engagement des Dépenses

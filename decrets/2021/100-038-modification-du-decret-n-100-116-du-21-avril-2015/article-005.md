@@ -6,4 +6,6 @@ Le Fonds vise à mettre en place des mécanismes appropriés de renforcement des
 
 - la mise en place d’un fonds de garantie pour couvrir les risques de l’institution financière et permettre l’accès aux financements pour les promoteurs des projets ;
 
-- La mise en place des mécanismes d’accompagnements avant, pendant et après le démarrage du projet. Chapitre II De l’organisation administrative Section I Des dispositions générales
+- La mise en place des mécanismes d’accompagnements avant, pendant et après le démarrage du projet.
+
+Chapitre II De l’organisation administrative Section I Des dispositions générales
