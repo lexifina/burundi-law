@@ -1,0 +1,3 @@
+# Article 3 2
+
+Le contrôleur des engagements des dépenses joue le rôle de liaison entre le Ministère des Finances, du Budget et de la Planification Economique et le Ministère sectoriel d’affectation. Il est l’œil du Ministère des Finances, du budget et de la Planification Economique. Il donne l’avis technique sur tout acte d’engagement lui présenté. En sa qualité de conseiller, le contrôleur des engagements des dépenses a la mission d’assurer l’information et la formation du gestionnaire de l’unité d’affectation sur les questions à caractère budgétaire et financier. Il apporte son appui et ses conseils dans la mise en œuvre du processus budgétaire de l’unité d’affectation.
