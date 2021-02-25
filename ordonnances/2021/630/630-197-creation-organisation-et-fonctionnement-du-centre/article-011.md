@@ -1,0 +1,5 @@
+# Article 11
+
+Le chef de service de surveillance des événements et risques sanitaires : Sous la supervision du Directeur du COUSP, le chef de service de surveillance des événements et risques sanitaires est chargé de :  Recueillir, traiter, analyser et évaluer les informations dans le but de prédire l’évolution d’une urgence sanitaire ou un évènement de santé publique ;  Assurer la surveillance et le traitement des informations de veille sanitaire des structures et secteurs concernés (intra et intersectoriel);  Organiser la collecte, l’analyse et l’interprétation des données de la veille sanitaire;  Contribuer à la réalisation des investigations des évènements inhabituels en collaboration avec le service chargé des opérations.  Elaborer un spotRep des événements et risques sanitaires  Participer à l’élaboration des rapports de situation (SitRep) en collaboration étroite avec le service des opérations;
+
+Le Médecin chef de service surveillance des événements et risques sanitaires est appuyé par un épidémiologiste dans ses missions.

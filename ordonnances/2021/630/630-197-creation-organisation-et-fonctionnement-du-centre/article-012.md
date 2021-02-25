@@ -1,0 +1,5 @@
+# Article 12
+
+Le chef de service du système d’information sanitaire et de la communication Il est chargé de:  Piloter le système d’information du COUSP;  Assurer la collecte, l’analyse et le traitement des informations du centre d’appel à l’aide des fiches adaptées, en collaboration avec le service des opérations.  Coordonner l’élaboration du schéma directeur du système d’information (SDSI) et dans sa révision au fil des années ;  Développer et mettre en œuvre une stratégie de communication en collaboration avec les structures concernées ;  Assurer la coordination de la communication sur les risques ;  Développer et animer les canaux de communication (médias, sites webs et réseaux sociaux) en collaboration avec les structures concernées;  Participer à l’élaboration des rapports de situation (SitRep) en collaboration étroite avec le service des opérations ;  Contribuer à l’atteinte des objectifs du COUSP en apportant un appui aux autres services chaque fois que cela est nécessaire.
+
+Le chef de service du système d’information sanitaire et de la communication est appuyé dans ses missions par un informaticien.
