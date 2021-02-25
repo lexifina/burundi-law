@@ -1,0 +1,3 @@
+# Article 2
+
+Le PROGISSA est la référence nationale pour:  toutes les activités en rapport avec l’informatisation et le développement des solutions numériques innovantes pour le secteur de la santé ;  l’optimisation de la qualité et de la continuité des soins de santé, de simplification administrative et de soutien de la politique en matière de soins de santé à travers un réseau informatique mise en place par le programme ;  la gestion des données du secteur de la santé en rapport avec tous les aspects statistiques relatifs au système de santé et son financement ;  la gestion informatique des prestations et de leur coût.
