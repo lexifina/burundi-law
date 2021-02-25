@@ -14,4 +14,6 @@ Le Centre d’opération d’urgence en santé publique est un organe de préven
 
 - Assurer la surveillance de santé publique, y compris la surveillance à base communautaire ;
 
-- Elaborer et mettre en œuvre les stratégies de communication sur les risques et engagement communautaires en situation d’épidémie, pandémie, urgence de santé publique ou tout autre catastrophe sanitaire. Chapitre 2 De l’organisation administrative du centre des opérations d’urgence de santé publique
+- Elaborer et mettre en œuvre les stratégies de communication sur les risques et engagement communautaires en situation d’épidémie, pandémie, urgence de santé publique ou tout autre catastrophe sanitaire.
+
+Chapitre 2 De l’organisation administrative du centre des opérations d’urgence de santé publique
