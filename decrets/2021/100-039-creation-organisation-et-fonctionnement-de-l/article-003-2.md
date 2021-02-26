@@ -1,0 +1,5 @@
+# Article 3 2
+
+Cette Ordonnance confère à son titulaire le droit d’exploiter de l’Or sur le site ci-haut cité, de procéder à toutes les opérations de concentration et de commercialisation du minerai à la Banque de la République du Burundi (BRB).
+
+Le montant issu de la commercialisation de l’Or exploité sur ce site doit être versé au compte n°718-112336-01 ouvert à l’IBB Mabayi sous le nom de la Coopérative MUKOMA MINING COMPANY.
