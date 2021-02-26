@@ -1,0 +1,3 @@
+# Article 3
+
+Au sens du présent décret, est considéré comme règlementation, l’action de règlementer et de réguler les activités liées à la promotion de la qualité et la sécurité sanitaire des produits tels que les aliments préfabriqués et emballés, les médicaments à usage humain, les produits cosmétiques et diététiques contenant un principe actif, les médicaments à base de plantes, les médicaments traditionnels, les dispositifs médicaux ou les matériaux ou substances utilisées dans la fabrication des produits dont la consommation ou l’utilisation peut nuire à la santé humaine. Section 2 De l’objet, du champ d’application et des missions de l’autorité
