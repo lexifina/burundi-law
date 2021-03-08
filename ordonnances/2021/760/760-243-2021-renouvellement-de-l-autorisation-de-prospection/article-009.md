@@ -1,0 +1,3 @@
+# Article 9
+
+A la fin de la période de validité de cette ordonnance, la société Benzu Minerals (PTY) Ltd est tenue de déposer un rapport technique annuel des travaux et un rapport financier audité y relatif.

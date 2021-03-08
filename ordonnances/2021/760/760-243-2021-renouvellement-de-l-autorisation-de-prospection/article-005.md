@@ -1,0 +1,3 @@
+# Article 5
+
+Les activités de prospection comprennent les observations en surface et en sub-surface et les prises d’échantillons de sols, des roches, des minéraux et des eaux de la terre seulement en quantité strictement nécessaire pour analyse.
