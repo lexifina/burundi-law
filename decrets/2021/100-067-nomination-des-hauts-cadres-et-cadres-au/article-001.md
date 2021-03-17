@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés : 1. Secrétaire Exécutif Permanent de la Commission Nationale de la Science, la Technologie et l’Innovation : Dr Tatien MASHARABU ; 2. Secrétaire Exécutif Permanent de la Commission Nationale de l’Enseignement Supérieur : Dr Alexis NDABARUSHIMANA; 3. Secrétaire Général de la Commission Nationale du Burundi pour l’UNESCO: Dr Steve De CLIF ; 4. Secrétaire Général Adjoint de la Commission Nationale du Burundi pour l’UNESCO : Dr Sévérin DUSHIMIRIMANA; 5. Secrétaire Exécutif Permanent de la Commission Nationale de l’Enseignement Fondamental et Post-Fondamental : Monsieur Serge NDEREYIMANA ; 6. Secrétaire Exécutif Permanent de l’Académie Rundi : Dr. Clément BIGIRIMANA.
