@@ -1,0 +1,3 @@
+# Article 24
+
+Aux termes de l’article 136 de la loi n1/14 du 24 décembre 2020 portant modification de la loi n°1/02 du 24 janvier 2013 relative aux impôts sur les revenus, sont visées, seules les déclarations des impôts de l’exercice comptable 2020 dont les échéances étaient non encore échues le jour de la promulgation de la loi. Sans préjudice aux dispositions du précédent alinéa, les dispositions de la loi n°1/14 du 24 décembre 2020 portant modification de la loi n°1/02 du 24 janvier 2013 relative aux impôts sur les revenus s’appliquent à tous les exercices comptables postérieurs à sa promulgation.

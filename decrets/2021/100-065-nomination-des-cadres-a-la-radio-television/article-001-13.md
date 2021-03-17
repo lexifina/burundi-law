@@ -1,0 +1,3 @@
+# Article 1 13
+
+La Coopérative UMUBATUZI WACU, enregistrée sous les numéros RC: S/C00771/2020 et NIF: 4001531088, domiciliée à Cankuzo, téléphone 69 135 954 / 69 558 927, est autorisée à mener ses activités d’exploitation artisanale de l’Or sur le site Rutoke, colline Rutoke, commune Cankuzo, province Cankuzo.

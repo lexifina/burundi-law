@@ -1,0 +1,33 @@
+# Article 15 2
+
+La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 05/03/2021 Dr. Gaspard BANYANKIMBONA (Sé) ANNEXE A L’ORDONNANCE MINISTERIELLE N°610/215 DU 05/03/2021 FIXANT EQUIVALENCE DE CERTAINS DIPLOMES, TITRES SCOLAIRES ET UNIVERSITAIRES 1. Le Diplôme de « Bachelor of Science in Information Technology (with Elective in Systems Development), décerné à NTANGO Guillain Oresteen 2019 par « Richfield Graduate Institute of Technology » en Afrique du Sud, équivaut au Diplôme de Licence en Technologie de l’Information, Option : « Systems Development » (Art.1 ). 2.« The Degree of Bachelor of Engineering in Food Science &. Engineering, décerné à IRABOGORA Ninette en 2020 par « Jiangnan University » en Chine, équivaut au Diplôme d’ingénieur Industriel en Technologie alimentaire (Art.2). 3.Le Diplôme de Licence en Science Politique et Relations Internationales, décerné à MUGISHA Jean François Régis en 2013 par l’Université Lumière de Bujumbura (Burundi), équivaut au Diplôme de Licence en Science Politique et Relations Internationales (Art.3). 4. Le Diplôme de Master en Droit International, Option : Relations Internationales, décerné à MUGISHA Jean François Régis en 2020 par l’Université des Affaires Etrangères (China Foreign Affairs University) en Chine, équivaut au Diplôme de Master en Droit International, Option : Relations Internationales (Art.4). 5. Le Diplôme de « Doctor Medic » (Docteur en Médecine), décerné à NDAGIJIMANA Albin en 2015 par l’Université de Médecine et Pharmacie luliu Hateiganu ·, Cluj Napoca en Roumanie, équivaut au Diplôme de Docteur en Médecine Générale (Art.5). 6.« The Degree of Master of Business Management », décerné à NIHEZAGIRE Alain Deby en 2020 par l’Université de Bohai (Bohai University) en Chine, équivaut au Diplôme de Master en Gestion des Entreprises (Art.6). 7.Le Diplôme de «Master of Engineering Computer Science and Technology », décerné à ISHIMWE Nisch Liesse en 2020 par « Xi’an Jiaotong University » en Chine, équivaut au Diplôme de Master en Science Informatique et Technologie (Art.7). 8.« The Degree of Bachelor of Commerce, décerné à GEKE Joel en 2008 par « Madurai Kamaraj University » en Inde, équivaut au Diplôme de Licence en Commerce (Art.8). 9.« The Degree of Master of Commerce in Finance», décerné à GEKE Joel en 2010 par « Madurai Kamaraj University » en Inde, équivaut au Diplôme de Master en Commerce, Option : Finance (Art.9). 10.Le Diplôme de Master de Sciences Humaines et Sociales, Mention Cultures, Arts et Sociétés, Spécialité Cultures et Sociétés, à finalité Recherche et professionnelle, décerné à NDAYISABA Eric en 2016 par l’Université de PAU et des Pays de l’Adour en France, équivaut au Diplôme de Master en Sciences Humaines et Sociales, Mention Cultures, Arts et Sociétés, Spécialité Cultures et Sociétés, à finalité Recherche et professionnelle (Art.10). 11.Le Diplôme de Master de Spécialisation en Gestion des Risques et des Catastrophes, décerné à Denise KAVIRA MASINGO en 2017 par l’Université Catholique de Louvain (UCL) en collaboration avec l’Université de Liège en Communauté Française de Belgique, équivaut au Diplôme de Master de Spécialisation en Gestion des Risques et des Catastrophes (Art.11). 12.Le Diplôme de « Master of Business Administration (Human Resource Management) », décerné à NININAHAZWE Oscar en 2020 par « Cavendish University Uganda » en Ouganda, équivaut au Diplôme d’Etudes Supérieures Spécialisées (D.E.S.S) en Administration des Affaires, Option: Gestion des Ressources Humaines (Art.12). 13.Le Diplôme d’ingénieur d’Etat, Filière: Génie des Télécommunications et Réseaux, décerné à KANEZA Bélise en 2017 par l’Université Cadi Ayyad - Marrakech (Ecole Nationale des Sciences Appliquées de Safi) au Maroc, équivaut au Diplôme d’ingénieur Civil en Génie des Télécommunications et Réseaux (Art.13).
+
+Fait à Bujumbura, le 05/03/2021 Dr. Gaspard BANYANKIMBONA(Sé) ORDONNANCE MINISTERIELLE OCTROI D’UN PERMIS D’EXPLOITATION ARTISANALE DE L’OR SUR LE SITE BUGENYUZI DANS LA PROVINCE RUYIGI EN FAVEUR DE LA COOPERATIVE COPAMIRU Le ministre de l’hydraulique, de l’Energie et des mines,
+
+Vu la Constitution de la République du Burundi,
+
+Vu la Loi n°1/010 du 30 juin 2000 portant Code de l’Environnement de la République du Burundi,
+
+Vu la Loi n°1/10 du 30 mai 2011 portant Création et Gestion des aires protégées, Vu la Loi n°1/13 du 09 août 2011 portant révision du Code Foncier du Burundi, Vu la Loi n°1 /02 du 26 mars 2012 portant Code de l’Eau au Burundi,
+
+Vu la Loi n°1/21 du 15 octobre 2013 portant Code Minier du Burundi,
+
+Vu la Loi n°1/12 du 22 septembre 2016 portant modification des articles 146 et 151 de la loi n°1/21 du 15 octobre 2013 portant Code Minier du Burundi,
+
+Vu la Loi n°1/12 du 28 juin 2017 régissant les sociétés coopératives au Burundi,
+
+Vu le Décret n°100/22 du 7 octobre 2010 portant mesures d’application du Code de l’Environnement en rapport avec les Procédures d’Etude d’impact Environnemental ;
+
+Vu le Décret n°100/193 du 16 juin 2015 portant Règlement Minier du Burundi,
+
+Vu le Décret n°100/184 du 07 décembre 2018 portant révision du Décret n°100/112 du 30 mai 2016 portant création, missions, organisation et fonctionnement de l’Office Burundais des Mines et Carrières, « OBM »,
+
+Vu le Décret n°100/086 du 19 octobre 2020 portant missions, organisation et fonctionnement du Ministère de l’Hydraulique, de l’Energie et des Mines,
+
+Vu l’Ordonnance Ministérielle n°760/540/770/1757 du 26 décembre 2013 fixant la contribution annuelle pour la réhabilitation des sites d’exploitations artisanales des minerais, des carrières ainsi que des comptoirs d’achat et de vente des minerais d’exploitation artisanale,
+
+Vu l’Ordonnance Ministérielle n°760/214/584/2013 du 23 avril 2013 portant Procédure de Certification des substances minérales en République du Burundi,
+
+Vu l’Ordonnance Ministérielle n°760/1248/2015 du 25 septembre 2015 portant fiche d’inspection minière de la Conférence Internationale sur la Région des Grands Lacs (CIRGL) en République du Burundi, Vu l’Ordonnance Ministérielle Conjointe n°760/540/679/2019 du 05 avril 2019 portant révision de l’Ordonnance Ministérielle Conjointe n°760/540/898/2015 du 13 juillet 2015 portant régime fiscal applicable au secteur des mines et des carrières du Burundi, Attendu que la Coopérative COPAMIRU a présenté l’attestation de conformité environnementale en date du 12 janvier 2021 et qu’elle a payé les frais et redevances requis en date du 09 février 2021 pour l’exploitation artisanale de l’Or sur le site Bugenyuzi, colline Nyarunazi, commune Bweru, province Ruyigi, Ordonne

@@ -1,0 +1,21 @@
+# Article 2 14
+
+Le site Rutoke, d’une superficie de 0.39 ha, se trouve sur le terrain à pente faible et est délimité par les coordonnées géographiques ci-après : Sommet Longitude Est Latitude Sud A 30"2817,4"
+
+03°14’16,6° B 30"28’14,8"
+
+03°14’19,2" C 3028’15,0"
+
+03°1419,4" D
+
+30°28’14,3
+
+03°14’20,2" E 3028’13,7"
+
+03°14’20,8" F
+
+30°28’14,4"
+
+03°1421,2" G 3028’17,9"
+
+03°14’16,9"
