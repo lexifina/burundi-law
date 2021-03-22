@@ -1,0 +1,23 @@
+# Article 2 4
+
+Le site Rurira II, d’une superficie de 0.60 ha, se trouve sur un terrain à pente moyenne et est délimité par les coordonnées géographiques ci-après : Sommet Longitude Est Latitude Sud A
+
+30°03’6,6"
+
+02°39’5,8" B
+
+30°03’4,9"
+
+02°39’4,9" C
+
+30°03’6,1"
+
+02°39’1,9" D
+
+30°03’7,9"
+
+02°39’1,5" E
+
+30°03’8,1"
+
+02°39’4,3"

@@ -1,0 +1,3 @@
+# Article 1 4
+
+La Coopérative Passion du Métier de Busoni (PAMBU), enregistrée sous les numéros RC: 07858 et NIF: 4000760951, domiciliée à Busoni (Kirundo), téléphone 69171355/69083482, est autorisée à mener ses activités d’exploitation artisanale de la cassitérite et du coltan sur le site Ruzyege II, colline Munazi, commune Busoni, province Kirundo.

@@ -1,0 +1,19 @@
+# Article 2 2
+
+Le site Nyakizu, d’une superficie de 0.85 ha, se trouve sur le terrain à pente moyenne et est délimité par les coordonnées géographiques ci-après : Sommet Longitude Est Latitude Sud A
+
+30°15’01,9"
+
+02°29’29,1" B
+
+30°14’59,5"
+
+02°29’28,0" C
+
+30°14’59,3"
+
+02°29’31,1" D
+
+30°15’02,5"
+
+02°29’32,5"
