@@ -1,3 +1,0 @@
-# Article 21
-
-Les sociétés coopératives agricoles font une planification stratégique de trois ou cinq ans basés sur l’identification et la classification des secteurs prioritaires de réalisation de leurs missions et de leurs interventions. A défaut d’avoir la planification stratégique, toutes les sociétés coopératives effectuent une planification opérationnelle d’un an qui définit les grandes lignes de planification pour permettre une exécution efficace et efficiente des activités, il traduit le programme d’action, détaille les objectifs et les orientations stratégiques de la société coopérative et concrétise dans les faits en préparant leur mise en œuvre dans le budget annuel d’exploitation et d’investissement.
