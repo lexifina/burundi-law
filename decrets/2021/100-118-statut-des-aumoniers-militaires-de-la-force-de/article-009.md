@@ -14,4 +14,6 @@ e) assurer le service de culte à la FDNB ;
 
 f) préparer des activités religieuses visant le renforcement de la discipline et du moral des membres de la FDNB ;
 
-g) soutenir moralement et spirituellement les militaires malades blessés et ceux qui sont dans des situations socialement difficiles. Chapitre III Du recrutement et de la position statutaire Section 1 Du recrutement
+g) soutenir moralement et spirituellement les militaires malades blessés et ceux qui sont dans des situations socialement difficiles.
+
+Chapitre III Du recrutement et de la position statutaire Section 1 Du recrutement
