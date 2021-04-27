@@ -1,0 +1,25 @@
+# Décret n°100/120 du 27 avril 2021
+
+PORTANT NOMINATION DU DIRECTEUR GENERAL DU FONDS NATIONAL D’INVESTISSEMENT COMMUNAL
+
+Le Président de la République,
+
+Vu la Constitution de la République du Burundi ;
+
+Vu la Loi n°1/09 du 17 mars 2005 portant Distinction des Fonctions Politiques des Fonctions Techniques ;
+
+Vu la Loi n°1/09 du 13 novembre 2020 portant Modification de la Loi n°1/08 du 28 avril 2011 portant Organisation Générale de l’Administration Publique ;
+
+Vu le Décret-loi n°1/024 du 13 juillet 1989 portant Cadre Organique des Administrations Personnalisées de l’Etat ;
+
+Vu le Décret n°100/196 du 15 septembre 2016 portant Dispositions Complémentaires de Gouvernance des Etablissements Publics à caractère Administratif des Administrations Personnalisées de l’Etat et des Sociétés à Participation Publique ;
+
+Vu le Décret n°100/007 du 28 juin 2020 portant Révision du Décret n°100/037 du 19 avril 2018 portant Structure, Fonctionnement et Missions du Gouvernement de la République du Burundi ;
+
+Vu le Décret n°100/082 du 12 octobre 2020 portant Missions. Organisation et Fonctionnement du Ministère de l’Intérieur, du Développement Communautaire et de la Sécurité Publique ;
+
+Vu le Décret n°100/117 du 2l avril 2021 portant Modification du Décret n°100/270 du 22 novembre 2013 portant Réorganisation du Fonds National d’Investissement Communal ;
+
+Sur proposition du Ministre de l’Intérieur du Développement Communautaire et de la Sécurité Publique.
+
+Décrète Article l Est nommé Directeur Général du Fonds National d’Investissement Communal : OPCI NITUNGA Servelien, OPN 0074 de la matricule.
