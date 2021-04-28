@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés : - Directeur Général du Développement Communautaire et de la Décentralisation : Madame Fifille NKURUNZIZA ; - Directeur de la Promotion de l’Economie Locale, des Coopératives et de l’Entreprenariat : Madame Lisette NINDORERA ; - Directeur de la Coordination des Projets Communaux et des Villages ; Monsieur Claude HARERIMANA; - Directeur de la Décentralisation et de la Gestion des Performances des Communes : Monsieur Valentin NAHIMANA; - Directeur de la Mobilisation des Ressources Communales : Madame Dative NTABOMFISE ; - Directeur de la Planification Locale : Monsieur Jean Marie Vianney MUTABAZI.
