@@ -1,0 +1,5 @@
+# Article 3 3
+
+Cette Ordonnance confère à son titulaire le droit d’exploiter de l’Or sur le site ci-haut cité, de procéder à toutes les opérations de concentration et de commercialisation du minerai à la Banque de la République du Burundi (BRB).
+
+Le montant issu de la commercialisation de l’Or exploité sur ce site doit être versé au compte n°09535420101/95 ouvert à la BANCOBU Muyinga sous le nom de la Coopérative TUBIRI TUVURANA UBUPFU TWEGERANYE UBUTARE.
