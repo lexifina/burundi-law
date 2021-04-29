@@ -1,0 +1,3 @@
+# Article 6
+
+En cas d’indisponibilité constatée des médicaments et autres produits pharmaceutiques à la CAMEBU, ces formations sanitaires peuvent saisir les établissements pharmaceutiques de distribution ou de vente en gros agréés par le Ministre ayant la santé publique dans ses attributions. La liste actualisée des établissements pharmaceutiques de distribution ou de vente en gros agréés des médicaments essentiels et autres produits pharmaceutiques est mise à la disposition des formations sanitaires au début de chaque année budgétaire par le Ministre ayant la santé publique dans ses attributions.
