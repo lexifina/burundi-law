@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés : Directeur Général chargé de la Coordination des Affaires Politiques et Sécuritaires : Monsieur Sévérin MBARUBUKEYE ; Directeur chargé des Affaires Politiques et Diplomatiques : Monsieur Emile NDIGIRIYE ; Directeur chargé des Affaires de Défense et de Sécurité : Colonel NSABIYUMVA Sébastien.
