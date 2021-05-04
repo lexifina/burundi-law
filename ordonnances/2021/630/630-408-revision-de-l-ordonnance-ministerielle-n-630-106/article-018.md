@@ -10,17 +10,17 @@ L’équipe de l’UGADS se compose comme suit:
 
 – Un (e) Responsable Administratif et Financier;
 
-– Un(e) Responsable Suivi -évaluation et Infor­ mation Stratégique;
+– Un(e) Responsable Suivi -évaluation et Information Stratégique;
 
-– Un (e) Responsable Gestion des Approvisionne­ ments et Stocks (Médicaments et Intrants);
+– Un (e) Responsable Gestion des Approvisionnements et Stocks (Médicaments et Intrants);
 
 – Un (e) Chef Comptable:
 
 – Des Comptables;
 
-– Un (e) Assistant Gestion des Approvisionne­ ment et Stocks;
+– Un (e) Assistant Gestion des Approvisionnement et Stocks;
 
-– Un Assistant Suivi Evaluation /Base de Don­ nées;
+– Un Assistant Suivi Evaluation /Base de Données;
 
 – Un (e) Expert (e) en Passation de Marché et Logistique;
 
