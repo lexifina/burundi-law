@@ -22,18 +22,18 @@ Vu la Loi n°1/12 du 22 septembre 2016 portant modification des articles 146 et 
 
 Vu la Loi n°1/12 du 28 juin 2017 régissant les sociétés coopératives au Burundi;
 
-Vu le Décret n°100/22 du 7 octobre 2010 portant mesures d’application du Code de l’Environne­ ment en rapport avec les Procédures d’Etude d’impact Environnemental;
+Vu le Décret n°100/22 du 7 octobre 2010 portant mesures d’application du Code de l’Environnement en rapport avec les Procédures d’Etude d’impact Environnemental;
 
 Vu le Décret n°100/193 du 16 juin 2015 portant Règlement Minier du Burundi;
 
-Vu le Décret n°100/184 du 07 décembre 2018 por­ tant révision du Décret n°100/112 du 30 mai 2016 portant création, missions, organisation et fonc­ tionnement de 1’ Office Burundais des Mines et Carrières, OBM en sigle;
+Vu le Décret n°100/184 du 07 décembre 2018 portant révision du Décret n°100/112 du 30 mai 2016 portant création, missions, organisation et fonctionnement de 1’ Office Burundais des Mines et Carrières, OBM en sigle;
 
-Vu le Décret n°100/086 du 19 octobre 2020 por­ tant missions, organisation et fonctionnement du Ministère de l’Hydraulique, de l’Energie et des Mines;
+Vu le Décret n°100/086 du 19 octobre 2020 portant missions, organisation et fonctionnement du Ministère de l’Hydraulique, de l’Energie et des Mines;
 
-Vu l’Ordonnance Ministérielle n°760/214/584/ 2013 du 23 avril 2013 portant Procédure de Cer­ tification des substances minérales en Répu­ blique du Burundi;
+Vu l’Ordonnance Ministérielle n°760/214/584/ 2013 du 23 avril 2013 portant Procédure de Certification des substances minérales en République du Burundi;
 
 Vu l’Ordonnance Ministérielle n°760/1248/2015 du 25 septembre 2015 portant fiche d’inspection minière de la Conférence Internationale sur la Région des Grands Lacs (CIRGL) en République du Burundi;
 
-Vu l’Ordonnance Ministérielle conjointe n°760/ 540/679/2019 du 05 avril 2019 portant révision de l’Ordonnance Ministérielle n°760/540/898/2015 du 13 juillet 2015 portant régime fiscal applicable au secteur des mines et des carrières du Burundi; Attendu que la Société KUNLI IMPORT AND EXPORT a présenté une attestation de confor­ mité environnementale en date du 20/11/2020 et qu’elle a payé les frais et redevances requis en date du 23/03/2021;
+Vu l’Ordonnance Ministérielle conjointe n°760/ 540/679/2019 du 05 avril 2019 portant révision de l’Ordonnance Ministérielle n°760/540/898/2015 du 13 juillet 2015 portant régime fiscal applicable au secteur des mines et des carrières du Burundi; Attendu que la Société KUNLI IMPORT AND EXPORT a présenté une attestation de conformité environnementale en date du 20/11/2020 et qu’elle a payé les frais et redevances requis en date du 23/03/2021;
 
 Ordonne
