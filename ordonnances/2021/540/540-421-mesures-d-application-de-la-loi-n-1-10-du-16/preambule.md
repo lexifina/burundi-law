@@ -6,19 +6,19 @@ Le Ministre des Finances, du Budget et de la Planification Economique,
 
 Vu la Constitution de la République du Burundi;
 
-Vu la Loi n°1/39 du 30 décembre 2006 portant Adhésion du Burundi au Protocole portant Créa­ tion de l’Union Douanière de la Communauté Est Africaine, signée à Arusha le 02 mars 2004;
+Vu la Loi n°1/39 du 30 décembre 2006 portant Adhésion du Burundi au Protocole portant Création de l’Union Douanière de la Communauté Est Africaine, signée à Arusha le 02 mars 2004;
 
 Vu la Loi n°1/35 du 04 décembre 2008 relative aux Finances Publiques telle que modifiée à ce jour;
 
-Vu la Loi n°1/11 du 14 juillet 2009 portant Créa­ tion, Organisation et Fonctionnement de l’Office Burundais des Recettes;
+Vu la Loi n°1/11 du 14 juillet 2009 portant Création, Organisation et Fonctionnement de l’Office Burundais des Recettes;
 
 Vu la Loi n°1/10 du 16 novembre 2020 portant modification de la Loi n°1/12 du 29 juillet 2013 portant révision de la Loi n°1/02 du 17 février 2009 portant institution de la Taxe sur la Valeur Ajoutée «TVA»;
 
 Vu la Loi n°1/12 du 25 novembre 2020 relative aux Procédures Fiscales et Non Fiscales;
 
-Vu la Loi n°1/14 du 24 décembre 2020 portant modification de la Loi n°1/02 du 24/1/2013 rela­ tive aux Impôts sur les Revenus;
+Vu la Loi n°1/14 du 24 décembre 2020 portant modification de la Loi n°1/02 du 24/1/2013 relative aux Impôts sur les Revenus;
 
-Vu le Décret n°100/069 du 24 septembre 2020 portant Mission, Organisation et Fonctionne­ ment du Ministère des Finances, du Budget et de la Planification Economique;
+Vu le Décret n°100/069 du 24 septembre 2020 portant Mission, Organisation et Fonctionnement du Ministère des Finances, du Budget et de la Planification Economique;
 
 Vu l’Ordonnance Ministérielle n°540/214 du 05/3/ 2021 portant mesures d’application de la loi n°1/ 14 du 24 décembre 2020 portant modification de la loi n°1/02 du 24/01/2013 relative aux impôts sur les revenus;
 
