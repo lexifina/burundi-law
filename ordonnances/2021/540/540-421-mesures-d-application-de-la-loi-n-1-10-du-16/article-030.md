@@ -1,0 +1,5 @@
+# Article 30
+
+Lorsqu’il y a changement définitif ou durable dans l’utilisation de biens ou de services dont l’assujetti à antérieurement déduit la TVA les ayant grevés, il doit reverser la TVA déduite à concurrence de l’utilisation nouvelle n’ouvrant pas droit à déduction. Lors du reversement en vertu de l’alinéa 1 du pré­ sent article, l’assujetti peut tenir compte, sous réserve du contrôle de l’Administration fiscale, de l’utilisation effective qu’il a faite des biens et ser­ vices concernés avant le changement. Lorsqu’il s’agit d’un changement d’utilisation temporaire ou occasionnel, les dispositions de l’article 5 de la loi TVA, selon le cas, peuvent trou­ ver application. Si tel est les cas, ils prennent priorités sur l’alinéa 1 ci-dessus. En aucun cas l’article 5 de la loi susvisée ne peut s’appliquer à la fois avec l’alinéa 1 du présent article pour un même cas de changement d’utilisation.
+
+Le reversement en vertu de l’alinéa 1 du présent article, doit s’opérer dans la déclaration pério­ dique qui porte sur le mois dans lequel le change­ ment est intervenu.

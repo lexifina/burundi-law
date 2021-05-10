@@ -1,0 +1,5 @@
+# Article 26
+
+Lorsque, pour une période imposable, le montant de la TVA déductible au titre de la période impo­ sable excède le montant de la TVA exigible au titre de la période, la différence constitue dans le chef de l’assujetti concerné un crédit de taxe. Ce crédit de taxe doit, en principe, être reporté sur la déclaration portant sur la période impo­ sable suivante. Néanmoins, lorsque chacune des déclarations périodiques portant sur trois périodes imposables consécutives fait apparaître un crédit de taxe, une demande de remboursement peut être déposée avec la déclaration pour la troisième période, à condition que le montant du crédit de taxe por­ tant sur la troisième période s’élève à au moins quinze millions (15 000 000 BIF).
+
+Le cas échéant le crédit de taxe sera reporté sur la déclaration suivante qui, elle, pourra donner lieu à une demande de remboursement si elle montre un crédit de taxe d’au moins quinze millions (15 000 000 BIF), et ainsi de suite. Le crédit de taxe sera reporté sur la déclaration suivante et ne sera remboursé que quand il atteint au moins quinze millions (15 000 000 BIF).
