@@ -10,8 +10,8 @@ Vu la loi n°1/35 du 31 Décembre 2014 portant cadre organique des confessions r
 
 Vu les statuts de l’Eglise susvisée;
 
-Vu le rapport circonstanciel nous transmis par le Maire de la ville; Attendu que les représentants des parties anta­ gonistes avaient été convoqué au cabinet du Ministre et invité au changement de comporte­ ment afin que chaque culte soit caractérisé par un climat de prière et d’entente; Attendu qu’après avoir été convoquées et conseil­ lées de rester sereines, les parties antagonistes ont toujours manifesté le comportement indigne allant dans le sens de troubler l’ordre public;
+Vu le rapport circonstanciel nous transmis par le Maire de la ville; Attendu que les représentants des parties antagonistes avaient été convoqué au cabinet du Ministre et invité au changement de comportement afin que chaque culte soit caractérisé par un climat de prière et d’entente; Attendu qu’après avoir été convoquées et conseillées de rester sereines, les parties antagonistes ont toujours manifesté le comportement indigne allant dans le sens de troubler l’ordre public;
 
-Vu le caractère récidiviste et conflictuel des diri­ geants de l’Eglise Grace Evangelistic Temple of Burundi.
+Vu le caractère récidiviste et conflictuel des dirigeants de l’Eglise Grace Evangelistic Temple of Burundi.
 
 Ordonne
