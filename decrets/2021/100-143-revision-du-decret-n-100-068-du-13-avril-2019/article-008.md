@@ -12,4 +12,4 @@ La cellule technique est composée de:
 
 – un cadre chargé de la communication;
 
-– un cadre chargé de la comptabilité et la logis­ tique.
+– un cadre chargé de la comptabilité et la logistique.
