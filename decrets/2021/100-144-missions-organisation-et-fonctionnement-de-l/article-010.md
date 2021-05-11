@@ -1,6 +1,6 @@
 # Article 10
 
-L‘Inspecteur Général est assisté de quatre Ins­ pecteurs techniques chargés respectivement:
+L‘Inspecteur Général est assisté de quatre Inspecteurs techniques chargés respectivement:
 
 a) du contrôle des services centraux;
 

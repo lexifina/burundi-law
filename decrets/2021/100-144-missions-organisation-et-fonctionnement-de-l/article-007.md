@@ -8,10 +8,10 @@ b) l’objet de la mission;
 
 c) les constatations de la mission;
 
-d) les explications ou informations du respon­ sable ou de l’agent concerné;
+d) les explications ou informations du responsable ou de l’agent concerné;
 
-e) l’opinion de la mission sur lesdites explica­ tions;
+e) l’opinion de la mission sur lesdites explications;
 
 f) les recommandations de la mission;
 
-g) des annexes constituées d’éléments probants, en appui à l’opinion de la mission dont ques­ tion ci-dessus.
+g) des annexes constituées d’éléments probants, en appui à l’opinion de la mission dont question ci-dessus.
