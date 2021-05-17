@@ -4,7 +4,7 @@ Sont nommés membres du Comité National d’Orientation du Recensement Généra
 
 – Son Excellence Monsieur le Premier Ministre: Président;
 
-– Ministre des Finances, du Budget et de la Pla­ nification Economique: Vice-Président;
+– Ministre des Finances, du Budget et de la Planification Economique: Vice-Président;
 
 – Directeur Général de 1’Institut de Statistiques et d’Etudes Economiques du Burundi (ISTEEBU): Secrétaire;
 
@@ -14,7 +14,7 @@ Sont nommés membres du Comité National d’Orientation du Recensement Généra
 
 – Ministre de la Justice: Membre;
 
-– Ministre des Affaires Etrangères et de la Coo­ pération au Développement: Membre;
+– Ministre des Affaires Etrangères et de la Coopération au Développement: Membre;
 
 – Ministre de l’Education Nationale et de la Recherche Scientifique: Membre;
 
@@ -34,12 +34,12 @@ Sont nommés membres du Comité National d’Orientation du Recensement Généra
 
 – Ministre de la Solidarité Nationale, des Affaires Sociales, des Droits de la Personne Humaine et du Genre: Membre;
 
-– Ministre de la Communication des Technolo­ gies de l’Information et des Médias: Membre;
+– Ministre de la Communication des Technologies de l’Information et des Médias: Membre;
 
-– Chef de Bureau chargé des Etudes Straté­ giques et de Développement à la Présidence de la République: Membre;
+– Chef de Bureau chargé des Etudes Stratégiques et de Développement à la Présidence de la République: Membre;
 
 – Directeur de Cabinet du Vice-Président de la République: Membre;
 
-– Chef de Bureau chargé des Affaires Econo­ miques à la Primature: Membre;
+– Chef de Bureau chargé des Affaires Economiques à la Primature: Membre;
 
-– Président de la Chambre Sectorielle des Pres­ tataires de Services au sein de la Chambre Fédérale de Commerce et d’Industrie du Burundi (CFCIB): Membre.
+– Président de la Chambre Sectorielle des Prestataires de Services au sein de la Chambre Fédérale de Commerce et d’Industrie du Burundi (CFCIB): Membre.
