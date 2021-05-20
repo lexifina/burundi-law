@@ -1,0 +1,5 @@
+# Article 13
+
+Ingingo ya 13. L’autorité statistique nationale est un organe qui assure la coordination technique des activités du Système Statistique National (SSN). Igisata c’igihugu kijejwe gutororokanya ibiharuro bifatirwako ni co gikurikiranira hafi ibikorwa vy’ubuhinga vy’Urwego ruhurikiyemwo ibisata bijejwe gutororokanya ibiharuro bifatirwako (SSN mu mpfunyapfunyo y’igifaransa).
+
+La dénomination, le statut, les attributions et règles de fonctionnement de l’autorité statistique nationale sont définis par décret. Izina ry’igisata c’igihugu kijejwe gutororokanya ibiharuro bifatirwako, ingene gifatwa, imirimo gishinzwe n’amategeko agenga ingene gikora bitomorwa n’itegeko ry’umukuru w’igihugu. Paragraphe 2 Agahimba ka 2 Des autres services chargés d’élaborer des données statistiques placés auprès des départements ministériels, des organismes publics et parapublics lbindi bisata bijejwe gutororokanya ibiharuro bifatirwako vyo mu bushikiranganji butandukanye, mu mashirahamwe ya Reta no mu yegamiye Reta

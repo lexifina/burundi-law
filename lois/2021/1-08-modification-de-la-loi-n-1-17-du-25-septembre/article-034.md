@@ -1,0 +1,5 @@
+# Article 34
+
+Ingingo ya 34. Il est interdit à tout agent d’un service statistique de divulguer les informations d’une personne physique ou morale reçues pendant l’exercice ou à l’occasion de ses fonctions. Birabujijwe ko umukozi wese w’igisata kijejwe gutororokanya ibiharuro bifatirwako akwiragiza inkuru yamenye zerekeye umuntu canke ishira­ hamwe mu kiringo ariko ararangura imirimo yiwe canke kubera iyo mirimo.
+
+Le secret statistique ne porte pas sur les informa­ tions d’une entreprise ou d’un établissement, déjà publiées ou disponibles sur une base de données accessibles au grand public ou encore pour les­ quelles la personne physique ou morale a donné son consentement écrit pour leur publication. Ingingo y’ukugumiza mw’i banga ivyatororokani­ jwe ntiyerekeye inkuru z’ishirahamwe canke z’ikigo zamaze kumenyekanishwa canke zisanzwe ziri mw’iyegeranirizo ry’ivyatororokanijwe, abantu benshi bafiseko uburenganzira canke mbere umuntu canke ishirahamwe vyerekeye batanze uburenganzira biciye mu rwandiko ko vyomenyekanishwa.
