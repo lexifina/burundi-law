@@ -1,0 +1,3 @@
+# Article 181
+
+Les déchets doivent faire l’objet d’un traitement adéquat afin d’éliminer ou de réduire leurs effets nocifs sur la santé de l’homme, les ressources naturelles, la faune et la flore ou la qualité de l’environnement en général. Toute personne qui produit ou qui détient des déchets dans des conditions de nature à entraîner des effets nocifs sur le sol la flore et la faune. à dégrader les sites ou les paysages, à polluer l’air ou les eaux, et d’une façon générale à porter atteinte à la santé de l’homme et à l’environne-ment est tenue d’en assurer ou d’en faire assurer l’élimination conformément aux dispositions du présent Code et des textes pris pour son applica-tion.

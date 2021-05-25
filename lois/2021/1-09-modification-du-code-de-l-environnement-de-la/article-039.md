@@ -1,0 +1,3 @@
+# Article 39
+
+En vue de cadrer le champ de l’étude d’impact environnemental et social, le pétitionnaire adapte les termes de référence visés à l’article 36 pour en faire des termes de référence spécifiques pour le projet. Après avoir adapté les termes de référence spéci-fiques pour le projet aux résultats de la participa-tion publique, le pétitionnaire les dépose chez le Ministre afin de les approuver. Ils sont accompa-gnés d’un rapport de cadrage qui décrit la procé-dure parcourue pour arriver à ces termes de référence spécifiques pour le projet. Le rapport décrit au moins les résultats d’une descente sur terrain par le pétitionnaire et de la participation du public.

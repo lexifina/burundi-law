@@ -1,0 +1,3 @@
+# Article 141
+
+Les agglomérations urbaines doivent disposer d’infrastructures d’assainissement visant à assu-rer, dans les conditions fixées par l’article 187, l’évacuation des eaux domestiques et des rejets industriels susceptibles d’occasionner des nui-sances ainsi que des eaux pluviales susceptibles d’inonder des lieux habités, dans des conditions compatibles avec les exigences de l’environne-ment. Pour·les centres ne disposant pas de réseau d’assainissement collectif l’évacuation des eaux usées doit se faire au moyen d’installations d’éva-cuation individuelles agréées conjointement par les administrations de la santé publique des tra-vaux publics et de l’environnement.

@@ -1,0 +1,3 @@
+# Article 167
+
+Les usines les manufactures les ateliers, les dépôts, les chantiers les carrières et d’une manière générale les installations de toute nature, exploités ou détenus par toute personne physique ou morale, publique ou privée qui pré-sentent ou peuvent présenter des dangers ou des désagréments importants pour les intérêts liés à la santé à la sécurité. à la salubrité publique à l’agriculture à la pêche, à la conservation du patrimoine culturel, à la commodité du voisinage et à la préservation de l’environnement sont clas-sés par un décret pris sur proposition du Ministre en charge de l’environnement établissant ou révi-sant une nomenclature des installations classées.

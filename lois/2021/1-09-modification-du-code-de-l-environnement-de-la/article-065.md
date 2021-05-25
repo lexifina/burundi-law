@@ -1,0 +1,3 @@
+# Article 65
+
+Les autorités publiques peuvent accéder aux don-nées environnementales au sens du présent Code, détenues par d’autres autorités publiques, les partager, les échanger et les utiliser, aux fins de l’exécution d’une mission de service public en rap-port avec l’environnement, dans la mesure où ces données concernent l’exercice de cette mission. Toutefois, les dispositions de la présente section ne s’appliquent pas aux autorités publiques lorsqu’elles exercent une mission de service public à caractère industriel ou commercial, ni aux données produites ou reçues par les autorités publiques dans l’exercice d’une telle mission.

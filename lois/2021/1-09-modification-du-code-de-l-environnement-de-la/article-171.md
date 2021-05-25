@@ -1,0 +1,3 @@
+# Article 171
+
+Le régime de l’autorisation pour les installations rentrant dans la première classe doit recourir impérativement à une enquête de commodo et incommodo. Cette enquête a pour objet de susci-ter les observations des tiers sur l’implantation de l’installation. Les observations qui peuvent être formulées non seulement par des personnes pri-vées mais également par les autorités adminis-tratives intéressées constituent l’un des éléments d’appréciation sur lesquels l’autorité compétente se fonde pour prendre sa décision. L’enquête constitue une formalité substantielle: le défaut d’enquête ou la simple violation des règles de forme qui la régissent est de nature à entraîner l’annulation de l’autorisation par le juge.

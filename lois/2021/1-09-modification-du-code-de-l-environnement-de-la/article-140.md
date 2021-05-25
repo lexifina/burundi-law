@@ -1,0 +1,3 @@
+# Article 140
+
+Sans préjudice de la législation relative à l’amé-nagement du territoire urbain et de l’espace rural, les plans ou les schémas d’aménagement du territoire et en particulier les règlements d’urbanisme doivent intégrer les objectifs de pro-tection de l’environnement tels que définis par le Gouvernement dans le présent Code et à travers ses textes d’application. L’aménagement des zones d "habitants et la loca-lisation des zones d’activités économiques doivent tenir compte de la planification de l’aménage-ment du territoire. Cette planification est élaborée par les services en charge de l’environnement et de l’agriculture.

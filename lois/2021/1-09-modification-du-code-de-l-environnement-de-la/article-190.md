@@ -1,0 +1,3 @@
+# Article 190
+
+Les substances chimiques, nocives ou dange-reuses fabriquées, importées ou commercialisées en violation des dispositions du présent Code et de ses textes d’application doivent être saisies par les agents habilités en matière de fraudes, par les agents assermentés de l’administration de l’envi-ronnement ou par ceux des ministères éventuelle-ment concernés notamment en matière de santé publique et d’agriculture. Lorsque le danger le justifie, ces substances doivent être détruites neutralisées ou stockées dans les meilleurs délais par les soins du service de l’environnement aux frais de l’auteur de l’infraction.

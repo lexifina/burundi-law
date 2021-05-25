@@ -1,0 +1,3 @@
+# Article 96
+
+Il est interdit de jeter des cadavres d’animaux dans les eaux du domaine public hydraulique et autres ou de les enterrer à moins de cinq cent mètres des puits, des sources, des fontaines ou de tout autre point de prélèvement des eaux de consommation humaine, que celles-ci soient superficielles ou souterraines. Dans les zones où la nappe phréatique est à moins de deux mètres de profondeur, il est interdit d’ins-taller des cimetières, d’enterrer des cadavres, de creuser des latrines, d’installer des décharges publiques ou d’y pratiquer tout enfouissement de nature à entraîner une pollution des eaux du domaine public hydraulique.

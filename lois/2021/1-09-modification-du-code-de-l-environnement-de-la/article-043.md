@@ -1,0 +1,7 @@
+# Article 43
+
+Avant d’octroyer un certificat de conformité envi-ronnemental un examen du rapport d’étude d’impact environnemental et social est fait et aboutit à un avis technique. Dans un délai maximal de trois mois de la date de la publication du rapport d’étude d’impact envi-ronnemental et social, le Ministre en charge de l’environnement décide, sur base de l’avis tech-nique, si toutes les informations essentielles pour la prise de décision sont dans le rapport et si le projet est conforme aux normes et aux standards. Si le Ministre ne trouve pas l’information dans le rapport ou si le projet n’est pas conforme aux normes et aux standards, mentionnés dans le paragraphe 1, le Ministre prend une décision motivée d’amélioration. Si toute l’information est présente dans le rapport et si le projet est conforme aux normes et aux standards, le Ministre octroie un certificat ou une attestation de conformité environnementale pour le projet et annexe le plan de gestion environne-mentale et sociale à cette décision, pour en former une partie inséparable.
+
+Le Ministre envoie sa décision à l’autorité compé-tente, pour la décision sur l’autorisation de la réa-lisation du projet. Une copie de la décision est réservée au pétitionnaire.
+
+Le pétitionnaire est tenu de respecter et d’exécu-ter les mesures énoncées dans le plan de gestion environnemental et sociale selon le calendrier de ce plan.
