@@ -6,9 +6,9 @@ Le Président de la République,
 
 Vu la Constitution de la République du Burundi;
 
-Vu l’Accord Cadre de Coopération Economique, Culturelle, Scientifique et Technique entre la République du Burundi et la République de Gui­ née Equatoriale, signé à Bata le 21 juillet 2007;
+Vu l’Accord Cadre de Coopération Economique, Culturelle, Scientifique et Technique entre la République du Burundi et la République de Guinée Equatoriale, signé à Bata le 21 juillet 2007;
 
-Vu l’Accord de Coopération dans le Secteur du Transport Maritime et Portuaire signé entre la République du Burundi et la République de Gui­ née Equatoriale, le 02 novembre 2020 à Malabo;
+Vu l’Accord de Coopération dans le Secteur du Transport Maritime et Portuaire signé entre la République du Burundi et la République de Guinée Equatoriale, le 02 novembre 2020 à Malabo;
 
 Vu la nécessité de la mise en vigueur définitive dudit Accord tel qu’indiqué en son article 23;
 
