@@ -8,7 +8,7 @@ Vu la Constitution de la République du Burundi;
 
 Vu l’Accord Cadre de Coopération Economique, Culturelle, Scientifique et Technique, signé à Bata le 21 juillet 2007;
 
-Vu l’Accord de Commercial signé entre la Répu­ blique du Burundi et la République de Guinée Equatoriale, le 02 novembre 2020 à Malabo; Reconnaissant l’importance d’intensifier les rela­ tions bilatérales existantes entre la Guinée Equa­ toriale et le Burundi et, à cet effet, formuler leur coopération dans les domaines politique, écono­ mique, social, technique, scientifique, culturel et d’autres domaines sur la base du principe de l’égalité souveraine des Etats;
+Vu l’Accord de Commercial signé entre la République du Burundi et la République de Guinée Equatoriale, le 02 novembre 2020 à Malabo; Reconnaissant l’importance d’intensifier les relations bilatérales existantes entre la Guinée Equatoriale et le Burundi et, à cet effet, formuler leur coopération dans les domaines politique, économique, social, technique, scientifique, culturel et d’autres domaines sur la base du principe de l’égalité souveraine des Etats;
 
 Vu la nécessité de la mise en vigueur définitive dudit Accord tel qu’indiqué en son article 13;
 
