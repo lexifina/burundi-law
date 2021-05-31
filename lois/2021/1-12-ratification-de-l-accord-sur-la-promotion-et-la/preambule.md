@@ -6,7 +6,7 @@ Le Président de la République,
 
 Vu la Constitution de la République du Burundi;
 
-Vu la Loi n°1/19 du 27 juillet 2012 portant Ratifi­ cation par la République du Burundi de l’Accord Cadre de Coopération Economique, Scientifique et Technique, signé à Bata le 21 juillet 2007;
+Vu la Loi n°1/19 du 27 juillet 2012 portant Ratification par la République du Burundi de l’Accord Cadre de Coopération Economique, Scientifique et Technique, signé à Bata le 21 juillet 2007;
 
 Le Conseil des Ministres ayant délibéré; L’Assemblée Nationale et le Sénat ayant adopté;
 
