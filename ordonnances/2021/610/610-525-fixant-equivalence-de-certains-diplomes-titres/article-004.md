@@ -1,0 +1,3 @@
+# Article 4
+
+Le Diplôme de Technicien Supérieur de Niveau A1 en Sciences Electromécaniques, combiné avec le Certificat de Fin de la Formation Complémentaire en Sciences Electromécaniques, délivrés respectivement en 2017 et en 2021, par l’Institut Supérieur de Développement « ISD » en sigles, Institution d’Enseignement Supérieur privée agréée par le Ministère de l’Education Nationale et de la Recherche Scientifique, quatre années d’Etudes après le Diplôme d’Instituteur (D7), jouit de l’équivalence administrative avec le Diplôme d’Ingénieur Industriel en Sciences Electromécaniques reconnu au Burundi.

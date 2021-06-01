@@ -1,0 +1,3 @@
+# Article 3
+
+Le Diplôme de Technicien Supérieur de Niveau A1 en Administration et Gestion des Affaires, combiné avec le Certificat de Formation Complémentaire en Administration et Gestion des Affaires, délivrés respectivement en 2014 et en 2020, par l’Université des Grands Lacs « UGL » en sigles, Institution d’Enseignement Supérieur privée agréée par le Ministère de l’Education Nationale et de la Recherche Scientifique, quatre années d’Etudes après le Diplôme A2 en Informatique de Maintenance, jouit de l’équivalence administrative avec le Diplôme de Licence en Administration et Gestion des Affaires reconnu au Burundi.
