@@ -6,4 +6,4 @@ Fait à Bujumbura, le 01/06/2021 Le Ministre de l’Intérieur, du Développemen
 
 Le Ministre des Finances, du Budget et de la Planification Economique Dr. Domitien NDIHOKUBWAYO (sé)
 
-Le Ministre de la Santé Publique et de la Lutte Contre le Sida Dr Thaddée NDIKUMANA (sé)
+Le Ministre de la Santé Publique et de la Lutte Contre le Sida Dr Thaddée NDIKUMANA (sé) ORDONNANCE MINISTERIELLE RENOUVELLEMENT DE L’AGREMENT D’UN COMPTOIR D’ACHAT ET D’EXPORTATION DE LA COLOMBO-TANTALITE, DE LA CASSITERITE ET DE LA WOLFRAMITE OCTROYE PAR
