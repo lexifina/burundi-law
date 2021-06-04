@@ -1,0 +1,19 @@
+# Article 2 4
+
+Le site Musumba IV, d’une superficie de 1 ha, se trouve sur un terrain à pente moyenne et est délimité par les coordonnées géographiques ci-après Sommets Longitude Est Latitude Sud A
+
+29°11’02,7"
+
+2°55’09,4" B
+
+29°11’04,9"
+
+2°55’11,0" C
+
+29°11’06,5"
+
+2°55’07,8" D
+
+29°11’04,6"
+
+2°55’05,1"
