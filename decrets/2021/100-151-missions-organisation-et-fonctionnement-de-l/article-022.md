@@ -16,4 +16,6 @@ Les activités en formation continue sont organisées dans les programmes ci-apr
 
 - le Programme TIC ;
 
-- le Programme en Diplomatie et Relations Internationales. D'autres programmes peuvent être mis en place en fonction des besoins. Chapitre V De l'organisation financière et comptable
+- le Programme en Diplomatie et Relations Internationales. D'autres programmes peuvent être mis en place en fonction des besoins.
+
+Chapitre V De l'organisation financière et comptable

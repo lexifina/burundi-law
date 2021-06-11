@@ -20,4 +20,6 @@ Le Directeur chargé de l’Administration et des Finances est chargé de:
 
 - dresser et présenter les bilans financiers annuels ;
 
-- assurer le recouvrement des créances de l’école. Chapitre IV De l’organisation des formations continues et de l’expertise
+- assurer le recouvrement des créances de l’école.
+
+Chapitre IV De l’organisation des formations continues et de l’expertise

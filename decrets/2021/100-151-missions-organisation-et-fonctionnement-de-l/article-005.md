@@ -22,4 +22,6 @@ L’école a pour principales missions de:
 
 10) offrir des formations sur demande aux cadres et agents de l’administration publique et aux mandataires politiques ;
 
-11) offrir des services de consultance aux institutions relevant de l’administration publique et du secteur privé dans divers domaines. Chapitre III De l’organisation administrative
+11) offrir des services de consultance aux institutions relevant de l’administration publique et du secteur privé dans divers domaines.
+
+Chapitre III De l’organisation administrative
