@@ -1,0 +1,9 @@
+# Article 37
+
+L’Institut comprend trois niveaux de formation:
+
+a. la formation de renforcement des capacités/perfectionnement en gestion pour les cadres exerçant les fonctions de gestion et tout autre cadre appelé à exercer les fonctions de gestion. Ils sont éligibles dans les domaines de formations suivants : 1. la gestion financière et comptable (entreprises, coopératives, banques et assurances) pour les chefs comptables et financiers ; 2. la direction et Stratégie (management) pour les administrateurs et dirigeants des sociétés; 3. le contrôle interne et audit pour les auditeurs et contrôleurs internes ainsi que pour les commissaires aux comptes ; 4. la gestion de la production et logistique (stocks, approvisionnement, production) pour les responsables de la production et des approvisionnements ; 5. la gestion commerciale et marketing pour les responsables commerciaux et marketing ; 6. la gestion des recettes douanières et fiscales pour les douaniers et les fiscalistes ; 7. l’entrepreneuriat et gestion des projets ; 8. le management du système de l’information; 9. tout autre module de perfectionnement, de consultance et d’expertise relevant du domaine de la gestion pour les consultants et les experts.
+
+b. un niveau de perfectionnement dans le domaine de la gestion pour les cadres moyens et les agents et de toute autre personne travaillant comme indépendant. Ces formations sont de courte durée. Les domaines de formation cités ci-haut constituent, parmi d’autres, un paquet de formation de ces cadres ;
+
+c. en collaboration entre l’ISGE avec le ministère en charge de l’Education, les cadres peuvent venir valider leurs compétences professionnelles ou d’expériences par un mécanisme de Validation des Acquis d’Expériences (VAE) ou évaluations. Cette collaboration sera matérialisée par la validation par la Commission Nationale de l’Enseignement Supérieur (CNES) du mécanisme de VAE.
