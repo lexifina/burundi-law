@@ -8,4 +8,6 @@ La Direction Administrative et Financière comprend:
 
 - le Service des Approvisionnements et Logistique;
 
-- le Service Informatique. Chapitre III De l’organisation financière
+- le Service Informatique.
+
+Chapitre III De l’organisation financière

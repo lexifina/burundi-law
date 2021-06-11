@@ -8,4 +8,6 @@ b) recycler par des séminaires de formation et conférences spécialisés, les 
 
 c) servir comme centre national de passation des épreuves et de validation des acquis d’expérience professionnelle dans les domaines relatifs à la gestion ;
 
-d) organiser et diffuser à l’intention desdites entreprises et à l’aide de publications diverses, une documentation dans le domaine de la gestion. Section 2 De l’organisation administrative Paragraphe 1 De la tutelle
+d) organiser et diffuser à l’intention desdites entreprises et à l’aide de publications diverses, une documentation dans le domaine de la gestion.
+
+Section 2 De l’organisation administrative Paragraphe 1 De la tutelle
