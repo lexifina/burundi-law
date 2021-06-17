@@ -10,16 +10,4 @@ Les avons approuvés et les approuvons en toutes et chacune de leurs disposition
 
 Fait à Gitega, le 17/6/2021 Evariste NDAYISHIMIYE (sé) Par le Président de la République
 
-Vu et scellé du sceau de la République Le Ministre de la Justice Jeanine NIBIZI (sé) DECRET N°100/101 DU 04/8/2005 PORTANT OCTROI DE LA NATIONALITE BURUNDAISE PAR NATURALISATION A QUELQUES ETRANGERS Le Président de la République,
-
-Vu la Constitution de la République du Burundi;
-
-Vu la loi n°1/03 du 18 juillet 2000 portant réforme du Code de la Nationalité ;
-
-Vu le décret n°100/156 du 14 octobre 2003 portant modalités pratiques d’acquisition de la nationalité burundaise par naturalisation ;
-
-Vu l’avis favorable de la Commission Consultative pour la naturalisation ;
-
-Sur proposition du Ministre de la Justice et Garde des Sceaux ;
-
-Décrète :
+Vu et scellé du sceau de la République Le Ministre de la Justice Jeanine NIBIZI (sé)
