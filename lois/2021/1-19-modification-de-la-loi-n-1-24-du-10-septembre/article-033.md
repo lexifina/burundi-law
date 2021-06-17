@@ -1,0 +1,3 @@
+# Article 33
+
+La poursuite dans le chef de l'investisseur pour l'un des manquements cités a l'article précédent conduit a l'annulation du certificat d'éligibilité. Avant d'annuler le certificat d'éligibilité, l'Autorité doit délivrer un avis écrit a l'investisseur faisant état des détails sur les motifs d'annulation et lui demandant des explications sur ces motifs. L'investisseur certifié est tenu de foumir des explications écrites, dans un délai de dix jours ouvrables a compter de la date de réception de la demande de l' Agence. Lorsque 1' investisseur ne foumit pas les explications dans les délais prévus ou lorsque celles-ci ne sont pas convaincantes, l' Agence annule le certificat d' éligibilité.

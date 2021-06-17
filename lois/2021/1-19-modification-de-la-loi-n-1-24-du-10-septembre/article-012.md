@@ -1,0 +1,3 @@
+# Article 12
+
+La République du Burundi s'interdit de toute forme de discrimination en matiere de propriété, de concession, d'autorisation administrative, de participation aux marchés publics, d'acquisition ou de location immobiliere. Des terrains ou batiments appartenant a l'Etat peuvent faire l'objet de vente, de location ou d'apport en société, au profit des investisseurs dans les conditions déterminées par la loi. L'Etat, les collectivités locales et les organismes publics ou semi-publics peuvent, le cas échéant, procéder au profit desdites entreprises, a des aménagements de Zones Economiques Spéciales ou de terrains industriels.

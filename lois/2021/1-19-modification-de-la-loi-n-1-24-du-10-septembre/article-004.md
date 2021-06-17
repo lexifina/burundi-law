@@ -1,0 +1,9 @@
+# Article 4
+
+Au sens de la présente loi, on entend par :
+
+l. Agence: Agence de Développement du Burundi; 2. arbitrage institutionnel : arbitrage dont les parties ont confié l'organisation a une institution permanente d'arbitrage et qui juge conformément a ses propres regles ; 3. biens d'investissement : tout bien, produit fini ou semi fini ainsi que les intrants industriels pouvant servir dans la construction, l' équipement, la transformation ou la fabrication de nouveaux produits et/ou la fourniture de services ; 4. certificat d'éligibilité : document signé par le responsable de l' Agence et l'investisseur et qui atteste qu'un projet a droit aux avantages fiscaux et douaniers prévus par la présente loi ; 5. emploi permanent : tout emploi rémunéré au moins au niveau du seuil mínimum imposable par la loi en vigueur et dont la durée d'exécution est d'au moins deux ans. L'emploi permanent se constate par un contrat écrit soumis a la législation du travail ; 6. entreprise : toute unité de production, de transformation et/ou de commercialisation de biens ou de services, a but lucratif, quelle qu'en soit la forme juridique. L' entreprise peut etre : a capitaux locaux, si les capitaux investís sont constitués par des ressources mobilisées au Burundi, ces ressources pouvant appartenir a des Burundais, a des ressortissants de la Communauté Est Africaine ou a des étrangers ;
+
+- a capitaux étrangers, si les ressources mises en reuvre sont mobilisées a l'extérieur du pays en vue de la réalisation au Burundi d'un projet identifié;
+
+- a capitaux mixtes, si les capitaux sont formés par une mise en commun de capitaux locaux et de capitaux étrangers ou fonnés dans le cadre de partenariat public-privé suivant la réglementation en vigueur. 7. exportation: action de vendre a l'étranger des biens ou des services produits sur le territoire national ;
