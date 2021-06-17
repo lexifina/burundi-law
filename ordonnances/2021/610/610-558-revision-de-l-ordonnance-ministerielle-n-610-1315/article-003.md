@@ -10,4 +10,6 @@ c. Redoublement, le fait de reprendre le même programme de formation dans une m
 
 d. Exclusion, le fait de refuser à un apprenant, et l’avancement de classe, et le redoublement dans le même établissement scolaire ;
 
-e. Certificat, un document officiel, dûment signé par une autorité pédagogique compétente et attestant le degré de scolarité du récipiendaire ; Diplôme, un titre délivré pour sanctionner la réussite d’un cycle complet de l’enseignement post-fondamental pédagogique ou technique d’une part, et d’autre part pour sanctionner la réussite à l’examen d’Etat. Chapitre II De la délibération Section 1 Le jury de délibération
+e. Certificat, un document officiel, dûment signé par une autorité pédagogique compétente et attestant le degré de scolarité du récipiendaire ; Diplôme, un titre délivré pour sanctionner la réussite d’un cycle complet de l’enseignement post-fondamental pédagogique ou technique d’une part, et d’autre part pour sanctionner la réussite à l’examen d’Etat.
+
+Chapitre II De la délibération Section 1 Le jury de délibération
