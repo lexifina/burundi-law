@@ -6,7 +6,7 @@ Le Président de la République,
 
 Vu la Constitution de la République du Burundi ;
 
-Vu la Loi n°1/09 du 7 mai 2019 portant Ratification par la République du Burundi de l’Accord de Don N°2000002606 pour le Financement du Projet d’intensification de la Production Agricole et de la Réduction de la Vulnérabilité au Burundi (PIPARV-B) entre la République du Burundi et le Fonds International de Développement Agricole (FIDA), signé à Rome, le 13 février 2019;
+Vu la Loi n°1/09 du 7 mai 2019 portant Ratification par la République du Burundi de l’Accord de Don d’intensification de la Production Agricole et de la Réduction de la Vulnérabilité au Burundi (PIPARV-B) entre la République du Burundi et le Fonds International de Développement Agricole (FIDA), signé à Rome, le 13 février 2019;
 
 Le Conseil des Ministres ayant délibéré ; L’Assemblée Nationale et le Sénat ayant adopté ;
 
