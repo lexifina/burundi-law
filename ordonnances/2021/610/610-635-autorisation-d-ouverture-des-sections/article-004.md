@@ -2,7 +2,7 @@
 
 La présente Ordonnance Ministérielle entre en vigueur le jour de signature.
 
-Fait à Bujumbura, le 29/06/2021 Le Ministre de l’Education Nationale et de la Recherche Scientifique, Prof. François HAVYARIMANA (sé) ECOLE: LYCEE TECHNIQUE SAINTE MARIE DE BATYE CADRE LEGAL NATURE DE LA REQUETTE RAPPORT TECHNIQUE DU SEP/CNEFPF PROPOSITION DE LA COMMISSION Association Organisatrice: Association de l’Eglise Orthodoxe Copte au BURUNDI « AEOC » Personnalité Civile: OM N°530/445 du 21/04/2011 Autorisation d’Ouverture des sections: - Informatique de Gestion
+Fait à Bujumbura, le 29/06/2021 Le Ministre de l’Education Nationale et de la Recherche Scientifique, Prof. François HAVYARIMANA (sé) ECOLE: LYCEE TECHNIQUE SAINTE MARIE DE BATYE CADRE LEGAL NATURE DE LA REQUETTE RAPPORT TECHNIQUE DU SEP/CNEFPF PROPOSITION DE LA COMMISSION Association Organisatrice: Association de l’Eglise Orthodoxe Copte au BURUNDI « AEOC » Personnalité Civile: OM du Autorisation d’Ouverture des sections: - Informatique de Gestion
 
 - Informatique des Télécommunications
 
