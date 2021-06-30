@@ -1,0 +1,3 @@
+# Article 26
+
+Les comptes de la CAMEBU sont placés sous le contrôle permanent de deux commissaires aux comptes désignés par le Ministre ayant les finances dans ses attributions pour un mandat de quatre ans renouvelable. A la fin de chaque exercice comptable, les commissaires aux comptes établissent un rapport de leur vérification, donnent leurs avis sur la régularité des opérations et sur la qualité de la gestion et font toute suggestion utile pour une meilleure administration financière et comptable. Ce rapport est adressé au Ministre ayant la santé publique dans ses attributions, le Ministre ayant les finances dans ses attributions, aux membres du Conseil d’ Administration et au Directeur Général de la CAMEBU.
