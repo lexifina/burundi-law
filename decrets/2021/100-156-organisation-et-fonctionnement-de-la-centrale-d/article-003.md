@@ -16,4 +16,6 @@ La Centrale d’Achat des Médicaments, de Dispositifs Médicaux et des Produits
 
 - fournir une expertise dans le domaine de gestion des achats et stocks des produits de santé;
 
-- exécuter toute autre activité en rapport avec son objet social. Chapitre II De l’organisation administrative de la CAMEBU Section 1 Du Conseil d’Administration
+- exécuter toute autre activité en rapport avec son objet social.
+
+Chapitre II De l’organisation administrative de la CAMEBU Section 1 Du Conseil d’Administration
