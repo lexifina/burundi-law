@@ -1,0 +1,23 @@
+# Article 3 12
+
+La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 05/07/2021 Prof. François HAVYARIMANA (sé) ECOLE: LYCEE TECHNIQUE LE FLAMBEAU DES COMPETENCES DE KAYOGORO CADRE LEGAL NATURE DE LA REQUETE RAPPORT D SEP/CNEFPF PROPOSITION DE SEP/CNEFPF Association organisatrice de l’école : Association Ensemble pour la Contribution au Développement du pays, agrée par ordonnance n°530/220 du 27 Février 2018, sis à la Colline KARINZI, Zone Kayogoro Commune Mabanda, Province Makamba. Autorisation d’ouverture de deux sections/620/CAB/IGEFPF/58 88/2018. Demande d’agrément des sections : Informatique de Gestion et Informatique de Maintenance Le personnel administratif est suffisant et qualifié. Le personnel enseignant est suffisant et qualifié : 4 enseignants sur 11 ont des contrats et les 7 autres sont des vacataires. Les infrastructures sont disponibles. 6 salles de Classe et de bon état, pas de plafond. Ces salles sont occupées, toutes de 56m carré, un bloc administratif composé de 3 bureaux de 40 m carré, le terrain est de 21 ares avec possibilité d’agrandir la superficie, 6 portes de toilette simple séparées les filles et garçons; Une salle d’informatique avec 11 ordinateurs , L’école est raccordée à l’eau et à l’électricité; La salubrité est rassurée;
+
+Le terrain est propre à l’association et vaste, toutes les constructions sont en dures avec une charpente en tôles Avis favorable pour l’agrément des sections informatiques de Gestion et informatique de maintenance neufs et des portes en bois; Les programmes d’enseignement sont disponibles ; Les équipements spécifiques sont disponibles et suffisants; L’école compte un effectif de 60 élèves dont 14 sont des finalistes. Le terrain de sport existe mais de petit espace, il y’a un cours de récréation. ORDONNANCE MINISTERIELLE AGREMENT DE LA SECTION SCIENCES SOCIALES ET HUMAINES DU COMPLEXE SCOLAIRE DE LA SAGESSE DE KAYANZA Le Ministre de l’Education Nationale et de la Recherche Scientifique
+
+Vu la Constitution de la République du Burundi;
+
+Vu la Loi n°1/19 du 10 Septembre 2013 portant Organisation de l’Enseignement de Base et Secondaire;
+
+Vu le Décret N°081 du 02 août 2001 portant modalités d’encouragement à l’Enseignement privé;
+
+Vu le décret n°100/007 du 28 juin 2020 portant révision du décret n" 100/037 du 18 septembre 2018 portant structure, fonctionnement et missions du gouvernement de la République du Burundi ;
+
+Vu le décret n°100/090 du 28 octobre 2020 portant Missions, Organisation et Fonctionnement du Ministère de l’Education Nationale et de la Recherche Scientifique;
+
+Vu l’Ordonnance Ministérielle N°620/1095 du 19/06/2020 portant normes de qualité et conditions d’ouverture, d’agrément et de fermeture d’un établissement d’enseignement et de formation privé;
+
+Sur rapport de mes Services techniques ;
+
+Ordonne

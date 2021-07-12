@@ -1,0 +1,3 @@
+# Article 17
+
+Les demandes de transfert d’un établissement à un autre au courant d’une année scolaire sont adressées à la Direction Générale concernée et sont recevables uniquement avant le début des vacances de Noël à la Direction Provinciale de l’Education de leur ressort. Aucune demande n’est recevable au-delà de cette période. Pour des raisons jugées pertinentes, le Directeur Provincial de l’Education les transmet à ladite Direction Générale pour traitement, au plus tard une semaine après la rentrée scolaire du deuxième trimestre. Le Directeur Général dispose d’un délai d’une semaine pour transmettre les réponses appropriées à la Direction Provinciale. Ce genre de transfert n’est pas autorisé pour les élèves des classes terminales.
