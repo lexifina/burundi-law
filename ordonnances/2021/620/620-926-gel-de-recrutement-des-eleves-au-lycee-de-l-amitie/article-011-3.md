@@ -1,0 +1,5 @@
+# Article 11 3
+
+Le Directeur Général de l’Office Burundais des Mines et Carrières est chargé de la mise en application de la présente Ordonnance qui, sans préjudice de l’article 8, entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 30/08/2021 Le Ministre de l’Hydraulique, de l’Energie et des Mines, Ir. Ibrahim UWIZEYE (sé).
