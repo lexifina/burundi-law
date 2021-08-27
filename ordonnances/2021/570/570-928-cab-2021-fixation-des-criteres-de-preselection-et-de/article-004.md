@@ -1,0 +1,3 @@
+# Article 4
+
+Les documents exigés sont les suivants: 1. Une copie de diplôme/attestation de réussite certifiée conforme à l’original; 2. Un curriculum vitae détaillé, actualisé et dûment signé; 3. Une lettre manuscrite de demande d’emploi adressée à Madame la Présidente de la Commission Nationale de Recrutement; 4. Une copie de la carte Nationale d’Identité ou un passeport valide au moment du dépôt du dossier; 5. Une attestation de résidence précisant la zone de résidence pour les non natifs de la commune; 6. Une attestation de bénévolat ou de vacatariat de l’année scolaire 2020-2021 pour les candidats vacataires ou bénévoles.
