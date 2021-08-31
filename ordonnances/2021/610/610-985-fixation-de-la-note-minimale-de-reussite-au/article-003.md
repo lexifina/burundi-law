@@ -1,0 +1,3 @@
+# Article 3
+
+L’admission à l’Enseignement Post-Fondamental dans les écoles publiques aux filières technique, scientifique et pédagogique à régime d’internat ainsi que dans les écoles publiques de la Mairie de Bujumbura est subordonnée à l’obtention d’une note supérieure ou égale à 135 sur 200. Sans préjudice aux dispositions de l’article 2, les candidats n’ayant pas obtenu la note citée à l’alinéa précédent peuvent être reçus sous régime d’externat dans les filières technique, scientifique et pédagogique des écoles publiques sur base de la note concurrentielle sans dépasser 50 élèves par classe. L’admission dans les autres filières des écoles publiques se réfère à l’article 2 et les élèves concernés jouissent du régime d’externat.
