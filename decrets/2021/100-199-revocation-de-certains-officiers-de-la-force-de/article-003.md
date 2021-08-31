@@ -4,4 +4,4 @@ Le Ministre de la Défense Nationale et des Anciens Combattants est chargé de l
 
 Fait à Gitega, le 31 août 2021 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Alain-Guillaume BUNYONI (sé) Commissaire de Police Général.
 
-Le Ministre de la Défense Nationale Et des Anciens Combattants, Ir Alain Tribert MUTABAZI (sé). N°100/200 14/09/2021
+Le Ministre de la Défense Nationale Et des Anciens Combattants, Ir Alain Tribert MUTABAZI (sé).
