@@ -1,0 +1,3 @@
+# Article 5
+
+Pour des raisons de confidentialité, la dénoncia­ tion de la fraude fiscale et/ou douanière est déclenchée auprès du Commissaire Général de l’Office Burundais des Recettes. Celui-ci, après avoir attribué un Numéro Unique d’Identifica­ tion, transmet le dossier de l’infraction dénoncée aux services de l’OBR en charge des renseigne­ ments pour instruction conformément à la procé­ dure fiscale en vigueur en matière de contentieux fiscale ou douanière. L’identification complète du dénonciateur consti­ tue un document à part et seul le numéro d’iden­ tification unique apparaît sur le dossier à transmettre pour décision et signature à tous les niveaux hiérarchiques.

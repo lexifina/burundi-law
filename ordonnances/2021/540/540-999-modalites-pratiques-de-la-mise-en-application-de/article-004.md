@@ -1,0 +1,3 @@
+# Article 4
+
+La prime est payable en 2 tranches: 1. Après la signature du procès-verbal d’infrac­ tion qui détermine le montant total des droits, impôts, taxes, redevances et prélèvements à recouvrer par le Trésor public, une avance de 30% du montant total de la prime calculée est octroyée au dénonciateur. 2. Le montant restant au titre de cette prime, soit 70% du montant de la prime calculée, est octroyé au dénonciateur dans un délai n’excé­ dant pas 30 jours calendaires après l’encaisse­ ment du montant total des droits, impôts, taxes, redevances et prélèvements établis par les services compétents de l’Office Burundais des Recettes.
