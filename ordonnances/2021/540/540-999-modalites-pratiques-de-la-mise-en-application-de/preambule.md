@@ -8,9 +8,9 @@ Vu la Constitution de la République du Burundi;
 
 Vu la Loi n°1/35 du 04 décembre 2008 relative aux Finances Publiques telle que modifiée à ce jour;
 
-Vu la Loi sur la gestion des douanes de la Com­ munauté est Africaine, 2004 telle qu’amendée en 2009;
+Vu la Loi sur la gestion des douanes de la Communauté est Africaine, 2004 telle qu’amendée en 2009;
 
-Vu la Loi n°1/11 du 14 juillet 2009 portant créa­ tion, organisation et fonctionnement de l’Office Burundais des Recettes;
+Vu la Loi n°1/11 du 14 juillet 2009 portant création, organisation et fonctionnement de l’Office Burundais des Recettes;
 
 Vu la Loi n°1/20 du 25 juin 2021 portant fixation du Budget Général de la République du Burundi pour l’exercice 2021/2022.
 
