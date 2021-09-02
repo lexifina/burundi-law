@@ -6,8 +6,10 @@ Dans le cadre de la présente ordonnance, sous réserves des critères spécifiq
 
 2° L’énergie et les mines;
 
-3° L’industrie de transformation et de produc­ tion;
+3° L’industrie de transformation et de production;
 
 4° Le transport maritime moderne;
 
-5° La construction des infrastructures modernes dans les domaines touristiques et énergétique. Section 4 Des critères d’éligibilité
+5° La construction des infrastructures modernes dans les domaines touristiques et énergétique.
+
+Section 4 Des critères d’éligibilité
