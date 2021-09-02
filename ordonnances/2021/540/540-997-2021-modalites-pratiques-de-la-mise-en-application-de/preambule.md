@@ -8,7 +8,7 @@ Vu la Constitution de la République du Burundi;
 
 Vu la Loi n°1/35 du 4 décembre 2008 relative au Finances Publiques telle que modifiée à jour;
 
-Vu la Loi n°1/11 du 14 juillet 2009 portant orga­ nisation et fonctionnement de l’Office Burundais des Recettes;
+Vu la Loi n°1/11 du 14 juillet 2009 portant organisation et fonctionnement de l’Office Burundais des Recettes;
 
 Vu la Loi n°1/10 du 16 novembre 2020 portant modification de la loi n°1/12 du 29 juillet 2013 portant révision de la loi n°1/02 du 17 février 2009 portant institution de la taxe sur la valeur ajoutée « TV A»;
 

@@ -12,6 +12,6 @@ Aux termes de la présente ordonnance, on entend par:
 
 – Licence: titre représentant une opération administrative permettant, pour une durée déterminée, d’exercer suivant un cahier de charges, certaines activités dans le secteur de télécommunications et des technologies de l’information et de la communication;
 
-– Capacités vendues en termes de mégabit: volume des données vendues à un consomma­ teur exprimées en mégabit, par un opérateur de la téléphonie mobile ou un fournisseur d’Accès Internet;
+– Capacités vendues en termes de mégabit: volume des données vendues à un consommateur exprimées en mégabit, par un opérateur de la téléphonie mobile ou un fournisseur d’Accès Internet;
 
-– Transmission des données: désigne le trans­ port quel que soit le type d’information d’un endroit à un autre par un moyen physique ou numérique.
+– Transmission des données: désigne le transport quel que soit le type d’information d’un endroit à un autre par un moyen physique ou numérique.
