@@ -4,7 +4,7 @@ Les mentions nécessaires et obligatoires pour le paiement de cette redevance an
 
 – Le nom du propriétaire de véhicule;
 
-– Le numéro d’identification fiscale (NIF) du pro­ priétaire;
+– Le numéro d’identification fiscale (NIF) du propriétaire;
 
 – La catégorie du véhicule;
 

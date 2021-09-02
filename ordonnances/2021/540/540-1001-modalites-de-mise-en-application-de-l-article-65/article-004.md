@@ -1,3 +1,3 @@
 # Article 4
 
-Les véhicules de l’Etat, ceux des missions diplo­ matiques et consulaires ainsi que ceux des orga­ nisations internationales ne sont pas concernés par la présente ordonnance.
+Les véhicules de l’Etat, ceux des missions diplomatiques et consulaires ainsi que ceux des organisations internationales ne sont pas concernés par la présente ordonnance.

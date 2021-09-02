@@ -1,6 +1,6 @@
 # Article 2
 
-Cette redevance évoquée à l’article 1 est fixée comme suit: Pour les motocyclettes, tricycles et les quadricy­ cles:
+Cette redevance évoquée à l’article 1 est fixée comme suit: Pour les motocyclettes, tricycles et les quadricycles:
 
 – les motocyclettes: 10 000 FBU
 
