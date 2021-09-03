@@ -1,3 +1,3 @@
 # Article 38
 
-Le produit de vente aux enchères des biens meubles ou immeubles du domaine privé de l’Etat non encore liquidé et recouvré au 30 juin 2021 est toujours de la compétence de l’Office Burundais des Recettes. Il en est de même du produit de vente aux enchères des biens du domaine public régulière­ ment désaffectés.
+Le produit de vente aux enchères des biens meubles ou immeubles du domaine privé de l’Etat non encore liquidé et recouvré au 30 juin 2021 est toujours de la compétence de l’Office Burundais des Recettes. Il en est de même du produit de vente aux enchères des biens du domaine public régulièrement désaffectés.
