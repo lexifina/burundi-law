@@ -10,7 +10,7 @@ Vu la Loi n°1/19 du 10 Septembre 2013 portant Organisation de l’Enseignement 
 
 Vu le Décret N°081 du 02 août 2001 portant modalités d’encouragement à l’Enseignement privé;
 
-Vu le décret n °100/007 du 28 juin 2020 portant révision du décret n ° 100/037 du 18 septembre 2018 portant structure, fonctionnement et mis­ sions du gouvernement de la République du Burundi;
+Vu le décret n °100/007 du 28 juin 2020 portant révision du décret n ° 100/037 du 18 septembre 2018 portant structure, fonctionnement et missions du gouvernement de la République du Burundi;
 
 Vu le décret n°100/090 du 28 octobre 2020 portant Missions, Organisation et Fonctionnement du Ministère de l’Education Nationale et de la Recherche Scientifique;
 
