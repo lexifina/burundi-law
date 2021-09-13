@@ -1,3 +1,3 @@
 # Article 2
 
-Le Directeur Général de l’Education Nationale, te Directeur Général des Ressources Humaines et te Directeur Général des Curricula et des Innova­ tions Pédagogiques sont chargés, chacun en ce qui le concerne, de l’exécution de la présente ordonnance qui entre en vigueur le jour de sa signature.
+Le Directeur Général de l’Education Nationale, te Directeur Général des Ressources Humaines et te Directeur Général des Curricula et des Innovations Pédagogiques sont chargés, chacun en ce qui le concerne, de l’exécution de la présente ordonnance qui entre en vigueur le jour de sa signature.
