@@ -4,7 +4,7 @@ Sont nommés Membres du Conseil d’Administra-tion de l’Office Burundais du D
 
 – Monsieur Jean Claude KANENE: Président;
 
-– Madame Evelyne NGIRAMAHORO: Vice-Pré­ sident;
+– Madame Evelyne NGIRAMAHORO: Vice-Président;
 
 – Madame Claudette MUKANKURANGA: Secrétaire;
 
