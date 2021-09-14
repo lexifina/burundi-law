@@ -2,9 +2,9 @@
 
 Le service d’appui aux opérations d’urgence a pour missions de:
 
-– fournir les ressources nécessaires aux interve­ nants;
+– fournir les ressources nécessaires aux intervenants;
 
-– développer et renforcer les capacités tech­ niques des intervenants pour une réponse effi­ cace;
+– développer et renforcer les capacités techniques des intervenants pour une réponse efficace;
 
 – assurer un service d’assistance aux familles touchées par les événements;
 

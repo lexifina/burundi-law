@@ -6,12 +6,14 @@ Le CNOU est chargé de:
 
 – développer, renforcer et maintenir les capacités pour répondre promptement et efficacement aux risques de catastrophes;
 
-– répondre aux missions du domaine de la réduc­ tion des risques de catastrophes;
+– répondre aux missions du domaine de la réduction des risques de catastrophes;
 
-– fournir une assistance technique appropriée et aides nécessaires et sur requête de la Direction Générale de la Protection Civile et de la Ges­ tion des Catastrophes;
+– fournir une assistance technique appropriée et aides nécessaires et sur requête de la Direction Générale de la Protection Civile et de la Gestion des Catastrophes;
 
 – partager les expertises et les expériences avec les autres centres d’opérations d’urgence;
 
-– identifier les besoins clés de technologie et com­ munication;
+– identifier les besoins clés de technologie et communication;
 
-– développer les procédures communes et proto­ cole pour la gestion des catastrophes. Chapitre III De l’Organisation
+– développer les procédures communes et protocole pour la gestion des catastrophes.
+
+Chapitre III De l’Organisation

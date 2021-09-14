@@ -2,7 +2,7 @@
 
 La structure centrale comprend une direction et des services suivants:
 
-– le service de gestion de l’information straté­ gique;
+– le service de gestion de l’information stratégique;
 
 – le service de gestion des alertes;
 
