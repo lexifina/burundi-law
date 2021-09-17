@@ -8,9 +8,9 @@ Font partie de la Commission:
 
 – le Directeur Général de l’Education Nationale;
 
-– le Directeur Général de l’Enseignement Tech­ nique, de la Formation Professionnelle et des Métiers;
+– le Directeur Général de l’Enseignement Technique, de la Formation Professionnelle et des Métiers;
 
-– le Directeur Général des Curricula et des Inno­ vations Pédagogiques;
+– le Directeur Général des Curricula et des Innovations Pédagogiques;
 
 – un représentant de la primature;
 

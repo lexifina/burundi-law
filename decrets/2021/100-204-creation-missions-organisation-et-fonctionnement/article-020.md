@@ -2,9 +2,9 @@
 
 Le Secrétariat Exécutif Permanent de la commis-sion comprend:
 
-– une Inspection chargée des Questions Pédago­ giques;
+– une Inspection chargée des Questions Pédagogiques;
 
-– une Inspection chargée du Contrôle de l’Assu­ rance-Qualité;
+– une Inspection chargée du Contrôle de l’Assurance-Qualité;
 
 – une Inspection chargée de l’ouverture et/ou l’agrément des établissements d’enseignement et de formation professionnelle à programme national et/ou étranger publics et privés.
 

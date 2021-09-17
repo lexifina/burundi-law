@@ -6,6 +6,6 @@ L’Inspection chargée de l’ouverture et/ou l’agré-ment des établissement
 
 – accompagner techniquement les promoteurs de l’enseignement public et privé;
 
-– analyser préalablement selon le cas échéant les demandes d’ouvertures et d’agréments des écoles, des sections et des filières en collabora­ tion avec le Bureau de la Planification du Sys­ tème Educatif;
+– analyser préalablement selon le cas échéant les demandes d’ouvertures et d’agréments des écoles, des sections et des filières en collaboration avec le Bureau de la Planification du Système Educatif;
 
-– assurer un contrôle permanent du respect des conditions d’ouverture et d’agrément des éta­ blissements de l’enseignement fondamental et post fondamental, de la formation profession­ nelle et des métiers.
+– assurer un contrôle permanent du respect des conditions d’ouverture et d’agrément des établissements de l’enseignement fondamental et post fondamental, de la formation professionnelle et des métiers.
