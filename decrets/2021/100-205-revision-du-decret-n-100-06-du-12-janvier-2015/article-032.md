@@ -2,7 +2,7 @@
 
 La préparation du doctorat comprend:
 
-a) des enseignements, des séminaires, des ate­ liers, des stages et des travaux de recherche y compris les communications et les publica­ tions sur la recherche doctorale (60 crédits);
+a) des enseignements, des séminaires, des ateliers, des stages et des travaux de recherche y compris les communications et les publications sur la recherche doctorale (60 crédits);
 
 b) la préparation et la soutenance de la thèse (120 crédits).
 
