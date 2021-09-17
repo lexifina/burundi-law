@@ -4,13 +4,13 @@ La cellule chargée de la bonne administration de la justice et de la lutte cont
 
 1° émettre des avis sur la bonne administration de la justice;
 
-2° enquêter sur les dénonciations et les faits por­ tés à la connaissance du Conseil lorsqu’ils sont réputés avoir eu un impact sur la qualité de la décision judiciaire coulée en force de chose jugée;
+2° enquêter sur les dénonciations et les faits portés à la connaissance du Conseil lorsqu’ils sont réputés avoir eu un impact sur la qualité de la décision judiciaire coulée en force de chose jugée;
 
 3° Enquêter sur les cas de corruption dans l’appareil judiciaire;
 
-4° enquêter et instruire à titre préliminaire sur les plaintes des particuliers ou de l’Ombuds­ man concernant les mal jugés coulés en force de chose jugée ou toute autre décision mani­ festement injuste rendue par les services judi­ ciaires;
+4° enquêter et instruire à titre préliminaire sur les plaintes des particuliers ou de l’Ombudsman concernant les mal jugés coulés en force de chose jugée ou toute autre décision manifestement injuste rendue par les services judiciaires;
 
-5° analyser, pour le compte du Conseil, la qualité des jugements, arrêts et autres décisions judi­ ciaires coulées en force de chose jugée dénon­ cés ou portés à la connaissance du Conseil ainsi que leurs mesures d’exécution;
+5° analyser, pour le compte du Conseil, la qualité des jugements, arrêts et autres décisions judiciaires coulées en force de chose jugée dénoncés ou portés à la connaissance du Conseil ainsi que leurs mesures d’exécution;
 
 6° Contribuer à l’élaboration de la politique en matière de justice;
 
