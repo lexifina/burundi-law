@@ -1,0 +1,3 @@
+# Article 1
+
+Il est accordé un congé de reclassement, à partir du 1er octobre 2021, aux Brigadiers de la Police Nationale du Burundi ayant atteint la limite d’âge de service dont les grades, noms prénoms et matricules sont repris dans le tableau ci-dessous: SERIE GRADE Nom et Prénom Ancienne Matricule Nouvelle Matricule 1. BPC1 NSENGIYUMVA Astère C3635 BPN 1148 2. BPC1 MANIRAKIZA Eric 215983 BPN 0608 3. BPC1 NIMUBONA Jean Paul 8S1105 BPN 0143 4. BPC1 NIYOMPUNDU Marc C3338 BPN 1038 5. BPC1 RUGANUKA Gaspard C3357 BPN 1054 6. BPC1 NYUNGUKA Gédéon C3422 BPN 1095 7. BPC1 NZEYIMANA Frédéric B11531 BPN 0842
