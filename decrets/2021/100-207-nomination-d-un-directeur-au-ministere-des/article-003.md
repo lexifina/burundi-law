@@ -4,4 +4,4 @@ Le Ministre des Affaires Etrangères et de la Coo-pération au Développement es
 
 Fait à Gitega, le 28 septembre 2021 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Alain-Guillaume BUNYONI (sé) Commissaire de Police Général.
 
-Le Ministre des Affaires Etrangères et de la Coopération au Développement, Ambassadeur Albert SHINGIRO (sé). N°100/208 30/09/2021
+Le Ministre des Affaires Etrangères et de la Coopération au Développement, Ambassadeur Albert SHINGIRO (sé).
