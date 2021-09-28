@@ -8,4 +8,4 @@ Le Ministre de l’Environnement, de l’Agriculture et de l’Élevage, Dr. Dé
 
 Le Ministre de l’Hydraulique, de l’Energies et Mines, Ir. Ibrahim UWIZEYE (sé)
 
-Le Ministre du Commerce, du Transport, de l’Industrie et du Tourisme, Capitoline NIYONIZIGIYE (sé). N°100/207 28/09/2021
+Le Ministre du Commerce, du Transport, de l’Industrie et du Tourisme, Capitoline NIYONIZIGIYE (sé).

@@ -6,7 +6,7 @@ Les procédures de contrôle de la qualité des don-nées sont menées pour:
 
 1° vérifier que les hypothèses et les critères pour la sélection des données sur les activités, les facteurs d’émission et les autres paramètres d’estimation sont documentés;
 
-2° vérifier l’absence d’erreur de transcription dans les entrées des données et dans les réfé­ rences;
+2° vérifier l’absence d’erreur de transcription dans les entrées des données et dans les références;
 
 3° vérifier que les émissions et les absorptions sont calculées correctement;
 

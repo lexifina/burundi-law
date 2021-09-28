@@ -20,4 +20,6 @@ Le rapport d’inventaire contient les éléments sui-vants:
 
 9° les préfixes, les unités, les abréviations et les normes d’équivalence;
 
-10°les références bibliographiques. Section 4 De la désignation de l’Institution nationale de l’inventaire des gaz à effet de serre
+10°les références bibliographiques.
+
+Section 4 De la désignation de l’Institution nationale de l’inventaire des gaz à effet de serre
