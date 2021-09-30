@@ -4,4 +4,4 @@ Le Ministre de la Fonction Publique, du Travail et de l’Emploi est chargé de 
 
 Fait à Gitega, le 30 septembre 2021 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Alain-Guillaume BUNYONI (sé) Commissaire de Police Général.
 
-Le Ministre de la Fonction Publique, du Travail et de l’Emploi, Domine BANYANKIMBONA (sé). N°100/216 30/09/2021
+Le Ministre de la Fonction Publique, du Travail et de l’Emploi, Domine BANYANKIMBONA (sé).
