@@ -4,4 +4,4 @@ Le Ministre du Commerce, du Transport, de l’Industrie et du Tourisme est charg
 
 Fait à Gitega, le 30 septembre 2021 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Alain-Guillaume BUNYONI (sé) Commissaire de Police Général.
 
-Le Ministre du Commerce, du Transport, de l’Industrie et du Tourisme Capitoline NIYONIZIGIYE (sé). N°100/228 30/09/2021
+Le Ministre du Commerce, du Transport, de l’Industrie et du Tourisme Capitoline NIYONIZIGIYE (sé).
