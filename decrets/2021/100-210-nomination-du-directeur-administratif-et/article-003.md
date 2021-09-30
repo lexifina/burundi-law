@@ -4,4 +4,4 @@ Le Ministre de la Communication, des Technolo-gies de l’Information et des Mé
 
 Fait à Gitega, le 30 septembre 2021 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Alain-Guillaume BUNYONI (sé) Commissaire de Police Général.
 
-Le Ministre de la Communication, des Technologies de l’Information et des Médias, Marie Chantal NIJIMBERE (sé). N°100/211 30/09/2021
+Le Ministre de la Communication, des Technologies de l’Information et des Médias, Marie Chantal NIJIMBERE (sé).
