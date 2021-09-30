@@ -6,4 +6,4 @@ Sont nommés:
 
 – Directeur des Etudes, des Statistiques et de la Formation Professionnelle: Madame Ménédore AHISHAKIYE;
 
-– Directeur du Marketing et de la Communica­ tion: Madame Anatolie BIMENYIMANA.
+– Directeur du Marketing et de la Communication: Madame Anatolie BIMENYIMANA.
