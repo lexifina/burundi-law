@@ -10,4 +10,4 @@ Sont nommés:
 
 – Directeur du Recrutement et du Contrôle des Effectifs: Monsieur Aaron NDAYISENGA;
 
-– Directeur de la Coordination des Services Pro­ vinciaux du Ministère de la Fonction Publique, du Travail et de l’Emploi: Monsieur Abdoul KASSIM.
+– Directeur de la Coordination des Services Provinciaux du Ministère de la Fonction Publique, du Travail et de l’Emploi: Monsieur Abdoul KASSIM.

@@ -6,6 +6,6 @@ Sont nommés:
 
 – Directeur de l’Emploi: Monsieur Piero NICONEMERA;
 
-– Directeur des Normes et Législation du Tra­ vail: Monsieur Déo RUSENGWAMIHIGO;
+– Directeur des Normes et Législation du Travail: Monsieur Déo RUSENGWAMIHIGO;
 
 – Directeur de l’Administration du Travail et des Relations Professionnelles: Madame Espérance HABONIMANA.

@@ -6,6 +6,6 @@ Sont nommés:
 
 – Inspecteur Principal chargé du Contrôle des Entreprises: Monsieur Déogratias MBONIMPA;
 
-– Inspecteur Principal chargé des Relations Pro­ fessionnelles: Monsieur Jean MAKERA;
+– Inspecteur Principal chargé des Relations Professionnelles: Monsieur Jean MAKERA;
 
 – Inspecteur Principal Médical du Travail: Dr. Nina NIYONSAVYE.
