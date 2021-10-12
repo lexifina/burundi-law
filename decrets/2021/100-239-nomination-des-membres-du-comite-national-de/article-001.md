@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Membres du Comité National de Dialogue Social « CNDS »: - Madame Marie Rosette NIZIGIYIMANA; - Madame Nadine NIMBABAZI; - Monsieur Benjamin NKESHIMANA; - Monsieur Sennel NDUWIMANA; - Monsieur Xavier NGENDAKUMANA; - Dr Jean Baptiste NZORIRONKANKUZE; - Madame Marie KANA; - Monsieur Mélance HAKIZIMANA; - Madame Marie BUKURU; - Monsieur Jean NTUNGUMBURANYE; - Monsieur Jean Pierre NIYOYANDEMYE; - Monsieur Tharcisse GAHUNGU; - Monsieur Rémy NSENGIYUMVA; - Monsieur Célestin NSAVYIMANA; - Monsieur Théodore KAMWENUBUSA; - Madame Janvière NIRUTANYA; - Monsieur Gaspard NZISABIRA; - Monsieur Gabriel BUTOYI; - Monsieur Bernard SELEMANI; - Monsieur Emmanuel NTAKIRUTIMANA; - Monsieur Salvator NIZIGIYIMANA.
