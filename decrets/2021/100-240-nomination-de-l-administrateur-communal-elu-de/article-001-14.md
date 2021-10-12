@@ -1,0 +1,3 @@
+# Article 1 14
+
+Monsieur BIZOZA Franck, ayant les numéros RC :114217 et NIF: 4001286725, domicilié à Mukaza en Province Bujumbura-Marie, téléphone 68 212 389, est autorisé à mener ses activités d’exploitation artisanale des pierres ardoises sur le site Mungwa I a, Colline Mungwa, en Commune et province Rutana, destinées à la commercialisation.

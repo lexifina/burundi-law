@@ -1,0 +1,19 @@
+# Article 2 19
+
+Le site Kariba, d’une superficie de 0,30 ha, se trouve sur un terrain à pente moyenne et est délimité par les coordonnées géographiques ci-après: Sommets Longitude Est Latitude Sud A
+
+30°02’09,6"
+
+3°48’19,2" B
+
+30°02’09,6"
+
+3°48’21,7" C
+
+30°02’11,7"
+
+3°48’22,0" D
+
+30°02’10,7"
+
+3°48’20,2"

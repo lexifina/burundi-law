@@ -1,0 +1,19 @@
+# Article 2 14
+
+Le site Mungwa I a, d’une superficie de 0,42 ha, se trouve sur le flanc ouest d’une colline et est délimité par les coordonnées géographiques ci-après : Sommets Longitude Est Latitude Sud A
+
+30°59’50,0"
+
+3°51’19,1" B
+
+30°59’49,7"
+
+3°51’17,3" C
+
+30°59’47,0"
+
+3°751’18,1" D
+
+30°59’47,4"
+
+3°51’19,5"
