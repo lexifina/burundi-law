@@ -26,7 +26,7 @@ Vu le Décret n°100/090 du 28 octobre 2020 portant Missions, Organisation et Fo
 
 Vu le Décret n°100/166 du 12 juillet 2021 portant modification du Décret n°100/275 du 18 octobre 2012 portant Conditions d’Accès à l’Enseignement Supérieur au Burundi;
 
-Vu l’Ordonnance Ministérielle N°610/786 du 16 mai 2017 portant Fixation des Termes de Référence pour l’Evaluation d’une Institution d’Enseignement Supérieur en vue de l’Octroi d’une Autorisation d’Ouverture; Vu l’Ordonnance Ministérielle N°610/114/du 23/06/2020 portant agrément des référentiels d’accréditation des institutions d’enseignement supérieur au Burundi;
+Vu l’Ordonnance Ministérielle N°610/786 du 16 mai 2017 portant Fixation des Termes de Référence pour l’Evaluation d’une Institution d’Enseignement Supérieur en vue de l’Octroi d’une Autorisation d’Ouverture; Vu l’Ordonnance Ministérielle 23/06/2020 portant agrément des référentiels d’accréditation des institutions d’enseignement supérieur au Burundi;
 
 Vu l’Ordonnance Ministérielle N°610/1113 portant approbation des référentiels d’accréditation des programmes d’enseignement supérieur au Burundi;
 
