@@ -1,0 +1,3 @@
+# Article 23
+
+Les coûts des documents de voyage, des visas et les amendes de non renouvellement des visas sont fixés par une ordonnance ministerielle conjointe des Ministres ayant les Migrations et les Finances dans leurs attributions. lngingo ya 23 Amafaranga arihwa ku nzandiko zinzira, Ku mpusha z’ukwinjira mu Burundi n’ay’ihadabu ritozwa ku mpusha zitasabiwe ikindi kiringo bishingwa n’itegeko nshikiranganji risinywe n’abashikiranganji babiri, uwujejwe ivyerekeye ukwinjira n’ugusohoka igihugu hamwe n’uwujejwe lkigega ca Reta. Chapitre IV De la commission consultative pour Etrangers et refugies ainsi que comité de recours Igice ca IV Ivyerekeye umugwi mpanuzwajambo ujejwe gutunganiriza abanyamahanga n’impunzi hamwe na komite yiyungururizo

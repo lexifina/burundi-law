@@ -1,0 +1,5 @@
+# Article 84
+
+Les dossiers des demandeurs d’asile sont transmis par la police des migrations à l’Office National de Protection des Réfugiés et Apatrides « ONPRA » en sigle, endéans huit jours. lngingo ya 84 ldosiye z’abasaba ubuhungiro zirungikwa n’lgiporisi kijejwe ivyerekeye ukwinjira n’ugusohoka igihugu mu Kigo c’igihugu kijejwe ugukingira impunzi n’abadafise ubwenegihugu buzwi mu kiringo kitarenza imisi umunani.
+
+Les missions de l’ONPRA sont déterminées par un décret lmirimo y’ikigo ONPRA itomorwa n’itegeko ry’ Umukuru w’lgihugu. L’ONPRA transmet ces dossiers avec des avis de détermination de statut à la CCER, dans un délai ne dépassant pas trente jours dès la réception du dossier. lkigo ONPRA kirungikira Umugwi CCER izo dosiye ziri kumwe n’urwandiko ruriko ivyashikirijwe n’ico kigo ku bijanye n’uburenganzira bw’ukwitwa impunzi, mu kiringo kitarenza imisi mirongo itatu giharurwa kuva idosiye zakiriwe La Commission Consultative pour Etrangers et Réfugiés se réunit sans délais Umugwi mpanuzwajambo ujejwe gutunganiriza. abanyamahanga n’impunzi uca ukorana udatevye.

@@ -1,0 +1,3 @@
+# Article 130
+
+Quiconque donne une fausse information afin d’obtenir un visa, un document de voyage ou un permis de séjour pour lui-même ou pour une autre personne, est puni d’une servitude pénale de sept jours à un mois et d’une amende de vingt mille à trente mille francs burundais ou d’une de ces peines seulement. Ingingo ya 130 Uwo wese atanze inkuru itari yo kugira aronke uruhusha rw’ukwinjira mu gihugu, urwandiko rw’inzira canke uruhusha rw’ugucumbika we nyene mu gihugu canke arusabira uwundi muntu, ahanishwa umunyororo uva ku misi indwi gushika ku kwezi kumwe n’ihadabu riva ku mafaranga y’amarundi ibihumbi mirongo ibiri gushika ku bihumbi mirongo itatu canke igihano kimwe muri ivyo.

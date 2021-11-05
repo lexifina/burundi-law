@@ -1,0 +1,3 @@
+# Article 26
+
+Le Comité de Recours est compétent pour statuer sur une décision de la Commission Consultative pour Etrangers et Réfugiés dans les matières citées à l’article 25 de la présente loi en cas de violation de droit, notamment pour abus ou excès dans l’exercice du pouvoir d’appréciation ou en cas d’établissement inexact ou incomplet des faits. lngingo ya 26 Komite yiyungururizo irafise ububasha bwo gufata ingingo zorohereza abanyamahanga n’impunzi ivuguruza ingingo iba yafashwe n’Umugwi mpanuzwajambo ujejwe gutunganiriza abanyamabanga n’impunzi nko mu bivugwa mu ngingo ya 25 mu gihe hatubahirijwe uburenganzira bw’umunyamahanga nko mu gihe hitwajwe ububasha canke harengejwe urugero mu gukoresha ububasha bw’ukwihweza ivyabaye bitari vyo canke bikaba bidakwiye

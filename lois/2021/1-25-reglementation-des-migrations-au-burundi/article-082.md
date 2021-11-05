@@ -1,0 +1,3 @@
+# Article 82
+
+lngingo ya 82 Dans les trente jours qui suivent son arrivée sur le territoire burundais, le demandeur d’asile qui ne s’est pas déclaré à l’entrée, est tenu de le faire au commissariat communal ou provincial le plus proche. Mu misi mirongo itatu ikurikira umusi yashikiyeko mu gihugu c’Uburundi, uwusaba ubuhungiro atimenyekanishije acinjira mu gihugu, asabwa kubigira muri Komisariya y’ikomine canke y’intara imwegereye. L’agent des migrations a l’obligation de le conduire au centre d’enregistrement le plus proche. Umukozi wo mu gisata kijejwe ivyerekeye ukwinjira n’ugusohora igihugu ategerezwa kumutwara mu kigo candikirwamwo abasaba ubuhungiro kimwegereye.

@@ -1,0 +1,3 @@
+# Article 116
+
+Les données personnelles et les éléments biométriques de chaque demandeur d’asile et, le cas échéant, de chacun des membres de sa famille qui l’accompagne sont pris et enregistrés dans une base de données interconnectée au Commissariat Général des Migrations et à l’ONPRA. Ingingo ya 116 lbiranga umwe umwe wese mu basaba ubuhungiro n’ibimudondora hakoreshejwe ubuhinga bwa none, iyo bihari, n’ivyo uwo mu muryango wiwe wamuherekeje birafatwa bigashirwa mu cegeranyo ndangampunzi bikongera bikabonwa na Komisariya nkuru ijejwe ivyerekeye ukwinjira n’ugusohoka igihugu hamwe n’lkigo ONPRA.

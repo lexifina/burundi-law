@@ -1,0 +1,3 @@
+# Article 119
+
+La CCER et le CR sont autorisés à communiquer des données personnelles des réfugiés aux autorités étrangères et aux organisations internationales intéressées pour autant que l’Etat ou l’organisation internationale en question garantisse une protection équivalente des données transmises. lngingo ya 119 Umugwi CCER na Komite yiyungururizo birarekuriwe guha abategetsi bo mu bindi bihugu n’amashirahamwe mpuzamakungu abisavye ibitorokanywa biranga impunzi imwimwe yose, mu gihe Reta canke ishirahamwe mpuzamakungu bibikeneye vyemeye gukingira ivyo biranga impunzi vyatorokanijwe nk’uko vyari bisanzwe bikingiwe.

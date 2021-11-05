@@ -1,0 +1,3 @@
+# Article 89
+
+Le demandeur d’asile peut faire appel contre une décision de refus. lngingo ya 89 Uwusaba ubuhungiro arashobora kwungururiza ingingo yafashwe imwankira ubuhungiro. L’appel est introduit dans les vingt jours ouvrables suivant la notification de la décision. Urwandiko rw’ukwungururiza ingingo yafashwe rushikirizwa mu misi mirongo ibiri y’akazi ikurikira umusi iyo ngingo yamenyesherejweko En cas de force majeure justifiée, un délai supplémentaire peut être accordé si celui qui introduit un recours ou son mandataire a été empêché d’agir dans le délai imparti. lgihe habaye intambamyi ntasimbwa yatangiwe imvo, ikiringo ciyongerako kirashobora gutangwa iyo uwungururiza ingingo yafashwe canke uwo yatumye atashoboye kubikora mu kiringo gitegekanijwe.

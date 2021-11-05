@@ -1,0 +1,3 @@
+# Article 50
+
+Ingingo ya 50 Les responsables des établissements d’enseignement doivent veiller à ce que les étudiants étrangers, de la Communauté Est Africaine ou de la CEPGL se trouvant dans leurs établissements, remplissent les conditions requises par les dispositions légales pour leur séjour et leurs études au Burundi. Abajejwe amashure bategerezwa kwitwararika ko abanyeshure b’abanyamahanga canke abaturuka mu bihugu bigize Umuryango w’ibihugu vya Afirika yo mu Buseruko canke abo mu bihugu bigize Umuryango w’ubutunzi mu karere k’ibiyaga binini bahiga bakwije ibisabwa n’amategeko kugira bashobore kuba bongere bige mu Burundi.

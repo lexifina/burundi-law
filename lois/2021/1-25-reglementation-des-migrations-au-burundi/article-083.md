@@ -1,0 +1,3 @@
+# Article 83
+
+Après l’expiration du délai de trente jours, si le demandeur d’asile n’a pas introduit sa requête aux lieux indiqués à l’article 72 de la présente loi, la demande d’asile est irrecevable à moins qu’un cas de force majeure ne justifie l’impossibilité de présenter la demande dans les délais. lngingo ya 83 lkiringo c’imisi mirongo itatu kirangiye, iyo uwusaba ubuhungiro atarashikiriza urwandiko rw’ukubisaba mu bibanza bivugwa mu ngingo ya 72, idosiye y’ugusaba ubuhungiro ntishobora kwakirwa kiretse herekanywe intambamyi ntasimbwa isigura igituma atashoboye gushikiriza urwandiko rubisaba mu bihe bitegekanijwe.

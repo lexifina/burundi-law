@@ -1,0 +1,3 @@
+# Article 45
+
+Ingingo ya 45 En cas d’extrême urgence ou lorsque les circonstances graves l’exigent, le Ministre ayant les migrations dans ses attributions, peut, par dérogation à l’article 43 alinéa 1er, ordonner une expulsion sans en référer à la Commission Consultative pour Etrangers et Réfugiés. Mu gihe vyihutirwa cane canke mu gihe hari ibituma bikomeye, Umushikiranganji ajejwe ivyerekeye ukwinjira n’ugusohoka igihugu, arashobora, yirengagije ibitegekanijwe mu ngingo ya 43 agahimba ka mbere, gutegeka ko umunyamahanga yirukanwa bitarinze guca mu Mugwi mpanuzwajambo ujejwe gutunganiriza abanyamahanga n’impunzi. Chapitre VIII Des compétences et des obligations Igice ca VIII Ivyerekeye ububasha hamwe n’ibitegerejwe

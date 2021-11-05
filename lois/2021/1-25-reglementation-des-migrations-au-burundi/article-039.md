@@ -1,0 +1,3 @@
+# Article 39
+
+L’étranger qui ne remplit pas les conditions d’entrée sur le territoire burundais est immédiatement refoulé. Ingingo ya 39 Umunyamahanga adakwije ibisabwa kugira yinjire ku gataka k’Uburundi aca asubizwa inyuma ubwo nyene. S’il est à bord d’un aéronef, d’un train, d’un navire ou de tout autre moyen de transport, la compagnie qui assure son transport est responsable de son rapatriement immédiat et de son entretien éventuel au Burundi. lyo aje n’indege, igariyamoshi, ubwato canke ubundi buryo ubwo ari bwo bwose bw’ukwiyunguruza, ishirahamwe ryamwunguruje ni ryo rica rimusubiza inyuma ubwo nyene n’ukumufasha mu vyo ashobora gukenera vyose ari mu Burundi.

@@ -1,0 +1,3 @@
+# Article 126
+
+Le HCR donne à travers ses partenaires, une assistance technique aux demandeurs d’asile et aux réfugiés qui porte principalement sur l’enregistrement, la détermination du statut de réfugié, le transport, l’assistance juridique, la formation, la documentation qui consiste en l’octroi des cartes de réfugiés et le payement des frais des titres de voyage. Ingingo ya 126 Ishirahamwe mpuzamakungu rifasha impunzi hamwe n’amashirahamwe bikorana niryo kandi ryitaho impunzi ku bijanye n’imfashanyo z’ubuhinga butandukanye nko kubakira mu kubandika, kwiga ko bemererwa ubuhungiro, kubunguruza babajana mu ma kambi y’impunzi, kubafasha imbere y’inzego za Reta zibatunganiriza, kubigisha amateka n’amabwirizwa yabo, kubaronderera impapuro z’inzira.

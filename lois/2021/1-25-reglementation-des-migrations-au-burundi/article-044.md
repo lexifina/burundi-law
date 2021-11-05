@@ -1,0 +1,5 @@
+# Article 44
+
+Ingingo ya 44 Un étranger ou un citoyen de la Communauté Est Africaine frappé d’une décision d’expulsion peut faire recours devant la Cour administrative dans un délai ne dépassant pas cinq jours à dater de la notification. Umunyamahanga canke umwenegihugu wo mw’lshirahamwe ry’umuryango w’Ibihugu vya Afrika y’Ubuseruko yafatiwe ingingo y’ukwirukanwa arashobora kwitura Sentare ica imanza za Reta n’ibisata vyayo mu kiringo kitarenza imisi itanu giharurwa kuva abimenyeshejwe.
+
+Le recours introduit n’empêche pas l’exécution de l’ordonnance d’expulsion dans les délais indiqués à l’article 43. Ukwungururiza ingingo yafashwe ntibibuza ishirwa mu ngiro ry’ingingo y’ukwirukana umunyamahanga mu kiringo kivugwa mu ngingo ya 43 y’iri bwirizwa. Il n’est pas aussi suspensif dans les circonstances particulières notamment l’atteinte à l’ordre public ou à la sécurité publique. Ntibuza kandi ko iyo ngingo ishirwa mu ngiro mu bihe bimwe bimwe nk’ukwagirizwa uguhungabanya umutekano w’igihugu canke w’abanyagihugu.

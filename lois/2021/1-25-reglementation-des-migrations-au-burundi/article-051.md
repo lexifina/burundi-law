@@ -1,0 +1,3 @@
+# Article 51
+
+Ingingo ya 51 Les responsables des établissements de logement notamment les hôtels et les maisons de passage, ont l’obligation d’enregistrer et de garder les informations sur un visiteur étranger résidant ou ayant résidé dans son établissement. Abajejwe inyubakwa ziraza ingenzi nk’amahoteri n’inzu ingenzi zimaramwo igihe gito, bategerezwa kubandika no kubika inkuru zerekeye ingenzi iraye canke yigeze kurara muri ico kigo. Les informations enregistrées portant sur l’identification du visiteur sont consignées sur une fiche transmise régulièrement aux agents des migrations. inkuru zanditswe zerekeye umwidondoro w’ingenzi zirashirwa kw’ifishi ija irarungikirwa abakozi bo mu gisata kijejwe ivyerekeye ukwinjira n’ugusohoka igihugu.

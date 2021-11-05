@@ -1,0 +1,3 @@
+# Article 134
+
+Quiconque refuse d’obtempérer à l’injonction de remettre son document de voyage au service des migrations est puni d’une servitude pénale de sept jours à un mois et d’une amende de vingt mille à trente mille francs burundais ou d’une de ces peines seulement. Ingingo ya 134 Uwo wese yanse kwubahiriza itegeko ry’ugutanga igitabu c’inzira mu gisata kijejwe ivyerekeye ukwinjira n’ugusohoka igihugu ahanishwa igihano c’umunyororo uva ku misi indwi gushika ku kwezi hamwe n’ihadabu riva ku mafaranga y’amarundi ibihumbi mirongo ibiri gushika ku bihumbi mirongo itatu canke igihano kimwe muri ivyo conyene.

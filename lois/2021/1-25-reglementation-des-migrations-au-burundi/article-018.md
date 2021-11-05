@@ -1,0 +1,3 @@
+# Article 18
+
+lngingo ya 18 La carte de réfugié ou d’apatride est accordée au requérant et le modèle est déterminé par une ordonnance du Ministre ayant les migrations dans ses attributions. lkarata y’impunzi canke y’uwutagira ubwenegihugu ihabwa uwuyisavye, ingene iba imeze bitomorwa n’itegeko ry’Umushikiranganji ajejwe ivyerekeye ukwinjira n’ugusohoka igihugu. Si le réfugié ou l’apatride désire se rendre à l’étranger, il peut obtenir, sur sa demande, un titre de voyage approprié, avec clause de retour, lui permettant de se déplacer en dehors du Burundi. lyo impunzi canke uwutagira ubwenegihugu yipfuza kuja mu mahanga, arashobora kuronka, avyisabiye, urupapuro rw’inzira rukwiriye, hariko n’ingingo y’uko ategerezwa kugaruka, rumurekurira gutembera hanze y’Uburundi.

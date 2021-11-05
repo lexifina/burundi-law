@@ -1,0 +1,3 @@
+# Article 76
+
+lngingo ya 76 L’accueil, l’identification, l’enregistrement et l’orientation des demandeurs d’asile, la délivrance d’une autorisation spéciale de circulation, du permis de séjour temporaire, des cartes d’identité pour réfugiés et des titres de voyage sont effectués par la police des migrations. Ukwakira abasaba ubuhungiro, ukugira umwidondoro wabo, ukubandika mu gitabu n’ukubereka aho basaba ibikenewe vyose ukubaha uruhusha rudasanzwe rw’ugutembera, uruhusha rwo kuba mu gihugu mu gihe gito, ukubaha amakarata aranga impunzi n’inzandiko z’inzira bigirwa n’lgiporisi kijejwe ivyerekeye ukwinjira n’ugusohoka igihugu.

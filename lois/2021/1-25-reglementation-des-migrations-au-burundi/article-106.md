@@ -1,0 +1,3 @@
+# Article 106
+
+Lorsque la famille a été séparée pendant la fuite et si elle entend se réunir au Burundi, à moins qu’une circonstance particulière ne s’y oppose, le statut de réfugiés prima facie est accordé au conjoint et aux enfants mineurs des personnes soumises à ce statut. Ingingo ya 106 lgihe abagize umuryango batandukanye bariko barahunga kandi iyo bipfuza gusubira kuja hamwe mu Burundi, kiretse iyo hari igituma kidasanzwe cobibuza, uburenganzira bw’ukwitwa impunzi ku bantu bashitse ikivunga burahabwa uwubakanye n’uwaronse ubwo burenganzira hamwe n’abana batarakwiza imyaka y’ukwihagarira imbere y’amategeko.

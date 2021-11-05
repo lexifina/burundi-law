@@ -1,0 +1,3 @@
+# Article 61
+
+Ingingo ya 61 En cas d’atteinte à la sécurité nationale ou à l’ordre public, le demandeur d’asile présumé auteur ou complice peut être astreint à des mesures de restriction prises après avis et considérations de la Commission Consultative pour Etrangers et Réfugiés. Mu gihe umutekano w’igihugu canke w’abanyagihugu ubangamiwe, uwusaba ubuhungiro akekwa ko yakoze canke yafashije mu gukora icaha, arashobora gufatirwa ingingo zimugabanya bimwe bimwe mu vyo yari afitiye uburenganzira, Umugwi mpanuzwajambo ujejwe gutunganiriza abanyamahanga n’impunzi umaze gushikiriza ivyiyumviro n’ivyipfuzo vyawo.

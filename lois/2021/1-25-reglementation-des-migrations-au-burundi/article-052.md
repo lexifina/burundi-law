@@ -1,0 +1,3 @@
+# Article 52
+
+Ingingo ya 52 Tout étranger est tenu d’exhiber sa carte pour étranger ou son document de voyage contenant le visa de séjour chaque fois qu’il en est requis par une autorité habilitée. Umunyamahanga wese ategerezwa kwerekana ikarata yiwe yerekana ko ari umunyamahanga canke urwandiko rwiwe rw’inzira ruriko uruhusha rw’ugucumbika mu Burundi igihe cose abisabwe n’umutegetsi abifitiye ububasha. Pour les citoyens de la Communauté Est Africaine, un document de voyage valide ou une carte nationale d’identité est requis. Ku baturuka mu gihugu kimwe mu bigize lshirahamwe ry’ibihugu vya Afirika yo mu Buseruko, urwandiko rw’inzira rutarata igihe canke ikarata karangamuntu yo mu gihugu aturukamwo irasabwa

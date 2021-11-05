@@ -1,0 +1,3 @@
+# Article 123
+
+Lorsque les autorités burundaises éprouvent des difficultés à donner asile, notamment en cas d’afflux important de réfugiés, elles envisagent, en collaboration avec le Haut-Commissariat des Nations Unies pour les Réfugiés, les mesures qu’il y a lieu de prendre, dans un esprit de solidarité internationale. Ingingo ya 123 Mu gihe abategetsi b’Uburundi bagize ingorane zo gutanga ubuhungiro, nko mu gihe impunzi zishitse ari nyinshi cane, burategekanya, bufadikanije n’lshirahamwe mpuzamakungu ryitaho impunzi ingingo zikwiye gufatwa, mu ntumbero yo gushigikirana ku rwego mpuzamakungu.

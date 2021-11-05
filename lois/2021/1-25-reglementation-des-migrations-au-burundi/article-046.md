@@ -1,0 +1,3 @@
+# Article 46
+
+Ingingo ya 46 L’agent des migrations affecté au Commissariat Général des Migrations ou à la représentation diplomatique et consulaire, chargé de la mise en application des dispositions de la présente loi dispose de la qualité d’Officier de Police Judiciaire à compétence restreinte. Umukozi wo mu gisata kijejwe ivyerekeye ukwinjira n’ugusohoka igihugu arungitswe gukorera muri Komisariya Nkuru ijejwe ivyerekeye abinjira mu gihugu canke mu Biro vy’ubuserukizi bw’igihugu no mu Biro vy’ubuserukizi bw’inyungu z’igihugu, ashinzwe gushira mu ngiro ibitegekanijwe n’iri bwirizwa afise ububasha nk’ubw’inyamiramabi mu vyerekeye ukwinjira n’ugusohoka igihugu.
