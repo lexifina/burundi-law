@@ -10,4 +10,6 @@ Une fonction diplomatique peut être attribuée à: Ingingo ya 37 Amabanga yerek
 
 3° un agent d’une administration privée possédant un grade diplomatique temporaire, accordé en vertu de l’article 44, point 3° de la présente loi.
 
-3° umukozi wo mu gisata c’abikorera utwabo yahawe ivy’imfatakibanza ipete ryo mu vyerekeye imigengeranire n’amakungu hisunzwe ingingo ya 44, akarongo ka 3° yii bwirizwa. Section 2 Agace ka 2 Des grades dans le service diplomatique Amapete mu gisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu
+3° umukozi wo mu gisata c’abikorera utwabo yahawe ivy’imfatakibanza ipete ryo mu vyerekeye imigengeranire n’amakungu hisunzwe ingingo ya 44, akarongo ka 3° yii bwirizwa.
+
+Section 2 Agace ka 2 Des grades dans le service diplomatique Amapete mu gisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu

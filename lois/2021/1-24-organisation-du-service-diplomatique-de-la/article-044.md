@@ -14,4 +14,6 @@ Un grade diplomatique peut être temporairement attribué : lngingo ya 44 lpete 
 
 5° à la fin de son mandat, le fonctionnaire au service extérieur avec un titre temporaire d’ambassadeur rejoint son cadre d’origine mais garde honorifiquement le titre d’ambassadeur.
 
-5° ahejeje ikiringo ciwe, umukozi akora mu buserukizi bw’igihugu vy’imfatakibanza, asubizwa mu mirimo yaje avamwo ariko aragumana ipete ry’umuserukizi ku mvo z’icubahiro gusa. Section 3 Agace ka 3 De l’évolution Ingene abakozi batera imbere mu kazi
+5° ahejeje ikiringo ciwe, umukozi akora mu buserukizi bw’igihugu vy’imfatakibanza, asubizwa mu mirimo yaje avamwo ariko aragumana ipete ry’umuserukizi ku mvo z’icubahiro gusa.
+
+Section 3 Agace ka 3 De l’évolution Ingene abakozi batera imbere mu kazi
