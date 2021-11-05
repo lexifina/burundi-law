@@ -1,0 +1,3 @@
+# Article 80
+
+lngingo ya 80 Un fonctionnaire public ayant un grade diplomatique qui occupait une fonction diplomatique avant l’entrée en vigueur de la présente loi, est reclassé dans un délai d’une année selon son ancienneté et son niveau d’études sauf s’il a déjà atteint le grade d’ambassadeur. Umukozi wa Reta afise ipete ryo mu vyerekeye imigenderanire y’Uburundi n’amakungu yari asanzwe arangura amabanga ajanye n’imigenderanire y’Uburundi n’amakungu imbere yuko iri bwirizwa rishirwa mu ngiro, arashirwa mu mugwi bihuye mu kiringo c’umwaka bivanye n’igihe amaze mu kazi n’urupapuro rw’umutsindo afise kiretse iyo yari amaze gushika kw’ipete ry’umuserukizi w’igihugu.

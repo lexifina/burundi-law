@@ -1,0 +1,3 @@
+# Article 52
+
+Le personnel du service diplomatique perçoit les primes et les indemnités prévues par les lois et les règlements en vigueur. lngingo ya 52 Abakozi b’igisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu bararonswa udushirukabute n’uturusho dutegekanijwe n’amabwirizwa n’amategeko ahasanzwe. Il perçoit également une indemnité de représentation dont les modalités sont fixées par décret Abakozi b’igisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu bararonswa kandi akarusho kitwa ak’ubuserukizi bw’lgihugu mu makungu, ingene gatangwa bigashingwa n’itegeko ry’Umukuru w’lgihugu.

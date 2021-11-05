@@ -1,0 +1,3 @@
+# Article 61
+
+L’Etat du Burundi assure au personnel envoyé en mission de longue durée un logement décent, tous autres frais y relatifs compris, dans les conditions et selon les modalités et les normes fixées par le Ministre ayant les affaires étrangères dans ses attributions pendant la période de séjour au service extérieur. lngingo ya 61 Reta y’Uburundi iraronsa abakozi barungitswe mu mabanga amara igihe kirekire uburaro bubereye, ayandi mafaranga yose akenerwa bijanye, hisunzwe ibisabwa n’ibikurikizwa hamwe n’ivyisungwa bishingwa n’umushikiranganji ajejwe imigenderanire y’Uburundi n’amakungu, bakayaronswa mu kiringo bamara bari muri ayo mabanga.

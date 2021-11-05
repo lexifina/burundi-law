@@ -1,0 +1,5 @@
+# Article 48
+
+La rotation du personnel du service diplomatique est un principe de passage alternatif de l’administration centrale au service extérieur et vice versa, en vertu de leur grade diplomatique, excepté pour les chefs de missions. lngingo ya 48 Uguhindurira igisata abakozi bo mu vyerekeye imigenderanire y’uburundi n’amakungu ni ingingo ngenderwako yerekeye ugukurwa mu buyobozi bw’ubushikiranganji ugashirwa mu gisata c’ubuserukizi bw’igihugu mu makungu canke bagakurwayo bashirwa mu buyobozi bw’ubushikiranganj hafatiwe kw’ipete umukozi wo mu gisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu afise, kiretse abarongoye ibikorwa vy’ubuserukizi bw’igihugu mu makungu.
+
+La durée du passage à l’administration centrale est de quatre ans au minimum avant d’être nommé à nouveau pour un mandat de longue durée à l’extérieur, pour autant que les conditions exigées sont remplies. lkiringo co kurangurira imirimo mu buyobozi bw’ubushikiranganji ni ic’imyaka ine n’imiburiburi imbere y’ugusubira kugenwa guserukira igihugu mu makungu mu kiringo kirekire, mu gihe ibisabwa bitegerejwe biba bikwiye.

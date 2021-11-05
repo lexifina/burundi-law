@@ -1,0 +1,5 @@
+# Article 67
+
+Le chef d’une représentation à l’extérieur peut signer à charge de l’Etat du Burundi un contrat de travail avec une personne locale, sur autorisation écrite du Ministre ayant les affaires étrangères dans lngingo ya 67 Uwurongoye ibikorwa vy’ubuserukizi bw’igihugu mu makungu arashobora kugiranira amasezerano y’akazi n’umukozi wo mu gihugu akoreramwo agahembwa na Reta y’Uburundi, bitangiwe uruhusha ses attributions. rwanditswe n’umushikiranganji ajejwe imigenderanire y’Uburundi n’amakungu.
+
+Le chef d’une représentation à l’extérieur a droit à un domestique de son choix, local ou en provenance du Burundi, à charge de l’Etat Uwurongoye ibikorwa vy’ubuserukizi bw’igihugu mu makungu arafise uburenganzira bw’ugukoresha umukozi wo mu nzu umwe wo mu gihugu yarungitswemwo canke akuye mu Burundi yihitiyemwo, agahembwa na Reta y’Uburundi. Chapitre VI Des obligations et du regime disciplinaire du personnel du service diplomatique Igice ca VI Ivyo abakozi bo mu gisata c’ivyerekeye imigenderanire y’uburundi n’amakungu bategerejwe hamwe n’amategeko agenga inyifato mu kazi Section 1 Des obligations Agace ka 1 Ivyo abakozi bategerejwe

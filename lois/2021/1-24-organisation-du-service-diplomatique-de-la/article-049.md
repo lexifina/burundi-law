@@ -1,0 +1,3 @@
+# Article 49
+
+Les personnels nommés en provenance des lngingo ya 49 Abakozi bagenywe bavuye mu bindi bisata atari ivyo administrations autres que le ministère ayant les affaires étrangères dans ses attributions ne sont pas affectés à une autre fonction de service diplomatique au terme de leur mandat au service extérieur. Ils réintègrent le service d’origine. mu bushikiranganji bujejwe imigenderanire y’Uburundi n’amakungu ntibahabwa ayandi mabanga yo mu gisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu igihe barangije ikiringo amabanga mu gisata c’ubuserukizi bw’igihugu mu makungu. Baca basubizwa mu bisata bahoramwo imbere yo gushingwa ayo mabanga.

@@ -1,0 +1,3 @@
+# Article 4
+
+lngingo ya 4 Le service diplomatique est constitué sur une base professionnelle, conformément aux principes de développement de carrière, de subordination hiérarchique, d’efficacité, de stabilité, de transparence, de continuité et de mobilité lgisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu gitunganijwe nk’umwuga, hisunzwe ingingo ngenderwako zerekeye ugutera imbere mu mwuga, ugusumbasumbana mu kazi, ugukora neza, ukuragama mu kazi, ugukorera ku mugaragaro, ukubandaniriza aho uwundi yari agejeje n’uguhindurirwa aho bakorera Section 1 Agace ka 1 De l’administration centrale Ubuyobozi bw’ubushikiranganji

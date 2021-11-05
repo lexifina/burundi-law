@@ -1,0 +1,7 @@
+# Article 58
+
+Le personnel du service diplomatique perçoit une rémunération unique comprenant diverses allocations pendant la durée de son mandat au service extérieur. lngingo ya 58 Abakozi bo mu gisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu bararonswa umushahara uri hamwe ugizwe n’amafaranga ajanye n’ukubafata mu mugongo mu buryo butandukanye mu kiringo baba bariko bararangura amabanga mu gisata c’ivyerekeye ubuserukizi bw’igihugu mu makungu.
+
+Le montant et le mode d’établissement des allocations sont déterminés par une ordonnance conjointe des Ministres ayant respectivement les affaires étrangères et les finances dans leurs attributions en fonction du coût de la vie dans l’Etat d’affectation, du grade diplomatique, des fonctions occupées et de la composition familiale. lgitigiri c’amafaranga y’ukubafata mu mugongo n’ingene gishingwa bitomorwa n’itegeko rishirwako umukono n’umushikiranganji w’imigenderanire y’Uburundi n’amakungu hamwe n’umushikiranganji w’ikigega ca Reta hisunzwe uko ubuzima bwifashe mu gihugu barungitswemwo, ipete bafise mu vyerekeye imigenderanire n’amakungu, amabanga bajejwe n’abagize imiryango yabo.
+
+Le montant des allocations est actualisé, chaque lgitigiri c’amafaranga y’ugufata umukozi mu fois que de besoin, sur proposition du Ministre ayant les affaires étrangères dans ses attributions. mugongo kirashirwa k’urugero rw’ibihe, igihe cose bikenewe, bishikirijwe n’umushikiranganji ajejwe imigenderanire y’Uburundi n’amakungu.

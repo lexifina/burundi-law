@@ -1,0 +1,3 @@
+# Article 82
+
+lngingo ya 82 Un agent public ou privé ayant été commissionné ambassadeur et ayant exercé en tant que chef de mission garde son titre d’ambassadeur à la fin de son mandat au service extérieur même s’il n’intègre pas l’administration centrale du ministère ayant les affaires étrangères dans ses attributions. Umukozi wa Reta canke uwo mu bikorera utwabo yari yarashizwe kw’ipete ry’umuserukizi w’igihugu kandi akaba yararongoye ibikorwa vy’ubuserukizi bw’igihugu mu makungu agumana ipete ry’uwuserukira igihugu mu makungu ikiringo ciwe co gukora mu gisata c’ivyerekeye ubuserukizi bw’igihugu mu makungu kirangiye n’aho yoba adasubiye gukora mu buyobozi bw’ubushikiranganji bujejwe imigenderanire y’Uburundi n’amakungu.

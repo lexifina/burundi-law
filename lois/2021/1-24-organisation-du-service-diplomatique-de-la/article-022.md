@@ -1,0 +1,3 @@
+# Article 22
+
+Le Président de la République peut, conformément à la Convention sur les missions spéciales adoptée par l’Assemblée Générale des Nations Unies le 08 décembre 1969, tel qu’amendée à ce jour, désigner les ambassadeurs pour des missions spéciales et les coordonnateurs spéciaux pour l’exécution de missions de politique étrangère. lngingo ya 22 Umukuru w’lgihugu arashobora, yisunze Amasezerano yerekeye imirimo idasanzwe yemejwe n’lnama nkuru y’lshirahamwe mpuzamakungu ONU ku wa 08 Kigarama 1969, nk’uko yunganiwe gushika ubu, kugena abaserukira Uburundi bajejwe imirimo idasanzwe hamwe n’abakurkiranira hafi ibikorwa bidasanzwe kugira barangure imirimo ijanye na poritike yerekeye imigenderanire n’ibindi bihugu

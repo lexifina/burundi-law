@@ -1,0 +1,3 @@
+# Article 75
+
+Le personnel du service diplomatique représentant la République à l’extérieur peut, outre les sanctions prévues par la loi portant statut général des fonctionnaires, faire l’objet d’une sanction d’interruption avant terme de la mission à l’extérieur. lngingo ya 75 Abakozi bo mu gisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu baserukira igihugu mu makungu barashobora, uretse ibihano bitegekanijwe n’ibwirizwa rishinga amategeko agenga abakozi ba Reta, guhabwa igihano c’ugahagarikwa mu mabanga ikiringo cabo c’uguserukira igihugu kitararangira. Paragraphe 3 Le Conseil de discipline Agahimba ka 3 Umugwi ujejwe ivyerekeye inyifato mu kazi

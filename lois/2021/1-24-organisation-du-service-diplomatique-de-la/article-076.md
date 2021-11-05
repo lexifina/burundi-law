@@ -1,0 +1,5 @@
+# Article 76
+
+lngingo ya 76 Il est institué au sein du ministère ayant les affaires étrangères dans ses attributions un conseil de discipline. Il est composé par le secrétaire permanent, un conseiller au cabinet, l’inspecteur général, le directeur général chargé de l’administration, le directeur chargé des ressources humaines, le directeur chargé des affaires juridiques. Harashinzwe mu bushikiranganji bujejwe imigenderanire y’Uburundi n’amakungu umugwi ujejwe inyifato mu kazi. Uwo mugwi uba ugizwe n’umunyamabanga ntayegayezwa, umuhanuzi wo mu biro vy’Umushikiranganji, umugenduzi mukuru, umuyobozi mukuru ajejwe ivyerekeye intwaro, umuyobozi ajejwe ivyerekeye abakozi, umuyobozi ajejwe ivyerekeye amategeko.
+
+Le Ministre ayant les affaires étrangères dans ses attributions peut adjoindre au conseil de discipline tout autre cadre de son choix Umushikiranganji ajejwe imigenderanire y’Uburundi n’amakungu arashobora kwongera muri uwo mugwi uwundi mukozi wese wo mu bakozi bakurubakuru yihitiramwo.

@@ -1,0 +1,3 @@
+# Article 3
+
+lngingo ya 3 Le Ministre ayant les affaires étrangères dans ses attributions dirige le service diplomatique, coordonne et contrôle la mise en œuvre de la politique de l’Etat dans le domaine de la politique étrangère de la République du Burundi et de ses relations internationales Umushikiranganji ajejwe imigenderanire y’Uburundi n’amakungu ni we arongora igisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu, akurikiranira hafi akongera agasuzuma ishirwa mu ngiro rya poritike y’igihugu yerekeye ibindi bihugu hamwe n’imigenderanire y’Uburundi n’amakungu. Il dirige le service diplomatique. Ni we arongora lgisata c’ivyerekeye imigenderanire y’Uburundi n’amakungu.

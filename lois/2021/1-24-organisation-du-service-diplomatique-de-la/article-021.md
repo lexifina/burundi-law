@@ -1,0 +1,5 @@
+# Article 21
+
+Les consuls honoraires de la République du Burundi sont nommés par le Président de la République sur proposition du Ministre ayant les affaires Etrangères dans ses attributions. lngingo ya 21 Abahagararira inyungu z’Uburundi mu kindi gihugu badahembwa bagenwa n’Umukuru w’lgihugu, abisabwe n’umushikiranganji ajejwe imigenderanire y’Uburundi n’amakungu.
+
+Les consuls honoraires sont des personnalités éminentes ayant démontré leur haut attachement à l’endroit du Burundi et jouissant d’une bonne renommée ainsi que d’un haut niveau de prestige dans le pays d’accréditation. Abahagararira inyungu z’Uburundi mu bindi bihugu badahembwa ni abanyacubahiro bahambaye berekanye ukuntu bitaho Uburundi cane kandi bakaba bazwi neza bakongera bakaba bubahwa mu gihugu bagenywe gukoreramwo. Section 3 Agace ka 3 Des ambassadeurs désignés pour des missions spéciales et des coordonnateurs spéciaux Abaserukira Uburundi mu bindi bihugu bajejwe imirimo idasanzwe hamwe n’abakurikiranira hafi ibikorwa bidasanzwe

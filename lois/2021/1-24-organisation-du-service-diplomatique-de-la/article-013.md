@@ -1,0 +1,3 @@
+# Article 13
+
+La représentation à l’extérieur de la République du Burundi est une structure du service diplomatique, destinée à réaliser des activités diplomatiques ou consulaires dans un autre Etat, auprès des organisations internationales ou auprès des entités décentralisées des Etats. lngingo ya 13 : Ubuserukizi bw’Uburundi mu makungu ni igisata co mu vyerekeye imigenderanire y’igihugu n’amakungu, kijejwe kurangura ibikorwa vyerekeye imigenderanire y’igihugu n’amakungu canke uguhagararira inyungu z’Uburundi mu kindi gihugu, mu mashirahamwe mpuzamakungu canke mu bisata vy’Amareta vyahawe ubwigenge bumwe bumwe
