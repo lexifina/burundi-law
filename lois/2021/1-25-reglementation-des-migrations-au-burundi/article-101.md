@@ -8,4 +8,6 @@ Lorsque l’exécution du renvoi se fait dans l’Etat d’origine ou de provena
 
 3° les indications sur son état de santé.
 
-3° lvyerekana uko amagara yiwe yifashe. Chapitre XII Des dispositions speciales en cas d’afflux massif de personnes fuyant un danger général Igice ca XII Ingingo zidasanzwe mu gihe abantu baje ikivunga bahunga ikibageramiye
+3° lvyerekana uko amagara yiwe yifashe.
+
+Chapitre XII Des dispositions speciales en cas d’afflux massif de personnes fuyant un danger général Igice ca XII Ingingo zidasanzwe mu gihe abantu baje ikivunga bahunga ikibageramiye
