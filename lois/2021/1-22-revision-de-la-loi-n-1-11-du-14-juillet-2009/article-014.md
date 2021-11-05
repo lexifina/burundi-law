@@ -8,4 +8,6 @@ b) le plan d’activités à court et à moyen terme contenant notamment : (i) d
 
 c) tout autre renseignement que le Conseil d’Administration peut exiger, avant ou après le dépôt du rapport annuel.
 
-Le Conseil d’Administration soumet ces rapports au Ministre de tutelle pour disposition. Section 2 Du contrôle
+Le Conseil d’Administration soumet ces rapports au Ministre de tutelle pour disposition.
+
+Section 2 Du contrôle

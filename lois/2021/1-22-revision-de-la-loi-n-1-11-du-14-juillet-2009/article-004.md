@@ -22,4 +22,6 @@ i) de produire des rapports et statistiques sur la collecte des recettes et les 
 
 j) d’accorder des exonérations prévues par les lois en vigueur au Burundi conformément aux procédures qu’il adopte ;
 
-k) de remplir toute autre fonction concernant les recettes publiques que le Ministre de tutelle peut lui confier. Chapitre III De l’organisation administrative de l’OBR Section 1 Du Conseil d’Administration
+k) de remplir toute autre fonction concernant les recettes publiques que le Ministre de tutelle peut lui confier.
+
+Chapitre III De l’organisation administrative de l’OBR Section 1 Du Conseil d’Administration
