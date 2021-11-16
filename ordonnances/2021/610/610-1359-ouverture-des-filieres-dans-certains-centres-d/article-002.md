@@ -1,0 +1,3 @@
+# Article 2
+
+La filière Opérateur Bureautique est ouverte dans les centres suivants : - Centre d’Enseignement des Métiers MAKAMBA, DCE RUSAKA, DPE MWARO ; - Centre de Formation Professionnelle KARURAMA, DCE RUGOMBO, DPE CIBITOKE; - Centre de Formation Professionnelle MUYINGA, DCE MUYINGA, DPE MUYINGA; - Centre de Formation Professionnelle MUGERAMA, DCE NYANZA-LAC, DPE MAKAMBA; - Centre d’Enseignement des Métiers KIRUNDO, DCE KIRUNDO, DPE KIRUNDO ; - Centre d’Enseignement des Métiers RUVUMVU, DCE SONGA, DPE BURURI ; - Centre de Formation Professionnelle MURAMBA, DCE MUGAMBA, DPE BURURI; - Centre d’Enseignement des Métiers BUKEMBA, DCE BUKEMBA, DPE RUTANA ; - Centre d’Enseignement des Métiers KINAMA, DCE NTAHANGWA, DPE MAIRIE.
