@@ -1,0 +1,3 @@
+# Article 11
+
+Un ancien combattant handicapé sévère ou très sévère peut bénéficier des avantages suivants : - une formation professionnelle compatible à son handicap ; - une pension d’invalidité équivalente au salaire brut lié à son grade; - des appareils orthopédiques renouvelables (prothèse, orthèse) et de mobilité (béquille, chaise roulante, tricycle, canne blanche); - un logement adapté à son invalidité et dont il peut disposer de son vivant; en cas de décès, ce logement devient la propriété de ses ayants droit ; - une prise en charge médicale et orthopédique dans les structures sanitaires publiques, privées ou à son domicile ; - une subvention en eau et en électricité; - un appui juridique pour défendre ses droits en cas de besoin.
