@@ -1,0 +1,3 @@
+# Article 40
+
+Les ressources de l’Institut proviennent : - des subsides de l’Etat ; - des apports des bénéficiaires des divers services notamment des services de laboratoire ; - des revenus des biens dont il est propriétaire; - des contributions financières ou autres provenant de la coopération bilatérale ou multilatérale ; - des droits payés par les étudiants à titre de frais d’inscription aux cours ainsi que les frais liés à l’acquisition des différents documents; - des rémunérations ou revenus provenant des travaux, des études et des recherches effectués par l’Institut à la demande et pour le compte des autres personnes physiques ou morales ; - des dons et legs régulièrement acceptés ; - des prêts régulièrement contractés auprès des tiers.

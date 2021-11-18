@@ -1,0 +1,3 @@
+# Article 22
+
+Le Manager Qualité assiste le Directeur dans sa responsabilité d’asseoir le système d’assurance qualité au niveau du Laboratoire National de Référence. Il est chargé de : - définir avec la direction le programme qualité et sa planification ; - assurer la mise en œuvre des procédures et leur validation ; - assurer la gestion documentaire du système qualité ; - gérer les audits qualité internes ; - s’assurer de la mise en œuvre et de l’aboutissement des actions correctives et préventives ; - assurer la formation du personnel en matière d’assurance qualité. L’organisation du système qualité à la Direction du Laboratoire est détaillée dans le Manuel Qualité de chaque département de laboratoire.

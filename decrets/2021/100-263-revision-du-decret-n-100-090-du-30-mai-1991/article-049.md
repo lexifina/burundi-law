@@ -1,0 +1,3 @@
+# Article 49
+
+Le rapport visé à l’article précédent doit être approuvé par le Conseil d’Administration au plus tard le 30 septembre de chaque année. Il est adressé respectivement au Ministre de tutelle, au Ministre des Finances, au Conseil d’ Administration, au Directeur Général, au Directeur Administratif, Financier et du Patrimoine et au Chef Comptable de l’Institut. En cas de constat d’irrégularité susceptible de qualification pénale à charge des responsables de l’Institut, le rapport est également adressé au Procureur Général de la République qui apprécie l’opportunité des poursuites judiciaires.

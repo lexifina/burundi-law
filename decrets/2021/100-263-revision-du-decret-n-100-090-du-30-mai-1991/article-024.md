@@ -1,0 +1,3 @@
+# Article 24
+
+Le Directeur Administratif, Financier et du Patrimoine est chargé de : - assurer l’administration et la gestion de la carrière du personnel de l’Institut ; - proposer le budget et gérer les finances de l’Institut; - superviser toutes les opérations relatives à la comptabilité et établir les bilans financiers ; - initier et coordonner les activités génératrices de revenus ; superviser toutes les activités relatives à l’entretien et à la maintenance du patrimoine mobilier et immobilier de l’Institut ; - gérer le secrétariat général de l’Institut ; - contrôler et gérer le parc automobile.

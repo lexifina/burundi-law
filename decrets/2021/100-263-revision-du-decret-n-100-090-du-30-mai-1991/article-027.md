@@ -1,0 +1,3 @@
+# Article 27
+
+Le Conseil de l’Institut est composé comme suit : - le Directeur Général : Président ; - le Directeur des Services Académiques : Secrétaire ; - le Directeur de la Recherche ; - le Directeur du Laboratoire National de Référence; - le Directeur Administratif, Financier et du Patrimoine ; - les Chefs de Départements ; - le Chef du Service des enseignants et des enseignements ; - le Responsable de la Bibliothèque ; - un représentant des étudiants par cycle de formation. En cas de besoin, le Conseil de l’Institut peut être élargi aux responsables des filières et/ou à toute autre personne ressource en fonction des matières à traiter.

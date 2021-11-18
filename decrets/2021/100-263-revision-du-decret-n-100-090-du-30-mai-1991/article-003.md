@@ -1,0 +1,3 @@
+# Article 3
+
+L’Institut a pour mission de renforcer les capacités du ministère ayant la santé publique dans ses attributions à concevoir et à réaliser les activités dudit ministère. L’Institut est un centre polyvalent qui intègre la formation et la recherche en santé publique ainsi que les analyses de laboratoire et de contrôle de l’environnement. Son mandat est ainsi défini : - la formation initiale, le perfectionnement en cours d’emploi et la spécialisation en santé publique ; - la promotion et la réalisation des recherches appliquées en santé publique; - la réalisation d’analyses de biologie médicale, de contrôle de qualité des médicaments, de l’eau, des aliments et de l’environnement. Chapitre II De l’organisation administrative

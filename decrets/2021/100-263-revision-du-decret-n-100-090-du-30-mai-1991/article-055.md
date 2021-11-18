@@ -1,0 +1,3 @@
+# Article 55
+
+Les activités académiques à l’Institut sont organisées dans les trois départements suivants : - le Département des Sciences de la Santé Publique comprenant les filières de Santé Publique, Gestion des Services de Santé et Santé Environnementale ; - le Département des Sciences Paracliniques comprenant les Filières de Laboratoire, Radiologie et Pharmacie ; - le Département des Sciences Cliniques comprenant les filières de Sages-Femmes, Soins Infirmiers, Anesthésie-Réanimation, Santé Bucco-dentaire, Santé Mentale et Psychiatrie et Kinésithérapie et Réadaptation Fonctionnelle. Néanmoins, cette organisation est sujette à modification selon les besoins et les priorités du pays en matière de santé.

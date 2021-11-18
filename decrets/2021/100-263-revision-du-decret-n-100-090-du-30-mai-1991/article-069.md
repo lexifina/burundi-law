@@ -1,0 +1,3 @@
+# Article 69
+
+L’enseignant titulaire d’un diplôme de Doctorat, exerçant à temps plein à l’Institut, peut rester rémunéré par celui-ci s’il est nommé par décret pour d’autres fonctions s’exerçant sur le territoire de la République du Burundi. Dans ce cas, il ne bénéficie pas de salaire lié à cette nouvelle fonction, mais seulement des avantages et autres intérêts y relatifs. Toutefois, il doit prester l’équivalent d’une charge horaire minimale égale à celle des professeurs en détachement pour des responsabilités administratives au sein de la direction de l’Institut. Chapitre VII Des droits et devoirs des étudiants

@@ -1,0 +1,3 @@
+# Article 23
+
+La Direction du Laboratoire National de Référence comprend trois départements à savoir : - le Département de Biologie Médicale incluant les services d’hématologie, biochimie, parasitologie, mycobactériologie, séro-immunologie, bactériologie, virologie et anatomopathologie; - le Département de Contrôle de Qualité incluant le Service de Contrôle de la Qualité du Médicament et le Service de Contrôle de Qualité de l ‘Eau et des Aliments ; - le Département de Contrôle de l’Environnement incluant le service de Toxicologie et le Service de Contrôle de l’Environnement. Paragraphe 4 Du Directeur Administratif, Financier et du Patrimoine
