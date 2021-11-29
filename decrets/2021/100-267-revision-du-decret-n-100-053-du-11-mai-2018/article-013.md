@@ -1,0 +1,3 @@
+# Article 13
+
+Les comités communaux indiquent à leur tour ces orientations stratégiques spécifiques aux comités collinaires/quartiers, supervisent leur mise en œuvre, suivent de près le déroulement de l’activité de collecte à travers différentes collines/différents quartiers et identifient les lieux de stockage des aides collectées. Les Administrateurs communaux procèdent aussi à l’ouverture des comptes pour permettre à ceux qui veulent donner leur contribution sous forme d’argent, de manifester cette solidarité. Ces comptes sont ouverts au nom de la« Journée de Solidarité Locale ». Ce sont ces mêmes comités qui sont en charge de la gestion de l’aide collectée.
