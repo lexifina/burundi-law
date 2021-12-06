@@ -16,4 +16,6 @@ Les bénéficiaires du P AEEJ sont notamment :
 
 - les institutions en charge de la formation professionnelle pour permettre la réinsertion professionnelle de ces jeunes ayant une formation généraliste de base ;
 
-- les institutions qui apporteront un support de soutien comme l’informatique, l’eau et l’électricité, assurance, soins de santé ou spécialisées dans la production des semences ou plants. Chapitre II Du Pilotage et des Missions du Programme
+- les institutions qui apporteront un support de soutien comme l’informatique, l’eau et l’électricité, assurance, soins de santé ou spécialisées dans la production des semences ou plants.
+
+Chapitre II Du Pilotage et des Missions du Programme
