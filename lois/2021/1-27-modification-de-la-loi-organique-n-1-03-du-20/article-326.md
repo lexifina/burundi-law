@@ -8,4 +8,6 @@ L’aumônerie régionale a pour missions de:
 
 - contribuer au renforcement de la discipline et du moral du personnel de la région;
 
-- assister et conseiller le commissaire régional. Section 3 Du fonctionnement
+- assister et conseiller le commissaire régional.
+
+Section 3 Du fonctionnement

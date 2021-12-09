@@ -20,4 +20,6 @@ L’IGPNB est dotée de neuf bureaux techniques suivants:
 
 - le bureau aumônerie générale.
 
-Les bureaux techniques comprennent autant de services ou d’unités spécialisées que de besoin. Section 1 Du bureau administration et gestion Paragraphe 1 De l’organisation
+Les bureaux techniques comprennent autant de services ou d’unités spécialisées que de besoin.
+
+Section 1 Du bureau administration et gestion Paragraphe 1 De l’organisation

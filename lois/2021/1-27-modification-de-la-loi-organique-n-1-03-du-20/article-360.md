@@ -8,4 +8,6 @@ Le service chargé de l’action sociale a pour missions de :
 
 - faire le suivi des dossiers du personnel de la commune relatifs à la demande d’assistance sociale et médicale;
 
-- faire le suivi des dossiers litigieux du personnel et de leurs ayant droits. Section 3 Du fonctionnement
+- faire le suivi des dossiers litigieux du personnel et de leurs ayant droits.
+
+Section 3 Du fonctionnement
