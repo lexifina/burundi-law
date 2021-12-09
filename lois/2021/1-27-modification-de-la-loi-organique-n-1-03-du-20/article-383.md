@@ -1,0 +1,35 @@
+# Article 383
+
+Le membre de la Police Nationale du Burundi est assujetti à des devoirs et des obligations. Il doit notamment :
+
+- servir la nation burundaise avec fidélité et dévouement et veiller en toutes circonstances aux intérêts de la République du Burundi;
+
+- accomplir personnellement et consciencieusement les tâches lui assignées, exécuter les ordres de ses supérieurs sauf ceux qui seraient incompatibles avec l’honneur du service, et collaborer dans la mesure où l’exige l’intérêt du service;
+
+- faire preuve de dignité et de courtoisie tant envers ses supérieurs, ses égaux, ses subalternes qu envers le public;
+
+- éviter, tant au service que dans la vie privée, tout ce qui pourrait ébranler la confiance du public ou compromettre l’honneur et la dignité dans sa fonction;
+
+- Connaitre la loi, les directives et mesures concernant le respect de ses obligations, leur mise en application et les faire respecter;
+
+- initier, dans les limites de sa compétence, les répressions des abus, des négligences ou des infractions aux lois et règlements qu’il serait amené à constater dans et en dehors de l’exercice de ses fonctions;
+
+- respecter et faire respecter la Constitution, les lois et règlements;
+
+- faire preuve de discrétion et d’abnégation au service;
+
+- rechercher, exploiter et transmettre tous les renseignements d’ordre politique, social et économique nécessaires à l’information et à l’action du Gouvernement;
+
+- veiller dans la limite de ses compétences à la sauvegarde de la sûreté tant intérieure qu’extérieure de l’Etat;
+
+- prendre soins des installations et du matériel appartenant à l’Etat ou
+
+- placés sous sa garde et protection;
+
+- prêter main-forte aux autorités chargées du maintien de l’ordre;
+
+- porter secours à toute personne en danger;
+
+- veiller, dans la limite de ses compétences, au maintien de l’ordre;
+
+- veiller à ce que son conjoint n’exerce une activité qui serait de nature à nuire à l’accomplissement de sa fonction.
