@@ -1,0 +1,19 @@
+# Article 2 11
+
+Le site Dogodogo Il, d’une superficie de 8,105 ha est délimité par les coordonnées géographiques ci-après: Sommet Longitude Est Latitude Sud A
+
+29° 05’ 35,0"
+
+02° 50’ 03, 1" B
+
+29° 05’ 30,6"
+
+02° 50’ 05,4" C
+
+29° 05’ 22,2"
+
+02° 49’ 49,1" D
+
+29° 05’ 25,8"
+
+02° 49’ 46,8"
