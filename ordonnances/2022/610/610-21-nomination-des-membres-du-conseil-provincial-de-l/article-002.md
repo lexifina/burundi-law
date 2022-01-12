@@ -1,3 +1,3 @@
 # Article 2
 
-Toutes dispositions antérieures contraires à la présente Ordonnance Ministérielles sont abro­ gées.
+Toutes dispositions antérieures contraires à la présente Ordonnance Ministérielles sont abrogées.
