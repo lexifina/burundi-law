@@ -1,0 +1,3 @@
+# Article 19
+
+Ingingo ya 19 Au cas où le stage devient non concluant, l’officier stagiaire reprend une année de stage. Mu gihe uwitegurira kuba umuporisi w’Intwa­ zangabo yaronse amanota adashimishije mu nyi­ gisho z’ukwimenyereza akazi, aca asubiramwo izo nyigisho mu kiringo c’umwaka umwe. En cas d’échec, le candidat officier est renvoyé d’office par une ordonnance du Ministre ayant la Police Nationale dans ses attributions. Mu gihe asubiye kunanirwa, uwitegurira kuba umuporisi w’Intwazangabo yariko arimenyereza akazi aca yirukanwa biciye mw’itegeko ry’Umushikiranganji ajejwe Igiporisi c’Uburundi.

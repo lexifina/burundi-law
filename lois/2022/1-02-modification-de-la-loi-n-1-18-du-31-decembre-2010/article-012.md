@@ -1,0 +1,3 @@
+# Article 12
+
+Ingingo ya 12 La formation fonctionnelle est la formation consistant à doter certains membres du personnel des compétences professionnelles particulières afin qu’ils puissent être à mesure d’accomplir des missions spécialisées liées à l’exercice de leur nouvelle fonction et/ou d’assurer les tâches qui nécessitent une qualification particulière. Inyigisho zijanye n’akazi ni inyigisho zituma bamwe bamwe mu Ntwazangabo z’Igiporisi baronka ubushobozi bujanye n’umwuga wabo kugira bashobore kurangura imirimo kanaka yerekeye amabanga mashasha baba bagiye kurangura canke zibatuma bashobora gukora ibi­ korwa bisaba ko izo Ntwazangabo ziba zifise ubu­ menyi bujanye n’ako kazi.

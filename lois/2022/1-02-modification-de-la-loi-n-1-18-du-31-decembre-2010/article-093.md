@@ -1,0 +1,3 @@
+# Article 93
+
+Ingingo ya 93 L’arrêt de rigueur consiste, pour l’officier de la Police Nationale, en l’interdiction lui faite de quit­ ter sa résidence, d’exercer une quelconque fonc­ tion, d’organiser des fêtes et de recevoir des visites. Igihano co gupfungira Intwazangabo i muhira kigirwa mu kumubuza gucaruka ava i muhira, gukora umurimo uwo ari wo wose, gutunganya imisi mikuru no kwakira abashitsi. Cette sanction s’accompagne de la retenue de la moitié du traitement journalier pendant les jours de punition. Ico gihano kijana n’ugukata ica kabiri c’umusha­ hara wo ku musi ku musi mu kiringo case amara ari mu gihano.

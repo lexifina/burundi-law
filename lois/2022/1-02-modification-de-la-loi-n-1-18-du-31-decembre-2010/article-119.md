@@ -1,0 +1,3 @@
+# Article 119
+
+Ingingo ya 119 Les titres honorifiques sont des distinctions desti­ nées à récompenser un officier de la Police Natio­ nale qui a rendu des services exceptionnels à la Nation ou à la communauté Internationale, dans l’exercice d’une fonction publique, de défense ou de sécurité ou dans l’exercice d’une activité pri­ vée. Ibimenyetso biranga abatewe iteka n’Igihugu ni ibimenyetso bigenewe gushimira Intwazangabo yo mu Giporisi c’Uburundi yakoreye Igihugu canke amakungu ibikorwa bidasanzwe, ariko ara­ rangura umurimo wa Reta, umurimo wo kwivuna umwansi canke kubungabunga umutekano canke ariko arakora ibindi bikorwa vyiwe.

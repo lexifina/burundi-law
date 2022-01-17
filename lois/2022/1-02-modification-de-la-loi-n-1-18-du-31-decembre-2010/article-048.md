@@ -1,0 +1,3 @@
+# Article 48
+
+Ingingo ya 48 La nomenclature des grades des officiers de la Police Nationale est la suivante: Amapete ahabwa abaporisi b’Intwazangabo ni aya akurikira: Sous-lieutenant de Police, Lieutenant de Police, Capitaine de Police, Major de Police, Lieutenant-Colonel de Police, Colonel de Police, Général de Brigade de Police, Général Major de Police, Lieu­ tenant Général de Police et Général de Police. Suriyetena mu Giporisi, Riyetena mu Giporisi, Kapitene mu Giporisi, Majoro mu Giporisi, Riye­ tena Koroneri mu Giporisi, Koroneri mu Giporisi, Jenerari wa Birigade mu Giporisi, Jenerari Majoro mu Giporisi, Riyetena Jenerari mu Gipo­ risi na Jenerari mu Giporisi.

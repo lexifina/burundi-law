@@ -1,0 +1,3 @@
+# Article 47
+
+Ingingo ya 47 En cas de contestation de la notation, le recours est porté à l’échelon supérieur endéans sept jours à compter de la réception du bulletin de notation. Si la réponse n’est pas donnée endéans trente jours, l’intéressé saisit la Cour Administrative. Mu gihe umuporisi w’Intwazangabo adashimishi­ jwe n’amanota yaronse mu kazi, aca yitwara ku rwego rukurira urwamuhaye ayo manota mu kiringo c’imisi indwi giharurwa kuva kw’igeneke­ rezo yaronkeyeko urwandiko rwerekana ayo manota. Iyo nyishu idatanzwe mu kiringo c’imisi mirongo itatu, uwo vyerekeye aca yitura Sentare isasa mu manza zerekeye Reta n’ibisata vyayo. Chapitre V Igice ca V Des et de grades l’avancement Ivyerekeye amapete n’ukuduzwa amapete Section 1 Agace ka 1 Des grades Amapete

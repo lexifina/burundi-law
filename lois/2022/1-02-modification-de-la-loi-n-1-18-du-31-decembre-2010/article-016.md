@@ -1,0 +1,3 @@
+# Article 16
+
+Ingingo ya 16 L’officier a droit à des stages de perfectionnement dans les conditions fixées par le ministère ayant la Police Nationale dans ses missions. Umuporisi w’Intwazangabo arafise uburengan­ zira bw’ugukurikirana inyigisho z’ugukarisha ubwenge hisunzwe ibisabwa bishingwa n’ubushi­ kiranganji bujejwe Igiporisi c’Uburundi. Un stage ou une formation réussie donne droit à une bonification du titre obtenu dans les condi­ tions déterminées par décret. Aronse amanota ashimishije mu nyigisho z’ugu­ karisha ubwenge canke mu nyigisho zo mu mashure ya kaminuza arabironkera agashiruka­ bute kajanye n’urupapuro ruvyemeza aba yaronse nk’uko bitegekanywa n’ltegeko ry’Umu­ kuru w’Igihugu.

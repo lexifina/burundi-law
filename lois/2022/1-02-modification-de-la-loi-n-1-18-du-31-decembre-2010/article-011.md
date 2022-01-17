@@ -1,0 +1,3 @@
+# Article 11
+
+Ingingo ya 11 La formation continue est le prolongement de la formation de base de l’officier au cours de la car­ rière avec l’objectif de se recycler et d’accroître ses connaissances, ses compétences et son savoir-faire. Elle est dispensée à tous les officiers sans pour effet de changement de fonction ni de catégo­ rie. Inyigisho zija ziratangwa mu kazi ni izibandani­ riza ku nyigisho z’intango Intwazangabo ija ira­ ronka iri mu kazi mu ntumbero yo kunagura no kwongereza ubumenyi, ubushobozi bwayo hamwe n’ubuhinga bwo gukora ibintu. Izo nyigisho zihabwa Intwazangabo zose ata ntumbero ihari y’uguhindura amabanga zisanzwe zijejwe canke umugwi zirimwo.
