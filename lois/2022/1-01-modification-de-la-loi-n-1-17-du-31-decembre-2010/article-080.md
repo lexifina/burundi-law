@@ -14,7 +14,7 @@ Ingingo ya 80 Constituent les fautes disciplinaires notamment Amakosa ajanye n�
 
 3) akaborerwe;
 
-4) la consommation de boissons alcoolisées au ser­ vice;
+4) la consommation de boissons alcoolisées au service;
 
 4) ukunywera inzoga ku kazi;
 
@@ -24,17 +24,17 @@ Ingingo ya 80 Constituent les fautes disciplinaires notamment Amakosa ajanye n�
 
 6) l’inobservance des règles relatives aux marques extérieures de respect dues à un supérieur et aux honneurs à rendre;
 
-6) ukudakurikiza amategeko agenga ibijanye n’ukugaragaza icubahiro gihabwa uwumu­ ruta mu kazi hamwe n’imigirwa y’ukwere­ kana icubahiro;
+6) ukudakurikiza amategeko agenga ibijanye n’ukugaragaza icubahiro gihabwa uwumuruta mu kazi hamwe n’imigirwa y’ukwerekana icubahiro;
 
 7) la brutalité et les expressions blessantes à l’égard d’un inférieur;
 
-7) ugukoresha umukazo n’amajambo akome­ retsa uwo aruta mu kazi;
+7) ugukoresha umukazo n’amajambo akomeretsa uwo aruta mu kazi;
 
 8) l’abus de pouvoir;
 
 8) ukwitwaza ububasha;
 
-9) la négligence dans l’entretien des effets de ser­ vice et des armes;
+9) la négligence dans l’entretien des effets de service et des armes;
 
 9) ukutitwararika kubungabunga ibikoresho vy’akazi hamwe n’ibirwanisho;
 
@@ -44,7 +44,7 @@ Ingingo ya 80 Constituent les fautes disciplinaires notamment Amakosa ajanye n�
 
 11)l’usage abusif des armes;
 
-11)ugukoresha ibirwanisho ibitemewe n’amate­ geko;
+11)ugukoresha ibirwanisho ibitemewe n’amategeko;
 
 12)la négligence ou la mauvaise volonté dans l’accomplissement des devoirs;
 
@@ -76,11 +76,11 @@ Ingingo ya 80 Constituent les fautes disciplinaires notamment Amakosa ajanye n�
 
 20)le recours collectif, vexatoire, diffamatoire ou téméraire;
 
-20)ugusaba mu kivunga ko ingingo yafashwe isubirwamwo canke ugusaba ko ingingo yafashwe isubirwamwo hakoreshejwe ama­ jambo y’ugutukana, atyoza canke mu kwu­ bahuka birengeje;
+20)ugusaba mu kivunga ko ingingo yafashwe isubirwamwo canke ugusaba ko ingingo yafashwe isubirwamwo hakoreshejwe amajambo y’ugutukana, atyoza canke mu kwubahuka birengeje;
 
 21)la soumission d’une revendication ou d’une plainte sans respect de la hiérarchie;
 
-21)ukwemera ivyo asabwe canke ibirego ashiki­ rijwe atagishije inama abamutwara 22)le refus d’exécuter une punition;
+21)ukwemera ivyo asabwe canke ibirego ashikirijwe atagishije inama abamutwara 22)le refus d’exécuter une punition;
 
 22)ukwanka igihano;
 
@@ -94,7 +94,7 @@ Ingingo ya 80 Constituent les fautes disciplinaires notamment Amakosa ajanye n�
 
 25)la demande ou l’acceptation directement ou indirectement, dans l’exercice de ses fonctions ou en dehors, mais en raison de celles-ci, des avantages quelconques;
 
-25)ugusaba canke ukwemera kwakira we nyene ubwiwe canke abicishije ku wundi uturusho utwo ari two twose ariko araran­ gura amabanga ajejwe canke atariko araya­ rangura, ariko yitwaje ayo mabanga;
+25)ugusaba canke ukwemera kwakira we nyene ubwiwe canke abicishije ku wundi uturusho utwo ari two twose ariko ararangura amabanga ajejwe canke atariko arayarangura, ariko yitwaje ayo mabanga;
 
 26)la divulgation du secret professionnel pendant sa carrière et même après celleci;
 
@@ -104,19 +104,19 @@ Ingingo ya 80 Constituent les fautes disciplinaires notamment Amakosa ajanye n�
 
 27)ukuba intambamyi y’igikorwa c’ugusuzuma canke ic’ukugenzura;
 
-28)le comportement dans un lieu public ou acces­ sible au public permettant de supposer que son auteur exerce une activité à caractère politique de quelque genre que ce soit;
+28)le comportement dans un lieu public ou accessible au public permettant de supposer que son auteur exerce une activité à caractère politique de quelque genre que ce soit;
 
 28)ukugira inyifato ahakoranira abantu benshi canke ahashobora guhurira abantu benshi bituma uwuyigize ashobora gufatwa ko ariko arakora igikorwa ca poritike ico ari co cose;
 
-29)la participation à des polémiques ou luttes des partis politiques, sectes, associations ou groupe­ ments ayant une tendance ou un caractère poli­ tique;
+29)la participation à des polémiques ou luttes des partis politiques, sectes, associations ou groupements ayant une tendance ou un caractère politique;
 
-29)ukwisuka mu mpari canke mundyane z’imi­ gambwe canke z’utudumbidumbi tw’ama­ dini, iz’amashirahamwe canke iz’imigwi ifise intumbero y’ivyerekeye poritike;
+29)ukwisuka mu mpari canke mundyane z’imigambwe canke z’utudumbidumbi tw’amadini, iz’amashirahamwe canke iz’imigwi ifise intumbero y’ivyerekeye poritike;
 
 30)la déclaration dans la presse sans autorisation de la hiérarchie;
 
 30)ugushikiriza inkuru mu bimenyeshamakuru uwumutwara atamuhaye uruhusha;
 
-31)la production ou la distribution de tout écrit à caractère politique ou subversif 31)ugusohora inzandiko zose za poritike, kuzi­ tanga n’ukuzikwiragiza;
+31)la production ou la distribution de tout écrit à caractère politique ou subversif 31)ugusohora inzandiko zose za poritike, kuzitanga n’ukuzikwiragiza;
 
 32)la menace avec arme;
 
@@ -124,33 +124,33 @@ Ingingo ya 80 Constituent les fautes disciplinaires notamment Amakosa ajanye n�
 
 33)la détention illégale d’arme;
 
-33)ukuba afise ikirwanisho bitemewe n’amate­ geko 34)la pratique du braconnage;
+33)ukuba afise ikirwanisho bitemewe n’amategeko 34)la pratique du braconnage;
 
 34)ukuroba canke uguhiga ibikoko bitarekuwe n’amategeko;
 
 35)la fréquentation des débits de boissons et des lieux de dancing en uniforme ou en arme;
 
-35)ukuja mu bunywero no mu butambiro Igi­ songerezi c’Intwazangabo mu Gipolisi yam­ baye umwambaro w’akazi canke afise ikirwanisho;
+35)ukuja mu bunywero no mu butambiro Igisongerezi c’Intwazangabo mu Gipolisi yambaye umwambaro w’akazi canke afise ikirwanisho;
 
 36)le port d’une tenue non réglementaire;
 
-36)ukwambara umwambaro utemewe n’amate­ geko;
+36)ukwambara umwambaro utemewe n’amategeko;
 
 37)la détention, la consommation, la vente, le transport, la culture ou la facilitation du trafic des stupéfiants et des boissons prohibées;
 
-37)ugutunga ibiyayuramutwe n’ibinyobwa bibujijwe, ukubinywa, ukubigurisha, ukuvyunguruza, ukubirima canke kworohe­ reza urudandazwa rwavyo;
+37)ugutunga ibiyayuramutwe n’ibinyobwa bibujijwe, ukubinywa, ukubigurisha, ukuvyunguruza, ukubirima canke kworohereza urudandazwa rwavyo;
 
-38)le fait de soustraire au contrôle ou aux pour­ suites judiciaires, par des manœuvres dila­ toires, les personnes recherchées par la justice;
+38)le fait de soustraire au contrôle ou aux poursuites judiciaires, par des manœuvres dilatoires, les personnes recherchées par la justice;
 
-38)kwanka ko abantu baronderwa n’ubutun­ gane basuzumwa canke bakurikiranwa muri sentare akoresheje uburyo bw’ukudindiza ibikorwa;
+38)kwanka ko abantu baronderwa n’ubutungane basuzumwa canke bakurikiranwa muri sentare akoresheje uburyo bw’ukudindiza ibikorwa;
 
-39)le fait de retenir injustement le recours intro­ duit par un subalterne destiné à l’autorité supé­ rieure;
+39)le fait de retenir injustement le recours introduit par un subalterne destiné à l’autorité supérieure;
 
-39)ukugumya, akoresheje akarenganyo, urwan­ diko rw’uwo atwara rusaba ko ingingo yafa­ tiwe isubirwamwo rugenewe uwumukurira mu kazi;
+39)ukugumya, akoresheje akarenganyo, urwandiko rw’uwo atwara rusaba ko ingingo yafatiwe isubirwamwo rugenewe uwumukurira mu kazi;
 
 40)le vol, l’extorsion ou le pillage pendant ou en dehors de l’exercice de ses fonctions;
 
-40)ukwiba, ukwambura abantu ku nguvu utuntu twabo canke ugusahura ariko ara­ rangura imirimo ajejwe canke atariko arayi­ rangura;
+40)ukwiba, ukwambura abantu ku nguvu utuntu twabo canke ugusahura ariko ararangura imirimo ajejwe canke atariko arayirangura;
 
 41)le détournement des objets saisis;
 
@@ -164,10 +164,10 @@ Ingingo ya 80 Constituent les fautes disciplinaires notamment Amakosa ajanye n�
 
 43)uguta akazi bikamenyekana haciye imisi icumi n’itanu adatonda mu gihe c’amahoro n’imisi indwi mu gihe c’intambara;
 
-44)l’introduction au camp d’une personne étran­ gère sans autorisation;
+44)l’introduction au camp d’une personne étrangère sans autorisation;
 
 44)ukwinjiza mw’ikambi umuntu wo hanze ata ruhusha;
 
 45)fabrication illégale d’armes.
 
-45)ugukora ibirwanisho ataburenganzira ubifi­ tiye.
+45)ugukora ibirwanisho ataburenganzira ubifitiye.

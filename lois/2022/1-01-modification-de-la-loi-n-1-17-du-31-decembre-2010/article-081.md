@@ -1,18 +1,18 @@
 # Article 81
 
-Ingingo ya 81 Est qualifiée de faute grave pouvant impliquer la révocation, tout comportement intentionnel du sous-officier de police contraire à ses devoirs, qui cause préjudice à autrui, à la discipline, au fonc­ tionnement du service, à l’image et au prestige de la Police Nationale du Burundi notamment le fait de: Igifatwa ko ari ikosa rihambaye rishobora gutuma hafatwa ingingo y’ukwirukanwa mu kazi, ni inyifato yose Igisongerezi c’Intwazan­ gabo mu Gipolisi agize n’impaka iteye kubiri n’ivyo ajejwe, inyifato yose ibangamira uwundi muntu, idahuye n’inyifato nziza mu kazi, ibera intambamyi irangurwa ry’imirimo, igacafuza ishusho n’icubahiro vy’Igiporisi c’Uburundi nko mu gukora ibi bikurikira:
+Ingingo ya 81 Est qualifiée de faute grave pouvant impliquer la révocation, tout comportement intentionnel du sous-officier de police contraire à ses devoirs, qui cause préjudice à autrui, à la discipline, au fonctionnement du service, à l’image et au prestige de la Police Nationale du Burundi notamment le fait de: Igifatwa ko ari ikosa rihambaye rishobora gutuma hafatwa ingingo y’ukwirukanwa mu kazi, ni inyifato yose Igisongerezi c’Intwazangabo mu Gipolisi agize n’impaka iteye kubiri n’ivyo ajejwe, inyifato yose ibangamira uwundi muntu, idahuye n’inyifato nziza mu kazi, ibera intambamyi irangurwa ry’imirimo, igacafuza ishusho n’icubahiro vy’Igiporisi c’Uburundi nko mu gukora ibi bikurikira:
 
 1) porter gravement atteinte à la Constitution;
 
 1) kurenga Ibwirizwa Shingiro;
 
-2) abuser de l’autorité dont il est revêtu ou de sa qualité pour commettre des actes de viol, de tor­ ture, de barbarie ou porter atteinte au respect de la personne humaine;
+2) abuser de l’autorité dont il est revêtu ou de sa qualité pour commettre des actes de viol, de torture, de barbarie ou porter atteinte au respect de la personne humaine;
 
-2) kwitwaza ububasha afise canke ico ari mu gukora amabi ajanye n’ugusambanya umu­ ntu ku nguvu, ukumusinzikariza ubuzima, ukumufata bunyamaswa canke ukutubahi­ riza ikiremwa muntu;
+2) kwitwaza ububasha afise canke ico ari mu gukora amabi ajanye n’ugusambanya umuntu ku nguvu, ukumusinzikariza ubuzima, ukumufata bunyamaswa canke ukutubahiriza ikiremwa muntu;
 
-3) faire usage de son arme en dehors des cas pré­ vus par la loi et les règlements;
+3) faire usage de son arme en dehors des cas prévus par la loi et les règlements;
 
-3) gukoresha ikirwanisho ciwe mu bihe bidate­ gekanijwe n’amabwirizwa hamwe n’amate­ geko;
+3) gukoresha ikirwanisho ciwe mu bihe bidategekanijwe n’amabwirizwa hamwe n’amategeko;
 
 4)détenir une arme non dotée par le service;
 
@@ -32,17 +32,17 @@ Ingingo ya 81 Est qualifiée de faute grave pouvant impliquer la révocation, to
 
 8) gushigikirana mu makosa;
 
-9) demander ou accepter directement ou indirecte­ ment dans l’exercice de ses fonctions ou en dehors, mais en raison de celles-ci, des avan­ tages quelconques;
+9) demander ou accepter directement ou indirectement dans l’exercice de ses fonctions ou en dehors, mais en raison de celles-ci, des avantages quelconques;
 
-9) gusaba canke ukwemera kwakira we nyene ubwiwe canke abicishije ku wundi uturusho utwo ari two twose ariko ararangura amabanga ajejwe canke atariko arayaran­ gura, ariko yitwaje ayo mabanga;
+9) gusaba canke ukwemera kwakira we nyene ubwiwe canke abicishije ku wundi uturusho utwo ari two twose ariko ararangura amabanga ajejwe canke atariko arayarangura, ariko yitwaje ayo mabanga;
 
-10)dévoiler le secret professionnel pendant sa car­ rière et même après celle-ci;
+10)dévoiler le secret professionnel pendant sa carrière et même après celle-ci;
 
 10)kumena amabanga y’akazi akiri mu kazi n’igihe aba atakiri mu kazi;
 
-11)prendre part à des polémiques ou luttes des partis politiques ou sectes, associations ou grou­ pements ayant une tendance ou un caractère politique;
+11)prendre part à des polémiques ou luttes des partis politiques ou sectes, associations ou groupements ayant une tendance ou un caractère politique;
 
-11)kwisuka mu mpari canke mu ndyane z’imi­ gambwe canke z’utudumbidumbi tw’ama­ dini, iz’amashirahamwe canke iz’imigwi ifise intumbero y’ivyerekeye poritike;
+11)kwisuka mu mpari canke mu ndyane z’imigambwe canke z’utudumbidumbi tw’amadini, iz’amashirahamwe canke iz’imigwi ifise intumbero y’ivyerekeye poritike;
 
 12)produire ou distribuer tout écrit à caractère politique ou subversif 12)gusohora canke gukwiragiza inzandiko zose z’ivya poritike canke zigumura;
 
@@ -52,17 +52,17 @@ Ingingo ya 81 Est qualifiée de faute grave pouvant impliquer la révocation, to
 
 14)pratiquer le braconnage 14)kuroba canke guhiga ibikoko bitarekuwe n’amategeko;
 
-15)détenir, consommer, vendre, transporter, culti­ ver ou faciliter le trafic des stupéfiants et des boissons prohibées;
+15)détenir, consommer, vendre, transporter, cultiver ou faciliter le trafic des stupéfiants et des boissons prohibées;
 
-15)gutunga ibiyayuramutwe n’ibinyobwa bibu­ jijwe, kubinywa, kubigurisha, kuvyungu­ ruza, kubirima canke kworohereza urudandazwa rwavyo;
+15)gutunga ibiyayuramutwe n’ibinyobwa bibujijwe, kubinywa, kubigurisha, kuvyunguruza, kubirima canke kworohereza urudandazwa rwavyo;
 
-16)soustraire au contrôle ou aux poursuites judi­ ciaires, par des manœuvres dilatoires, les per­ sonnes recherchées par la justice;
+16)soustraire au contrôle ou aux poursuites judiciaires, par des manœuvres dilatoires, les personnes recherchées par la justice;
 
-16)kwanka ko abantu baronderwa n’ubutun­ gane basuzumwa canke bakurikiranwa muri sentare akoresheje uburyo bw’ukudindiza ibikorwa;
+16)kwanka ko abantu baronderwa n’ubutungane basuzumwa canke bakurikiranwa muri sentare akoresheje uburyo bw’ukudindiza ibikorwa;
 
 17)retenir injustement le recours introduit par un subalterne destiné à l’autorité supérieure;
 
-17)kugumya, akoresheje akarenganyo, urwan­ diko rw’uwo atwara rusaba ko ingingo yafa­ tiwe isubirwamwo rugenewe uwumukurira mu kazi;
+17)kugumya, akoresheje akarenganyo, urwandiko rw’uwo atwara rusaba ko ingingo yafatiwe isubirwamwo rugenewe uwumukurira mu kazi;
 
 18)détourner les objets saisis;
 
@@ -84,7 +84,7 @@ Ingingo ya 81 Est qualifiée de faute grave pouvant impliquer la révocation, to
 
 22)kwakira canke gutanga igiturire;
 
-23)quitter le territoire national sans avoir l’autori­ sation de l’autorité habilitée;
+23)quitter le territoire national sans avoir l’autorisation de l’autorité habilitée;
 
 23)kurenga imbibe z’igihugu ata ruhusha ahawe n’umutegetsi abifitiye ububasha;
 
@@ -96,18 +96,18 @@ Ingingo ya 81 Est qualifiée de faute grave pouvant impliquer la révocation, to
 
 25)gukubagura uwo bubakanye;
 
-26)participer ou inciter au désordre, à la désobéis­ sance ou à la rébellion;
+26)participer ou inciter au désordre, à la désobéissance ou à la rébellion;
 
 26)kugira uruhara canke kwosha abantu guhungabanya umutekano, kugarariza canke kugumuka;
 
-27)perdre une arme ou un poste émetteur-récep­ teur;
+27)perdre une arme ou un poste émetteur-récepteur;
 
 27)gutakaza ikirwanisho canke iradiyo y’akazi;
 
-28)vendre ou dissiper des armes, munitions, équi­ pements individuels ou collectifs;
+28)vendre ou dissiper des armes, munitions, équipements individuels ou collectifs;
 
 28)kugurisha canke kunyuruza ibirwanisho, amasasu, ibikoresho bigenewe umuntu umwe canke benshi;
 
-29)refuser de se présenter devant le Conseil de dis­ cipline.
+29)refuser de se présenter devant le Conseil de discipline.
 
 29)kwanka kwitaba umugwi ujejwe ivyerekeye inyifato. Paragraphe 2 Agahimba ka 2 Des sanctions disciplinaires Ibihano bijanye n’inyifato mbi mu kazi

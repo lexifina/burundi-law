@@ -16,7 +16,7 @@ c) agashirukabute kajanye n’ukwitanga mu kazi;
 
 d) prime d’instructeur;
 
-d) agashirukabute gahabwa uwutanga inyi­ gisho;
+d) agashirukabute gahabwa uwutanga inyigisho;
 
 e) bonifications de stages et de formations.
 

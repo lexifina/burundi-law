@@ -8,7 +8,7 @@ a) kwubaha lbwirizwa Shingiro, amabwirizwa n’amategeko no gutuma vyubahirizwa;
 
 b) servir la nation burundaise avec fidélité et dévouement;
 
-b) gukorera igihugu c’Uburundi mu kutagihe­ mukira no mu kucitangira;
+b) gukorera igihugu c’Uburundi mu kutagihemukira no mu kucitangira;
 
 c) veiller en toutes circonstances aux intérêts de la République du Burundi;
 
@@ -18,29 +18,29 @@ d) veiller, dans les limites de la loi, au maintien de l’ordre;
 
 d) kwitwararika, yubahirije kubungabunga umutekano;
 
-e) accomplir personnellement et consciencieuse­ ment les tâches lui assignées;
+e) accomplir personnellement et consciencieusement les tâches lui assignées;
 
 e) gukora we nyene ubwiwe ibikorwa ashinzwe akabirangurana umutima runtu;
 
 f) exécuter les ordres de ses supérieurs sauf ceux qui seraient incompatibles avec l’honneur du service et collaborer dans la mesure où l’exige l’intérêt de service;
 
-f) gukurikiza amategeko ahabwa n’abamuku­ rira mu kazi kiretse ayotukisha akazi hamwe no gufashanya n’abandi igihe bike­ newe ku neza y’akazi;
+f) gukurikiza amategeko ahabwa n’abamukurira mu kazi kiretse ayotukisha akazi hamwe no gufashanya n’abandi igihe bikenewe ku neza y’akazi;
 
-g) faire preuve de dignité et de courtoisie tant envers ses supérieurs, ses égaux, ses subal­ ternes qu’envers le public;
+g) faire preuve de dignité et de courtoisie tant envers ses supérieurs, ses égaux, ses subalternes qu’envers le public;
 
-g) kugendera ubuntu n’urupfasoni, haba imbere y’abamusumvya ipete, abo baringa­ nya, abo arisumvya ndetse n’imbere y’abandi bantu;
+g) kugendera ubuntu n’urupfasoni, haba imbere y’abamusumvya ipete, abo baringanya, abo arisumvya ndetse n’imbere y’abandi bantu;
 
-h) éviter, tant dans le service que dans la vie pri­ vée, tout ce qui pourrait ébranler la confiance du public ou compromettre l’honneur et la dignité dans sa fonction;
+h) éviter, tant dans le service que dans la vie privée, tout ce qui pourrait ébranler la confiance du public ou compromettre l’honneur et la dignité dans sa fonction;
 
-h) kwirinda, haba mu kazi canke mu buzima bwiwe, ico cose cotuma atizerwa n’aba­ nyagihugu canke comutesha agateka, icuba­ hiro n’ubuntu mu mabanga ajejwe;
+h) kwirinda, haba mu kazi canke mu buzima bwiwe, ico cose cotuma atizerwa n’abanyagihugu canke comutesha agateka, icubahiro n’ubuntu mu mabanga ajejwe;
 
 i) connaître la loi, les directives et mesures concernant le respect de ses obligations, leur mise en application et les faire respecter;
 
-i) kumenya amategeko, ivyisungwa n’ingingo vyerekeye ukwubahiriza ivyo ategerejwe, ukubishira mu ngiro no gutuma vyubahiri­ zwa
+i) kumenya amategeko, ivyisungwa n’ingingo vyerekeye ukwubahiriza ivyo ategerejwe, ukubishira mu ngiro no gutuma vyubahirizwa
 
 j) initier, dans les limites de sa compétence, la répression des abus, des négligences ou des infractions aux lois et règlements qu’il serait amené à constater dans et en dehors de ses fonctions;
 
-j) gufata iyambere, yisunze ivyo afitiye ubu­ basha, abo bose barenga akarimbi, abafata ibintu minenerwe canke abarenga amabwiri­ zwa n’amategeko Igisongerezi c’Intwazan­ gabo mu Gipolisi abonye yaba ari ku kazi canke atari ku kazi;
+j) gufata iyambere, yisunze ivyo afitiye ububasha, abo bose barenga akarimbi, abafata ibintu minenerwe canke abarenga amabwirizwa n’amategeko Igisongerezi c’Intwazangabo mu Gipolisi abonye yaba ari ku kazi canke atari ku kazi;
 
 k) Faire preuve de discrétion et d’abnégation au service
 
@@ -48,9 +48,9 @@ k) kudatwarira hejuru n’ugukora atiziganya mu kazi;
 
 l) rechercher, exploiter et transmettre tous les renseignements d’ordre sécuritaire, politique, social et économique nécessaires à l’information et à l’action du gouvernement
 
-l) kurondera, kwihweza no kurungikira ababi­ jejwe inkuru zose zerekeye poritike, imibano n’ubutunzi Reta ikeneye kumenya no gukoresha;
+l) kurondera, kwihweza no kurungikira ababijejwe inkuru zose zerekeye poritike, imibano n’ubutunzi Reta ikeneye kumenya no gukoresha;
 
-m)veiller dans les limites de ses compétences à la sauvegarde de la sûreté tant intérieure qu’exté­ rieure de l’Etat;
+m)veiller dans les limites de ses compétences à la sauvegarde de la sûreté tant intérieure qu’extérieure de l’Etat;
 
 m)kubungabunga umutekano mu gihugu n’inyuma y’imbibe z’igihugu, mu vyo afitiye ububasha;
 
@@ -66,6 +66,6 @@ p) porter secours à toute personne en danger;
 
 p) gutabara umuntu wese igihe umutekano wiwe ubangamiwe;
 
-q) veiller à ce que son conjoint n’exerce une acti­ vité de nature à nuire à l’accomplissement de ses fonctions.
+q) veiller à ce que son conjoint n’exerce une activité de nature à nuire à l’accomplissement de ses fonctions.
 
 q) kwitwararika ko uwo bubakanye adakora igikorwa gishobora kubangamira irangurwa ry’imirimo yiwe.

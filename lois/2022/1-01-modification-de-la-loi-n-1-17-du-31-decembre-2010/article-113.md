@@ -1,6 +1,6 @@
 # Article 113
 
-Ingingo ya 113 La fin de carrière d’un sous-officier de police s’applique en cas de: Igisongerezi c’Intwazangabo mu Gipolisi c’Ubu­ rundi arangiza akazi burundu mu bihe bikuri­ kira:
+Ingingo ya 113 La fin de carrière d’un sous-officier de police s’applique en cas de: Igisongerezi c’Intwazangabo mu Gipolisi c’Uburundi arangiza akazi burundu mu bihe bikurikira:
 
 a) démission;
 

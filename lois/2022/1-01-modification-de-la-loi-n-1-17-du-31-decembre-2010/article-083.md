@@ -1,6 +1,6 @@
 # Article 83
 
-Ingingo ya 83 Dans l’ordre croissant, les sanctions disciplinaires applicables au sous-officier de police sont Uhereye ku gihano gitoyi, ibihano bihabwa Igi­ songerezi c’Intwazangabo mu kazi bikurikirana gutya
+Ingingo ya 83 Dans l’ordre croissant, les sanctions disciplinaires applicables au sous-officier de police sont Uhereye ku gihano gitoyi, ibihano bihabwa Igisongerezi c’Intwazangabo mu kazi bikurikirana gutya
 
 a) l’avertissement;
 
@@ -20,7 +20,7 @@ d) ukumwaka mu kiringo kitarenza ukwezi kumwe uturusho tujanye n’impanuka z’
 
 e) la retenue de la moitié du traitement pendant cinq à vingt jours au maximum
 
-e) ukumukata ica kabiri c’umushahara uhuye n’imisi iva kuri itanu gushika ku misi ita­ renga mirongo ibiri;
+e) ukumukata ica kabiri c’umushahara uhuye n’imisi iva kuri itanu gushika ku misi itarenga mirongo ibiri;
 
 f) la mise en disponibilité disciplinaire pour six mois au maximum;
 

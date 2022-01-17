@@ -1,6 +1,6 @@
 # Article 40
 
-Ingingo ya 40 L’appréciation synthétique du mérite du sous­ officier de police est déterminée par les mentions ci-après Incamake y’amanota ahabwa Igisongerezi c’Intwazangabo mu Gipolisi itomorwa muri ubu buryo bukurikira:
+Ingingo ya 40 L’appréciation synthétique du mérite du sousofficier de police est déterminée par les mentions ci-après Incamake y’amanota ahabwa Igisongerezi c’Intwazangabo mu Gipolisi itomorwa muri ubu buryo bukurikira:
 
 1) Elite: 90 à 100%;
 

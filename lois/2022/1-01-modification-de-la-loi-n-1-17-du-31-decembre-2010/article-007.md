@@ -1,6 +1,6 @@
 # Article 7
 
-Ingingo ya 7 Pour être recruté candidat sous-officier de police, il faut: Kugira umuntu yemererwe kwitegurira kuba Igisongerezi c’Intwazangabo mu Gipolisi, atege­ rezwa kuba akwije ibi bikurikira:
+Ingingo ya 7 Pour être recruté candidat sous-officier de police, il faut: Kugira umuntu yemererwe kwitegurira kuba Igisongerezi c’Intwazangabo mu Gipolisi, ategerezwa kuba akwije ibi bikurikira:
 
 a) être de nationalité burundaise;
 
@@ -10,19 +10,19 @@ b) ne pas avoir une double nationalité;
 
 b) kuba adafise ubwenegihugu bubiri;
 
-c) être célibataire et ne pas avoir d’enfant, le res­ ter durant toute la durée de la formation et du stage et les trois premières années de service;
+c) être célibataire et ne pas avoir d’enfant, le rester durant toute la durée de la formation et du stage et les trois premières années de service;
 
-c) kuba atarubaka kandi ata mwana afise, kuguma atubatse mu kiringo cose azoba aki­ riko arakurikirana inyigisho no mu kiringo cose c’ukwimenyereza akazi mu myaka itatu ya mbere y’akazi;
+c) kuba atarubaka kandi ata mwana afise, kuguma atubatse mu kiringo cose azoba akiriko arakurikirana inyigisho no mu kiringo cose c’ukwimenyereza akazi mu myaka itatu ya mbere y’akazi;
 
-d) être reconnu, par un médecin agréé par le gou­ vernement, apte à exercer la carrière de poli­ cier;
+d) être reconnu, par un médecin agréé par le gouvernement, apte à exercer la carrière de policier;
 
-d) kuba yarapimwe n’umuganga yemewe na Reta, akemeza ko ashoboye umwuga w’Igipo­ risi;
+d) kuba yarapimwe n’umuganga yemewe na Reta, akemeza ko ashoboye umwuga w’Igiporisi;
 
 e) Justifier de bonne conduite, vie et mœurs;
 
 e) kuba yigenza neza mu buzima kandi afise imico myiza;
 
-f) n’avoir pas été condamné à une peine de servi­ tude pénale;
+f) n’avoir pas été condamné à une peine de servitude pénale;
 
 f) kuba atigeze acirwa igihano c’ugupfungwa;
 
