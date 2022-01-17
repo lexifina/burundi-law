@@ -1,6 +1,6 @@
 # Article 71
 
-Ingingo ya 71 Tout officier de la Police Nationale doit être dans l’une des positions suivantes : Umuporisi w’Intwazangabo y’Igiporisi c’Ubu­ rundi wese ategerezwa kuba ari hamwe muri aha hakurikira:
+Ingingo ya 71 Tout officier de la Police Nationale doit être dans l’une des positions suivantes : Umuporisi w’Intwazangabo y’Igiporisi c’Uburundi wese ategerezwa kuba ari hamwe muri aha hakurikira:
 
 a) l’activité;
 
@@ -30,7 +30,7 @@ d) atari mu kazi ku mvo zikurikira:
 
 – ahagaritswe mu kazi mu kiringo kanaka kubera ukwigenza nabi;
 
-– la mise en disponibilité pour convenance per­ sonnelle;
+– la mise en disponibilité pour convenance personnelle;
 
 – ahagaritswe akazi avyisabiye;
 

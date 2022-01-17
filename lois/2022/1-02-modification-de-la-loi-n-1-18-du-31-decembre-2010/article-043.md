@@ -4,4 +4,4 @@ Ingingo ya 43 L’officier fait l’objet d’une notation annuelle ou occasionn
 
 La notation annuelle est établie à partir du 1er août de chaque année. Amanota yo ku mwaka ku mwaka atangwa kuva kw’igenekerezo rya mbere Myandagaro buri mwaka.
 
-La notation occasionnelle est établie lors des mutations, à la fin des stages ou sur demande des chefs hiérarchiques compétents. Amanota ya rimwe na rimwe atangwa igihe umu­ porisi w’ Intwazangabo arungitswe gukorera ahandi, arangije inyigisho z’ugukarisha ubwenge canke bisabwe n’abamurongoye babifitiye ubu­ basha.
+La notation occasionnelle est établie lors des mutations, à la fin des stages ou sur demande des chefs hiérarchiques compétents. Amanota ya rimwe na rimwe atangwa igihe umuporisi w’ Intwazangabo arungitswe gukorera ahandi, arangije inyigisho z’ugukarisha ubwenge canke bisabwe n’abamurongoye babifitiye ububasha.

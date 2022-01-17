@@ -1,6 +1,6 @@
 # Article 90
 
-Ingingo ya 90 Dans l’ordre croissant, les sanctions discipli­ naires applicables aux officiers sont: Uhereye ku gihano gitoyi, ibihano bihabwa abaporisi b’Intwazangabo mu kazi bikurikirana gutya:
+Ingingo ya 90 Dans l’ordre croissant, les sanctions disciplinaires applicables aux officiers sont: Uhereye ku gihano gitoyi, ibihano bihabwa abaporisi b’Intwazangabo mu kazi bikurikirana gutya:
 
 a) l’avertissement;
 
@@ -20,7 +20,7 @@ d) ukumwaka mu kiringo kitarenze ukwezi kumwe inshumbusho rijanye n’impanuka z
 
 e) la retenue de la moitié du traitement pendant cinq à vingt jours au maximum;
 
-e) ukumukata ica kabiri c’umushahara uhuye n’imisi iva kuri itanu gushika ku misi ita­ renga mirongo ibiri;
+e) ukumukata ica kabiri c’umushahara uhuye n’imisi iva kuri itanu gushika ku misi itarenga mirongo ibiri;
 
 f) la mise en disponibilité disciplinaire pour six mois au maximum;
 

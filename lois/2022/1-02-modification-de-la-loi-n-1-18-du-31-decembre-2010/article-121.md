@@ -22,7 +22,7 @@ d) yirukanywe mu kazi;
 
 e) réforme pour inaptitude physique ou mentale définitive au service pour cause de maladie ou d’infirmité;
 
-e) akuwe mu kazi kubera atagishoboye akazi burundu bivuye ku bushobozi buke bw’umu­ biri canke bwo mu mutwe biturutse ku ndwara canke ku bumuga;
+e) akuwe mu kazi kubera atagishoboye akazi burundu bivuye ku bushobozi buke bw’umubiri canke bwo mu mutwe biturutse ku ndwara canke ku bumuga;
 
 f) décès.
 

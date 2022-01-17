@@ -1,6 +1,6 @@
 # Article 87
 
-Ingingo ya 87. Constituent les fautes disciplinaires notamment: Amakosa ajanye n’inyifato mu kazi ni nk’aya aku­ rikira:
+Ingingo ya 87. Constituent les fautes disciplinaires notamment: Amakosa ajanye n’inyifato mu kazi ni nk’aya akurikira:
 
 1) le refus de l’ordre ou l’exécution tardive d’un ordre légalement reçu;
 
@@ -28,7 +28,7 @@ Ingingo ya 87. Constituent les fautes disciplinaires notamment: Amakosa ajanye n
 
 7) l’inobservance des règles relatives aux marques extérieures de respect dues à un supérieur et aux honneurs à rendre;
 
-7) ukudakurikiza amategeko agenga ibijanye n’ukugaragaza icubahiro gihabwa uwukuruta mu kazi hamwe n’imigirwa y’ukwerekana icu­ bahiro;
+7) ukudakurikiza amategeko agenga ibijanye n’ukugaragaza icubahiro gihabwa uwukuruta mu kazi hamwe n’imigirwa y’ukwerekana icubahiro;
 
 8) les brutalités et expressions blessantes à l’égard d’un inférieur;
 
@@ -70,19 +70,19 @@ Ingingo ya 87. Constituent les fautes disciplinaires notamment: Amakosa ajanye n
 
 17)ugusabira ibintu mu kivunga;
 
-18)le recours collectif ou le recours vexatoire, dif­ famatoire ou téméraire;
+18)le recours collectif ou le recours vexatoire, diffamatoire ou téméraire;
 
-18)ugusaba mukivunga ko ingingo yafashwe isu­ birwamwo canke ugasaba ko ingingo yafashwe isubirwamwo hakoreshejwe ama­ jambo y’ugutukana atyoza canke mu kwu­ bahuka birengeje.
+18)ugusaba mukivunga ko ingingo yafashwe isubirwamwo canke ugasaba ko ingingo yafashwe isubirwamwo hakoreshejwe amajambo y’ugutukana atyoza canke mu kwubahuka birengeje.
 
 19)la soumission à une revendication ou une plainte sans respecter la hiérarchie;
 
-19)ukwemera ivyo usabwe canke ibirego ushiki­ rijwe utagishije inama abagutwara;
+19)ukwemera ivyo usabwe canke ibirego ushikirijwe utagishije inama abagutwara;
 
 20)le refus de punition;
 
 20)ukwanka igihano;
 
-21)la déclaration dans la presse sans autorisa­ tion de la hiérarchie;
+21)la déclaration dans la presse sans autorisation de la hiérarchie;
 
 21)ugushikiriza inkuru mu bimenyeshamakuru uwugutwara ataguhaye uruhusha;
 
@@ -96,10 +96,10 @@ Ingingo ya 87. Constituent les fautes disciplinaires notamment: Amakosa ajanye n
 
 24)la fréquentation des débits de boissons et des lieux de dancing en uniforme ou en arme;
 
-24)ukuja mu bunywero no mu butambiro Intwa­ zangabo yambaye umwambaro w’akazi canke afise ikirwanisho;
+24)ukuja mu bunywero no mu butambiro Intwazangabo yambaye umwambaro w’akazi canke afise ikirwanisho;
 
 25)le port d’une tenue non réglementaire;
 
-25)ukwambara umwambaro utemewe n’amate­ geko;
+25)ukwambara umwambaro utemewe n’amategeko;
 
 26)l’abandon de son poste d’attache 26)uguta ikirindiro.

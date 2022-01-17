@@ -1,6 +1,6 @@
 # Article 45
 
-Ingingo ya 45 La procédure de notation, la contexture du bulle­ tin de notation et les critères sont déterminés par une ordonnance du Ministre ayant la Police Nationale dans ses attributions. Ingene amanota atangwa, uko urwandiko rushirwako amanota ruba rumeze n’ibifatirwako mu gutanga amanota bitomorwa n’itegeko ry’Umushikiranganji ajejwe Igiporisi c’Uburundi. L’appréciation synthétique du mérite de l’officier de la Police Nationale est déterminée par les mentions ci-après: Mu ncamake Umuporisi w’Intwazangabo, mu kumushimira ku vyo yaranguye n’ingene yigen­ jeje bitomorwa muri ubu buryo bukurikira:
+Ingingo ya 45 La procédure de notation, la contexture du bulletin de notation et les critères sont déterminés par une ordonnance du Ministre ayant la Police Nationale dans ses attributions. Ingene amanota atangwa, uko urwandiko rushirwako amanota ruba rumeze n’ibifatirwako mu gutanga amanota bitomorwa n’itegeko ry’Umushikiranganji ajejwe Igiporisi c’Uburundi. L’appréciation synthétique du mérite de l’officier de la Police Nationale est déterminée par les mentions ci-après: Mu ncamake Umuporisi w’Intwazangabo, mu kumushimira ku vyo yaranguye n’ingene yigenjeje bitomorwa muri ubu buryo bukurikira:
 
 1) Elite: 90 à 100%;
 

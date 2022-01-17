@@ -6,4 +6,4 @@ La carrière d’un officier commence le jour de son recrutement. Umwuga w’Igi
 
 La qualité d’officier de Police s’acquiert après la prestation de serment devant le Président de la République. Umuporisi yitwa Intwazangabo ari uko amaze kurahira imbere y’Umukuru w’Igihugu.
 
-Le candidat officier en stage reste soumis aux textes réglementaires régissant l’Institut Supé­ rieur de Police. Uwitegurira kuba Intwazangabo akiriko arime­ nyereza akazi, agengwa n’amategeko y’lshure kaminuza ry’Igiporisi.
+Le candidat officier en stage reste soumis aux textes réglementaires régissant l’Institut Supérieur de Police. Uwitegurira kuba Intwazangabo akiriko arimenyereza akazi, agengwa n’amategeko y’lshure kaminuza ry’Igiporisi.
