@@ -1,0 +1,3 @@
+# Article 44
+
+Ingingo ya 44 Les grades de nomination des sous-officiers de police se succèdent dans l’ordre croissant suivant: Amapete ahabwa Ibisongerezi vy’Intwazangabo mu Gipolisi asumbasumbana uku gukurikira uhereye kuri ritoyi: 1. Sergent de Police: Sgt Pol; 1. Sereja mu Giporisi: Sgt Pol 2. 1e Sergent de Police: 1Sgt Pol; 2. Sereja wa mbere mu Giporisi: 1sgt Pol 3. 1e Sergent-Major de Police: 1 SM Pol; 3. Sereja-Majoro mu Giporisi: 1SM Pol 4. Adjudant de Police: Adjt Pol; 4. Ajida mu Giporisi: Adjt Pol 5. Adjudant-chef de Police: A-C Pol; 5. Ajida-shefu mu Giporisi: A-C Pol 6. Adjudant-Major de Police: A-M Pol. 6. Ajida-Majoro mu Giporisi: A-M Pol Section 2 Agace ka 2 De l’avancement et du commissionnement Ukuduzwa ipete n’ugusimbishwa ipete

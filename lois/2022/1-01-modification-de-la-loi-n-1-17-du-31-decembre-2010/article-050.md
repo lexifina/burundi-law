@@ -1,0 +1,3 @@
+# Article 50
+
+Ingingo ya 50 Le sous-officier de police qui ne réussit pas un stage d’application ou de perfectionnement ou toute autre formation initiée par le ministère ayant la Police Nationale dans ses missions, soit dans le pays, soit dans un pays étranger est retardé à l’avancement par rapport à sa promotion. Igisongerezi c’Intwazangabo mu Gipolisi ata­ ronse amanota ashimishije mu myimenyerezo y’ugushira mu ngiro ivyo yize canke inyigisho z’ugukarisha ubwenge canke izindi nyigisho izo ari zo zose zitegekanywa n’Ubushikiranganji bujejwe Igiporisi c’Uburundi zibera mu gihugu canke mu mahanga ararindirizwa kuduzwa ipete hafatiwe ku gihe yodugiyeko ipete.

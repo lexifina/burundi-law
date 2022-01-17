@@ -1,0 +1,5 @@
+# Article 23
+
+Ingingo ya 23 Le sous-officier de police a droit à une indemnité de logement déterminée par décret. Igisongerezi c’Intwazangabo mu Gipolisi arafise uburenganzira bwo kuronka akarusho kajanye n’uburaro gashingwa n’Itegeko ry’Umukuru w’Igihugu.
+
+La veuve ou le veuf, les enfants mineurs ou assimi­ lés du sous-officier de police décédé en activité, continuent de bénéficier de cette indemnité de loge­ ment jusqu’à l’âge présumé de la retraite du sous-officier de police. Umupfakazi canke umupfakare, abana bata­ rakwiza imyaka y’ukwihagararira imbere y’amategeko canke abandi bafatwa nkabo basi­ gwa b’Igisongerezi c’Intwazangabo mu Gipolisi yapfuye akiri mu kazi, baguma baronka aka­ rusho kajanye n’uburaro gushika ku myaka ico Gisongerezi cokukurukiyeko. Cet avantage ne se cumule pas avec les droits consacrés par l’article 24, alinéa 2 de la présente loi Ako karusho hamwe n’ivyo Igisongerezi c’Intwa­ zangabo mu Gipolisi afitiye uburenganzira bivu­ gwa mu ngingo ya 24, agahimba ka 2 ntibishobora gutangirwa rimwe.

@@ -1,0 +1,5 @@
+# Article 54
+
+Ingingo ya 54 L’ancienneté relative des sous-officiers de police de même grade et nommés à la même date est déter­ minée par le classement établi à la fin de la forma­ tion de base. Ibisongerezi vy’Intwazangabo mu Gipolisi ban­ ganya ipete kandi barironkeye kw’igenekerezo rimwe basumbanya uburambe mu kazi hafa­ tiwe ku manota baronse barangije inyigisho z’intango.
+
+Le classement général des sous-officiers de police par ancienneté est consigné dans l’annuaire des sous-officiers de police tenu à jour par l’inspecteur Général de la Police Nationale du Burundi Urutonde rw’Ibisongerezi vy’ Intwazangabo mu Gipolisi hakurikijwe uko basumbanya ubu­ rambe mu kazi rushirwa mu gitabu co ku mwaka ku mwaka candikwamwo Ibisongerezi vy’Intwazangabo mu Gipolisi kija kirashirwa ku gihe n’Umugenduzi mukuru w’Igiporisi c’Ubu­ rundi. Chapitre VI Igice ca VI Du traitement, des primes, des indemnités et des avantages sociaux Ivyerekeye imishahara, dushirukabute, uturusho utujanye n’ivy’akazi hamwe n’utujanye n’ivy’imibano

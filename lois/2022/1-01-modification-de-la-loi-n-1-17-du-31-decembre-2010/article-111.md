@@ -1,0 +1,3 @@
+# Article 111
+
+Ingingo ya 111 Les titres honorifiques sont des distinctions desti­ nées à récompenser un sous-officier de police qui a rendu des services exceptionnels à la nation ou à la communauté Internationale, dans l’exercice d’une fonction publique, de défense ou de sécurité ou dans l’exercice d’une activité privée. Ibimenyetso biranga abatewe iteka n’Igihugu ni ibimenyetso bigenewe gushimira Igisongerezi c’Intwazangabo mu Gipolisi yakoreye Igihugu canke amakungu ibikorwa bidasanzwe, ariko ararangura umurimo wa Reta, umurimo w’ukwivuna abansi canke ariko arabungabunga umutekano canke ariko arakora ibindi bikorwa vyiwe.

@@ -1,0 +1,3 @@
+# Article 87
+
+Ingingo ya 87 La retenue de traitement est notifiée au sous­ officier de police et ne peut excéder la moitié du traitement mensuel de base. Ingingo y’ugukata umushahara iramenyeshwa Igisongerezi c’Intwazangabo mu Gipolisi kandi amafaranga akatwa ntashobora kurenga ica kabiri c’umushahara mfatirwako ahembwa ku kwezi. L’application de cette sanction ne peut avoir, pour le sous-officier de police en cause, aucune autre conséquence pécuniaire que celle fixée à l’alinéa précédent. Uguhabwa ico gihano, nta yindi nkurikizi ijanye n’amafaranga bishobora kugira ku Gisongerezi c’Intwazangabo mu Giporisi yerekeye, atari aya­ vugwa mu gahimba ka mbere k’iyi ngingo.

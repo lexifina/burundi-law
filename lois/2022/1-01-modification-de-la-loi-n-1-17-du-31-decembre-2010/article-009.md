@@ -1,0 +1,3 @@
+# Article 9
+
+Ingingo ya 9 Le candidat sous-officier de police reçoit une forma­ tion initiale appropriée aux missions de la Police Nationale à l’Ecole des Sous-Officiers de Police ou dans d’autres institutions se trouvant au pays ou à l’étranger, reconnues par le ministère ayant la Police Nationale dans ses missions. Uwitegurira kuba Igisongerezi c’Intwazangabo mu Gipolisi araronswa inyigisho z’intango zija­ nye n’imirimo y’Igiporisi zitangirwa mw’lshure ry’Igisongerezi c’Intwazangabo mu Gipolisi canke mu yandi mashure yo mu gihugu canke yo mu mahanga yemewe n’Ubushikiranganji bujejwe Igiporisi c’Uburundi.

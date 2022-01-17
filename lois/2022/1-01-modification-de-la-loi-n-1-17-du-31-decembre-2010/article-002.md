@@ -1,0 +1,3 @@
+# Article 2
+
+Ingingo ya 2 La qualité de sous-officier de police exige en toutes circonstances la discipline, la disponibilité, la loyauté, la neutralité et l’esprit d’abnégation pou­ vant aller jusqu’au sacrifice suprême. Les devoirs qu’elle comporte et les sujétions qu’elle implique, méritent le respect des citoyens et la considération de la nation. Igisongerezi c’Intwazangabo mu Gipolisi aran­ gwa na ntaryo no kwama agendera ku mategeko y’umwuga, agavye, ayoboka abamutwara, atagira aho ahengamiye akongera akitangira igihugu gushika naho acigura.Hafatiwe ku bikorwa Igisongerezi c’Intwazangabo mu Gipo­ lisi asabwa, ingene yitanga, akwiye guhabwa icubahiro n’abenegihugu n’uguterwa iteka n’igihugu

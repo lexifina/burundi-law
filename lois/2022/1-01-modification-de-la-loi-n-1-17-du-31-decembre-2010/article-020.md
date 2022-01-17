@@ -1,0 +1,3 @@
+# Article 20
+
+Ingingo ya 20 Tout sous-officier de police a droit à un traitement mensuel comprenant le salaire de base, les primes, les indemnités et les bonifications. Igisongerezi c’Intwazangabo mu Gipolisi wese arafise uburenganzira bwo kuronka umus hahara ku kwezi ku kwezi ugizwe n’umusha­ hara mfatirwako, udushirukabute, uturusho tujanye n’ivy’akazi n’udushirukabute tujanye n’ukwungura ubumenyi Il a en outre droit à l’alimentation à la cuisine col­ lective, à l’habillement et à l’équipement de service conformément aux textes réglementaires en vigueur Igisongerezi c’Intwazangabo mu Gipolisi arafise kandi uburenganzira bwo gufungurirwa hamwe n’abandi, kuronswa imyambaro n’ibikoresho vy’akazi hisunzwe amategeko asanzwe akuriki­ zwa.

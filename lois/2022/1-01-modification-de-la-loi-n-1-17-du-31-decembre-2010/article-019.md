@@ -1,0 +1,3 @@
+# Article 19
+
+Ingingo ya 19 En cas de stage concluant, le candidat sous-officier de police est nommé à titre définitif par une ordon­ nance du Ministre ayant la Police Nationale dans ses attributions. Mu gihe uwitegurira kuba Igisongerezi c’Intwa­ zangabo mu Gipolisi aronse amanota ashimishije mu nyigisho z’ukwimenyereza akazi, aca agenwa n’ltegeko ry’Umushikiran­ ganji ajejwe Igiporisi c’Uburundi ngo abe Igison­ gerezi c’Intwazangabo mu Gipolisi. Chapitre III Igice ca III Des droits, des devoirs et des incompatibilités Ivyo igisongerezi c’intwazangabo mu gipolisi afitiye uburenganzira, ivyo ategerejwe n’ivyo atabangikanya n’amabang a ajejwe Section 1 Agace ka 1 Des droits Ivyo igisongerezi c’intwazangabo mu Gipolisi afitiye uburenganzira

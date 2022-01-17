@@ -1,0 +1,3 @@
+# Article 109
+
+Ingingo ya 109 La lettre de félicitation est un écrit du supérieur hiérarchique direct destiné à récompenser un acte important et digne de relief accompli par un sous-officier de police au cours d’une mission ou d’un ser­ vice donné.Une copie est versée dans son dossier individuel.Il en est tenu compte lors de sa notation. Ikete ry’ugukeza Igisongerezi c’Intwazangabo mu Gipolisini urwandiko rw’uwumutwara ku rugero rwa mbere rwo gushima igikorwa giham­ baye kandi c’iteka yakoze mu murimo yarun­ gitswemwo canke mu kazi yatumwe.Ikopi yaryo ishirwa mw’idosiye y’ico Gisongerezi. Iryo kete rirafatinwako mu gihe C’ugutanga amanota mu kazi.

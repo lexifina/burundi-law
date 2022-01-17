@@ -1,0 +1,3 @@
+# Article 51
+
+Ingingo ya 51 Le Ministre ayant la Police Nationale dans ses attributions peut, sur proposition des chefs hiérar­ chiques compétents, commissionner, avant la période normale d’avancement, au grade supé­ rieur, un sous-officier de police pour mérite excep­ tionnel ou pour exercer l’emploi dévolu à ce grade lorsque les nécessités de l’encadrement l’exigent. Umushikiranganji ajejwe Igiporisi c’Uburundi arashobora, bishikirijwe n’abatwara Igisonge­ rezi c’Intwazangabo mu Gipolisi mu kazi babifi­ tiye ububasha, kumusimbisha ipete, ikiringo yodugirijweko kitaragera kubera ivyo yaran­ guye bidasanzwe canke kugira arangure imi­ rimo ishingwa abafise iryo pete mu gihe bikenewe ko ari we ayikurikirana.

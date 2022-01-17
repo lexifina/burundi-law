@@ -1,0 +1,3 @@
+# Article 105
+
+Ingingo ya 105 Le Conseil de discipline est mis en place dans les cas suivants : Umugwi ujejwe ivyerekeye inyifato ugenwa mu bihe bikurikira : 1. faute disciplinaire grave pouvant entraîner la mise en disponibilité disciplinaire, la rétrogra­ dation ou la révocation; 1. Igisongerezi c’Intwazangabo mu Gipolisi yakoze amakosa ahambaye ajanye n’inyifato mu kazi ashobora gutuma ahagarikwa mu kazi kubera ukwigenza nabi, akororwa ama­ pete canke yirukanwa; 2.détention préventive; 2. Igisongerezi c’Intwazangabo mu Gipolisi apfunzwe ivy’agateganyo; 3. cotation deux fois « insuffisant, ou trois fois « assez bon ». 3. Igisongerezi c’Intwazangabo mu Gipolisi yaronse amanota « mabi cane » kabiri canke yaronse incuro zitatu amanota « adashemeye ».

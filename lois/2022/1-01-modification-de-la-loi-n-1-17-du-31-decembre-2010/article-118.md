@@ -1,0 +1,3 @@
+# Article 118
+
+Ingingo ya 118 L’âge limite du sous-officier de police en service actif est fixé à 50 ans révolus. Imyaka Igisongerezi c’Intwazangabo mu Gipo­ lisi atarenza ari mu kazi ni 50 yuzuye. Une prolongation de carrière de deux ans renouve­ lables une fois peut être accordée sur demande du sous-officier de police. Igisongerezi c’Intwazangabo mu Gipolisi arashobora kwongerwa imyaka ibiri y’akazi avyisabiye ishobora kwisubiriza rimwe gusa avyisabiye La mise à la retraite est publiée par le Ministre ayant la Police Nationale dans ses attributions. Umushikiranganji ajejwe Igiporisi c’Uburundi ni we atangaza ko Igisongerezi c’Intwazangabo mu Gipolisi yakukurutse.
