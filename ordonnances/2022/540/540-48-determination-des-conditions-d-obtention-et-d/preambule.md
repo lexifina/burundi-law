@@ -18,6 +18,6 @@ Vu la loi n°1/20 du 25 juin 2021 portant fixation du budget général de la Ré
 
 Vu la loi N°1/22 du 05 novembre 2021 portant révision de la loi n°1/11 du 14 juillet 2009 portant création, organisation et fonctionnement de l’Office Burundais des Recettes;
 
-Vu le décret n°100/069 du 24 septembre 2020 por­ tant Mission, Organisation et Fonctionnement du Ministère des Finances, du Budget et de la Plani­ fication Economique.
+Vu le décret n°100/069 du 24 septembre 2020 portant Mission, Organisation et Fonctionnement du Ministère des Finances, du Budget et de la Planification Economique.
 
 Ordonne

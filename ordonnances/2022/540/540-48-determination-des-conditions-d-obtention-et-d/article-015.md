@@ -1,8 +1,8 @@
 # Article 15
 
-Des obligations de l’utilisateur de la MFE Les utilisateurs des MFE sont soumis aux obliga­ tions suivantes:
+Des obligations de l’utilisateur de la MFE Les utilisateurs des MFE sont soumis aux obligations suivantes:
 
-1° Acheter la MFE auprès d’un fournisseur certi­ fié;
+1° Acheter la MFE auprès d’un fournisseur certifié;
 
 2° Installer la MFE au lieu de vente;
 
@@ -26,10 +26,12 @@ Des obligations de l’utilisateur de la MFE Les utilisateurs des MFE sont soumi
 
 12°Informer immédiatement l’Autorité fiscale du mauvais fonctionnement de la MFE;
 
-13°Ne pas céder la MFE sans l’autorisation préa­ lable de l’Autorité fiscale
+13°Ne pas céder la MFE sans l’autorisation préalable de l’Autorité fiscale
 
-14°Fournir des informations précises sur chaque point de vente où la MFE doit être opération­ nelle sur le formulaire de demande pour son activation;
+14°Fournir des informations précises sur chaque point de vente où la MFE doit être opérationnelle sur le formulaire de demande pour son activation;
 
-15°Informer préalablement l’Autorité fiscale avant que la machine ne soit remplacée ou déplacée hors du point de vente pour une rai­ son quelconque;
+15°Informer préalablement l’Autorité fiscale avant que la machine ne soit remplacée ou déplacée hors du point de vente pour une raison quelconque;
 
-16°Informer à l’Autorité fiscale de la cessation d’activités en vue de la désactivation de la MFE; Chapitre IV Des sanctions
+16°Informer à l’Autorité fiscale de la cessation d’activités en vue de la désactivation de la MFE;
+
+Chapitre IV Des sanctions
