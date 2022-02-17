@@ -1,0 +1,3 @@
+# Article 9
+
+Pour être promu au grade du Chargé de l’Enseignement, le Maître Assistant doit remplir les conditions suivantes: -Avoir à son actif au moins deux articles publiés dans des revues à comité de lecture (RCL) dont un au moins dans une revue indexée (RI); -Etre l’auteur principal d’au moins un article ; -Avoir été Maître Assistant pendant au moins quatre ans -Avoir quatre notations avec mention «Très Bon ». Un enseignant-chercheur en formation ne peut prétendre à l’avancement de grade Pour les médecins, le titulaire d’une spécialité terminale d’au moins une année peut accéder à ce grade s’il justifie d’avoir été enseignant à temps plein d’une année et publié deux articles dont un comme auteur principal dans une revue indexée.
