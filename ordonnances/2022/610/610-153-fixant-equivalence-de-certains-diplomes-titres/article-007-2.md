@@ -20,4 +20,6 @@ h) justifier de bonne conduite, vie, mœurs et de civisme;
 
 i) n’avoir pas été condamné à une peine de servitude pénale ;
 
-j) n’avoir pas été révoqué d’un emploi public. Chapitre Ill. De l’organisation du recrutement
+j) n’avoir pas été révoqué d’un emploi public.
+
+Chapitre Ill. De l’organisation du recrutement

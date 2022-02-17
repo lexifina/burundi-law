@@ -24,4 +24,6 @@ La procédure de recrutement des officiers, des sous-officiers et des agents de 
 
 11° vérification physique des candidats retenus et leurs dossiers.
 
-Les détails de chacune des étapes ci-dessus sont déterminés par une note de recrutement. Chapitre II. Des conditions de recrutement
+Les détails de chacune des étapes ci-dessus sont déterminés par une note de recrutement.
+
+Chapitre II. Des conditions de recrutement
