@@ -1,0 +1,3 @@
+# Article 28
+
+La formation professionnelle constitue le palier V et comprend deux catégories à savoir: • formation professionnelle de deux ans pour les lauréats de l’enseignement fondamental ou les ouvriers qualifiés après réussite au concours, aboutissant au profil d’ouvrier spécialisé et sanctionnée par un certificat spécialisé; • stage d’immersion professionnelle des ouvriers spécialisés soit en entreprise, soit dans un centre d’incubation ou dans un centre de formation et de perfectionnement professionnel de deux ans aboutissant au profil d’ouvrier professionnel et débouchant sur un certificat professionnel.
