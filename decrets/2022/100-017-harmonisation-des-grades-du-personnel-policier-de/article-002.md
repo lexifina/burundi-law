@@ -1,0 +1,3 @@
+# Article 2
+
+Les grades des Sous-Officiers de la Police Nationale du Burundi sont harmonisés comme suit: Série Ancienne nomenclature Nouvelle nomenclature 1. Brigadier de Police de 2ème Classe Sergent de Police: Sgt Pol 2. Brigadier de Police de 1ère Classe 1e Sergent de Police: 1Sgt Pol 3. Briqadier de Police Principal de 2ème Classe 1e Sergent-Major de Police: 1 SM Pol 4. Brigadier de Police Principal de 1ère Classe Adjudant de Police: Adjt Pol 5. Brigadier de Police Chef de 2ème Classe Adjudant-Chef de Police: A-C Pol 6. Brigadier de Police Chef de 1ère Classe Adjudant Major de Police: A-M Pol
