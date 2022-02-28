@@ -1,0 +1,3 @@
+# Article 3
+
+Le salaire de base du Personnel Enseignant Militaire Permanent au recrutement est fixé comme suit : GRADE ACADEMIQUE DIPLOMES SALAIRE DE BASE (Fbu) Assistant Licencié Licence 214.820 Assistant Ingénieur Ingénieur 221.266 Assistant Médecin Médecin généraliste 227.903 Maitre - Assistant Licencié Master, DEA, DESS 281.414 Maitre - Assistant Ingénieur Master, DEA, DESS 289.856 Maitre - Assistant Médecin Diplôme de Médecine Générale 298.552 Chargé d’Enseignement Ingénieur Master, DEA, DESS 428.988 Chargé d’Enseignement Médecin Diplôme de Médecine Générale 441.858 Professeur Chargé de Cours PhD / Doctorat 736.900 Professeur Associé PhD / Doctorat 1.236.384 Professeur Ordinaire Doctorat 2.074.428
