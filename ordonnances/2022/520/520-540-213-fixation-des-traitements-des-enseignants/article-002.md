@@ -4,4 +4,6 @@ Les enseignants militaires permanents et non permanents affectés à l’ISCAM s
 
 Les enseignants militaires permanents assument une charge horaire minimale conformément à la règlementation y relative en vigueur.
 
-Les enseignants civils sont recrutés sur base d’un contrat de prestation intellectuelle signé par les intéressés et le C/FDNB ou son délégué. Chapitre II Du traitement et des honoraires
+Les enseignants civils sont recrutés sur base d’un contrat de prestation intellectuelle signé par les intéressés et le C/FDNB ou son délégué.
+
+Chapitre II Du traitement et des honoraires
