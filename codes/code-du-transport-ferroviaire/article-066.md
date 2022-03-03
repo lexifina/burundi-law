@@ -1,0 +1,3 @@
+# Article 66
+
+Tant que l’extension du champ d’application des spécifications techniques d’interopérabilité à l’ensemble du réseau ferroviaire n’est pas effective, l’autorisation de mise en service de sous-systèmes sur la partie du réseau qui ne relève pas encore des spécifications techniques d’interopérabilité est accordée conformément aux règles de sécurité. L’autorisation de mise en service de véhicules dont l’utilisation est prévue occasionnellement sur la partie du réseau qui ne relève pas encore des spécifications techniques d’interopérabilité, pour cette partie du réseau, est accordée conformément aux règles de sécurité.

@@ -1,0 +1,3 @@
+# Article 84
+
+Le titulaire de l’immatriculation informe immédiatement l’Autorité de régulation ferroviaire, au moyen des formulaires mis à disposition par celle-ci sur son site internet, de toute modification éventuelle en rapport avec les données introduites dans le registre national des véhicules, la destruction d’un véhicule ou sa demande de suppression définitive de l’immatriculation d’un véhicule. A défaut d’une telle information ou si une donnée est incomplète ou manquante, l’Autorité de régulation ferroviaire prend des mesures de suspension de l’immatriculation jusqu’à sa régularisation.
