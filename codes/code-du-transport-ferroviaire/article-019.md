@@ -38,4 +38,6 @@ Dans l’exercice de ses fonctions, une entreprise ferroviaire a l’obligation 
 
 22° s’abstenir à l’obstruction de l’exercice des pouvoirs hiérarchiques;
 
-23° s’abstenir de mettre en service un véhicule avant qu’il ne soit autorisé à circuler sur le réseau ferroviaire national. Section 5 Du régime juridique de prestations de services de transport ferroviaire Paragraphe 1 La licence
+23° s’abstenir de mettre en service un véhicule avant qu’il ne soit autorisé à circuler sur le réseau ferroviaire national.
+
+Section 5 Du régime juridique de prestations de services de transport ferroviaire Paragraphe 1 La licence

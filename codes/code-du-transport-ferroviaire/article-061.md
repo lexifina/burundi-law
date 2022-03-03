@@ -16,4 +16,6 @@ Les aspects réglementaires concernent : 1 ° l’aptitude à la conduite des tr
 
 2° le contrôle des produits transportés ;
 
-3° les horaires. Section 2 Des spécifications techniques d’interopérabilité Paragraphe 1 Le contenu
+3° les horaires.
+
+Section 2 Des spécifications techniques d’interopérabilité Paragraphe 1 Le contenu

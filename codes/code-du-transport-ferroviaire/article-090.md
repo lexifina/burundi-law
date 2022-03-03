@@ -28,4 +28,6 @@ Sont constitutifs d’infractions à caractère pénal qui concernent les faits 
 
 15° la mise en service d’un véhicule avant qu’il ne soit autorisé;
 
-16° le fait pour un utilisateur de l’infrastructure ferroviaire, par l’accomplissement ou le non accomplissement d’un acte, de créer une situation qui par nature peut provoquer un accident grave. Section 2 Des sanctions
+16° le fait pour un utilisateur de l’infrastructure ferroviaire, par l’accomplissement ou le non accomplissement d’un acte, de créer une situation qui par nature peut provoquer un accident grave.
+
+Section 2 Des sanctions

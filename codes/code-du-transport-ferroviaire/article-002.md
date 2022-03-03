@@ -20,4 +20,6 @@ Les dispositions de la présente loi sont applicables :
 
 9° à la sécurité ferroviaire ;
 
-10° aux prérogatives du Ministre ayant les transports dans ses attributions. Section 3 Des définitions
+10° aux prérogatives du Ministre ayant les transports dans ses attributions.
+
+Section 3 Des définitions

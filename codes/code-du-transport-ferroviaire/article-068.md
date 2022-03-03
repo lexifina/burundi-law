@@ -4,4 +4,6 @@ En l’absence de cas spécifiques pertinents, l’Autorité de régulation ferr
 
 2° pour un projet de réaménagement d’un sous-système existant, lorsque le gabarit, l’écartement ou l’entraxe des voies ou la tension électrique prévue par ces spécifications techniques d’interopérabilité sont incompatibles avec ceux du sous-système existant ;
 
-3° pour un projet concernant le renouvellement, l’extension ou le réaménagement d’un sous-système existant, lorsque l’application de ces spécifications techniques d’interopérabilité compromet la viabilité économique du projet et la cohérence du système ferroviaire. Chapitre VII Du matériel roulant Section 1 De l’autorisation de mise en service
+3° pour un projet concernant le renouvellement, l’extension ou le réaménagement d’un sous-système existant, lorsque l’application de ces spécifications techniques d’interopérabilité compromet la viabilité économique du projet et la cohérence du système ferroviaire.
+
+Chapitre VII Du matériel roulant Section 1 De l’autorisation de mise en service

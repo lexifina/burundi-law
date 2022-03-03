@@ -44,4 +44,6 @@ Vu la Loi n°1/l9 du 17 juin 2021 portant Modification de la Loi n°1/24 du 10 s
 
 Le Conseil des Ministres ayant délibéré ; L’Assemblée Nationale et le Sénat ayant adopté ;
 
-Promulgue : Chapitre I De l’objet, du champ d’application et des définitions Section 1 De l’objet
+Promulgue :
+
+Chapitre I De l’objet, du champ d’application et des définitions Section 1 De l’objet
