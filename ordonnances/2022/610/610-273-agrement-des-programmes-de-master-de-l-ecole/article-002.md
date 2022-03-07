@@ -1,0 +1,3 @@
+# Article 2
+
+Les programmes de Master suivants de l’Ecole Normale Supérieur (ENS) sont agréés: - Master Professionnel en Génie Mécanique, option : Fabrication Mécanique ; - Master Professionnel en Génie Electrique, option : Energie ; - Master Professionnel en Génie Civil, option : Bâtiment et Infrastructure ; - Master en Langues Africaines et Enseignement, option : Kirundi ; - Master en Langues Africaines et Enseignement, option : Kiswahili ; - Master in Teaching English to Speakers of Other Languages (TESOL) ; - Master en Didactique du Français Langue Etrangère - Master en Sciences Physiques et Enseignement ; - Master en Sciences Biologiques et Enseignement ; - Master en Sciences Mathématiques et Enseignement ; - Master en Sciences Chimiques et Enseignement.
