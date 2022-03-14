@@ -1,6 +1,6 @@
 # Article 46
 
-Ingingo ya 46 Un membre du personnel d’appuie de la Police Nationale du Burundi doit être dans l’une des posi­ tions suivantes: Umukozi afasha mu Giporisi c’Uburundi atege­ rezwa kuba ari hamwe muri aha hakurikira:
+Ingingo ya 46 Un membre du personnel d’appuie de la Police Nationale du Burundi doit être dans l’une des positions suivantes: Umukozi afasha mu Giporisi c’Uburundi ategerezwa kuba ari hamwe muri aha hakurikira:
 
 1° l’activité;
 

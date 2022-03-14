@@ -1,6 +1,6 @@
 # Article 3
 
-Ingingo ya 3 Les candidats désireux d’obtenir un emploi dans la catégorie du personnel d’appui de la Police Natio­ nale du Burundi doivent remplir les conditions suivantes: Abipfuza kuronka akazi mu mugwi w’abakozi bafasha mu Giporisi c’Uburundi bategerezwa kuba bakwije ibi bikurikira:
+Ingingo ya 3 Les candidats désireux d’obtenir un emploi dans la catégorie du personnel d’appui de la Police Nationale du Burundi doivent remplir les conditions suivantes: Abipfuza kuronka akazi mu mugwi w’abakozi bafasha mu Giporisi c’Uburundi bategerezwa kuba bakwije ibi bikurikira:
 
 1° être de nationalité burundaise;
 
@@ -18,7 +18,7 @@ Ingingo ya 3 Les candidats désireux d’obtenir un emploi dans la catégorie du
 
 4° kuba atigeze yirukanwa mu kazi ka Reta;
 
-5° être reconnu, par un médecin agréé par le gou­ vernement, apte à exercer l’emploi postulé;
+5° être reconnu, par un médecin agréé par le gouvernement, apte à exercer l’emploi postulé;
 
 5° kuba vyemejwe n’umuganga wa Reta ko ashoboye gukora akazi basaba;
 

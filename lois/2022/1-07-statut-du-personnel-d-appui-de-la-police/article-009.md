@@ -1,6 +1,6 @@
 # Article 9
 
-Ingingo ya 9 Un membre du personnel d’appui ayant neuf mois minimum de prestation, après la période d’essai, fait objet d’une notation annuelle. Umukozi wese afasha amaze n’imiburiburi amezi icenda mu kazi, ikiringo c’ukwimenyereza akazi kirangiye, arahabwa amanota yo ku mwaka ku mwaka. L’appréciation de mérite est donnée suivant les mentions ci-après: Amanota yerekeye ingene umukozi yakoze atan­ gwa uku gukurikira:
+Ingingo ya 9 Un membre du personnel d’appui ayant neuf mois minimum de prestation, après la période d’essai, fait objet d’une notation annuelle. Umukozi wese afasha amaze n’imiburiburi amezi icenda mu kazi, ikiringo c’ukwimenyereza akazi kirangiye, arahabwa amanota yo ku mwaka ku mwaka. L’appréciation de mérite est donnée suivant les mentions ci-après: Amanota yerekeye ingene umukozi yakoze atangwa uku gukurikira:
 
 1° élite: de 90 à 100%;
 

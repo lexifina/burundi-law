@@ -1,6 +1,6 @@
 # Article 17
 
-Ingingo ya 17 En plus du salaire mensuel, le personnel d’appui de la police nationale du Burundi bénéficie le cas échéant, des primes et indemnités suivantes: Uretse umushahara wo ku kwezi ku kwezi, umu­ kozi afasha mu Giporisi c’Uburundi araronswa igihe bikenewe, udushirukabute n’uturusho dukurikira:
+Ingingo ya 17 En plus du salaire mensuel, le personnel d’appui de la police nationale du Burundi bénéficie le cas échéant, des primes et indemnités suivantes: Uretse umushahara wo ku kwezi ku kwezi, umukozi afasha mu Giporisi c’Uburundi araronswa igihe bikenewe, udushirukabute n’uturusho dukurikira:
 
 1° l’indemnité de logement;
 
@@ -32,4 +32,4 @@ Ingingo ya 17 En plus du salaire mensuel, le personnel d’appui de la police na
 
 8° l’indemnité de servitude.
 
-8° akarusho gatangwa kubera ukutidegemvya. Un décret détermine les conditions d’octroi de ces primes et indemnités. Itegeko ry’Umukuru w’igihugu ni ryo ritomora ibisabwa mu gutanga utwo dushirukabute n’utu­ rusho.
+8° akarusho gatangwa kubera ukutidegemvya. Un décret détermine les conditions d’octroi de ces primes et indemnités. Itegeko ry’Umukuru w’igihugu ni ryo ritomora ibisabwa mu gutanga utwo dushirukabute n’uturusho.

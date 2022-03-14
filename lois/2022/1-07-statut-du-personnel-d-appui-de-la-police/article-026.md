@@ -8,7 +8,7 @@ Ingingo ya 26 Un membre du personnel d’appui de la Police Nationale du Burundi
 
 2° respecter les règles générales du travail et de discipline qui découlent des textes en vigueur ou qui résultent de la tradition de travail du lieu d’affectation;
 
-2° kwubahiriza amategeko ngenderwako y’akazi n’ayagenga inyifato mu kazi akomoka ku mategeko asanzwe akurikizwa canke ava ku kugene akazi gasanzwe gakorwa aho ako­ rera;
+2° kwubahiriza amategeko ngenderwako y’akazi n’ayagenga inyifato mu kazi akomoka ku mategeko asanzwe akurikizwa canke ava ku kugene akazi gasanzwe gakorwa aho akorera;
 
 3° faire preuve de respect envers ses supérieurs, ses égaux et ses subalternes;
 

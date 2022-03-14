@@ -22,6 +22,8 @@ Ingingo ya 2 La présente loi détermine: Iri bwirizwa riratomora:
 
 – amategeko agenga ibijanye n’inyifato mu kazi;
 
-– la position statutaire et la sécurité sociale per­ sonnel d’appui de la Police Nationale Burundi.
+– la position statutaire et la sécurité sociale personnel d’appui de la Police Nationale Burundi.
 
-– uko bafatwa mu bijanye n’ukuba canke uku­ taba mu kazi; hamwe n’ibijanye n’ukubatege­ kaniriza kazoza. Chapitre II Ikigabane ca II Du recrutement et de la durée du contrat de travail Ivyerekeye ukwinjiza mu kazi abakozi bafasha mu giporisi c’uburundi n’ikiringo amasezerano y’akazi amara Section 1 Agace ka 1 Du recrutement Ukwinjiza mu kazi
+– uko bafatwa mu bijanye n’ukuba canke ukutaba mu kazi; hamwe n’ibijanye n’ukubategekaniriza kazoza.
+
+Chapitre II Ikigabane ca II Du recrutement et de la durée du contrat de travail Ivyerekeye ukwinjiza mu kazi abakozi bafasha mu giporisi c’uburundi n’ikiringo amasezerano y’akazi amara Section 1 Agace ka 1 Du recrutement Ukwinjiza mu kazi
