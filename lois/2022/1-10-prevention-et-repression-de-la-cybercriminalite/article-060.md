@@ -1,6 +1,6 @@
 # Article 60
 
-Ingingo ya 60 La présente loi entre en vigueur le jour de sa pro­ mulgation. Iri bwirizwa ritangura gukurikizwa kuva umusi ritangarijweko.
+Ingingo ya 60 La présente loi entre en vigueur le jour de sa promulgation. Iri bwirizwa ritangura gukurikizwa kuva umusi ritangarijweko.
 
 Fait à Gitega, le 14 mars 2022 Bigiriwe i Gitega ku wa 14 ntwarante 2022 Evariste NDAYISHIMIYE (sé) NDAYISHIMIYE Evariste (sé) Par le Président de la République Ku bw’Umukuru w’Igihugu
 

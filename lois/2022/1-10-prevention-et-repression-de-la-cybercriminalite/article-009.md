@@ -6,4 +6,6 @@ Les opérateurs des réseaux sont notamment tenus d’informer les usagers:
 
 2° des risques particuliers de troubles à l’ordre et à la sécurité publics;
 
-3° de l’existence de moyens techniques permet­ tant d’assurer la sécurité de leurs communica­ tions. Section 2 Des obligations des clients et des consommateurs
+3° de l’existence de moyens techniques permettant d’assurer la sécurité de leurs communications.
+
+Section 2 Des obligations des clients et des consommateurs

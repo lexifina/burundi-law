@@ -1,6 +1,6 @@
 # Article 7
 
-Tout fournisseur des services qui prend connais­ sance ou qui a été mis au courant par les organes habilités, des informations ou activités illégales a l’obligation de:
+Tout fournisseur des services qui prend connaissance ou qui a été mis au courant par les organes habilités, des informations ou activités illégales a l’obligation de:
 
 1° empêcher l’accès à ces informations;
 

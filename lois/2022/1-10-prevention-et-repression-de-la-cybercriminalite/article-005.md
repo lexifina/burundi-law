@@ -8,4 +8,4 @@ Les fournisseurs des services ont l’obligation de:
 
 3° informer leurs clients des mesures à prendre pour se protéger contre la cybercriminalité;
 
-4° révéler les abus à la victime concernée et aux organes chargés de la répression de la cyber­ criminalité.
+4° révéler les abus à la victime concernée et aux organes chargés de la répression de la cybercriminalité.
