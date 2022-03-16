@@ -1,0 +1,3 @@
+# Article 47
+
+Quiconque possède sciemment des images ou des représentations à caractère pornographique met­ tant en scène un ou plusieurs enfants âgés de moins de dix-huit ans, dans un système informa­ tique ou dans un moyen quelconque de stockage des données informatisées est puni d’une servi­ tude pénale de dix à quinze ans et d’une amende de dix à vingt millions de francs burundais. Est punie des mêmes peines, toute personne qui sciemment, facilite l’accès à des images, à des documents, au son ou à une représentation à caractère pornographique à un mineur. Paragraphe 4 La consultation publique de sites pornographiques
