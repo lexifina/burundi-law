@@ -1,0 +1,3 @@
+# Article 29
+
+Le Diplôme de Doctorat (PhD) en Sciences et Techniques, option Automatisation et Asservisse­ ment des processus Technologiques et de la Pro­ duction en Entreprises délivré en 2018 par l’Université technique d’Etat de Tver (FGBOU) de Moscou en Fédération de Russie, quatre années d’Etudes après le Diplôme de Master en Systèmes et Technologies de l’Information obtenu à la même université, jouit de l’équivalence aca­ démique et administrative avec le Diplôme de Doctorat (Ph.D) en Sciences Techniques, Option: Automatisation et Asservissement des processus Technologiques et de la Production en Entre­ prises reconnu au Burundi.
