@@ -4,4 +4,4 @@ Le Ministre de l’Intérieur, du Développement Communautaire et de la Sécurit
 
 Fait à Gitega, le 31/3/2022 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Alain-Guillaume BUNYONI (sé) Général de Police.
 
-Le Ministre de l’Intérieur, du Développement Communautaire et de la Sécurité Publique, Gervais NDIRAKOBUCA (sé) Lieutenant Général de Police. N°610/295 21/03/2022
+Le Ministre de l’Intérieur, du Développement Communautaire et de la Sécurité Publique, Gervais NDIRAKOBUCA (sé) Lieutenant Général de Police.
