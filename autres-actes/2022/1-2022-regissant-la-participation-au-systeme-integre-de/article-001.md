@@ -1,0 +1,3 @@
+# Article 1
+
+Objet et champ d’application Le présent Règlement a pour objet d’organiser le fonctionnement et l’opérationnalisation du système de paiement et de règlement, dénommé Système Intégré de Paiement et de Règlement du Burundi (SIPREBU en sigle). Il s’applique au système ATS – Automated Transfer System dont les composantes sont le système de compensation automatisé (ACH - Automated Clearing House), y compris pour le traitement automatisé des chèques dématérialisés, et le système de paiement et de règlement de gros montants ou urgents en temps réel (RTGS – Real Time Gros Settlement). Il s’applique également aux instruments de paiement autres que le chèque.

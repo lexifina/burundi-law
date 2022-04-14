@@ -1,0 +1,3 @@
+# Article 11
+
+Gestion des files d’attente Le système assure le traitement des paiements reçus conformément à la règle du « premier à l’entrée premier à la sortie » (First In First Out) et donne la possibilité aux participants donneurs d’ordre d’attribuer en émission un niveau de priorité à l’intérieur de la fourchette de priorités qui leur est réservée. Cette priorité est respectée avant que ne soit respecté l’ordre d’arrivée des paiements dans le système. Un ordre de paiement est exécuté dès son arrivée dans le système si la position du compte de règlement le permet et s’il n’y a pas de paiement de priorité égale ou supérieure déjà en attente de règlement. Dans le cas contraire, il est mis en attente.

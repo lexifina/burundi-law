@@ -1,0 +1,9 @@
+# Article 28
+
+Exonération de responsabilité Les participants ne peuvent être tenus pour responsables de l’inexécution totale ou partielle de leurs obligations nées de leur qualité de participant au système, notamment, lorsque les retards et incidents dans l’exécution des ordres de paiement résultent directement ou indirectement de l’une des circonstances suivantes :
+
+1) Force majeure Un événement extérieur, insurmontable et imprévisible mettant un participant dans l’impossibilité d’exécuter ses obligations dans les conditions normales, tel que : des faits de guerre civile ou étrangère, émeutes ou mouvements populaires, grèves, conflits de travail, actes de sabotages, de terrorisme, de malveillance, incident technique grave.
+
+2) Fait du Prince Acte réglementaire du Gouvernement, loi, impôt, taxe, embargo, moratoire, limitation des échanges ou des transferts et plus généralement, décision de l’autorité publique mettant un participant dans l’impossibilité d’exécuter ses obligations dans les conditions normales.
+
+Le Participant affecté par l’événement ayant le caractère de force majeure ou de fait du Prince en avise les autres participants dans les plus brefs délais en précisant la nature de cet événement, son effet, ainsi que sa durée prévisible. Les parties décident alors d’un commun accord des mesures à prendre pour mitiger les conséquences qui en résultent, les modalités administratives et financières correspondantes, ainsi que les conditions de reprise des prestations, après la suspension ou la cessation de l’événement ou de l’incident, le cas échéant.
