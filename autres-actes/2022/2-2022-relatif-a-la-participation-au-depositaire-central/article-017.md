@@ -1,0 +1,3 @@
+# Article 17
+
+Conditions d’exécution des opérations Les opérations devant être dénouées dans le Système sont exécutées, soit sur réception d’ordre(s) valable(s) émis par le Participant, soit à l’initiative de la Banque Centrale. Il appartient à chaque participant de prendre les mesures nécessaires pour éviter une insuffisance de provision sur son compte-titres. Le Participant doit avoir un nombre suffisant de titres sur son compte-titres pour permettre la réussite de toute opération éventuelle. Si le Participant ne dispose pas d’instruments financiers suffisants sur son compte-titres, toute opération initiée par ce Participant est refusée par le système.

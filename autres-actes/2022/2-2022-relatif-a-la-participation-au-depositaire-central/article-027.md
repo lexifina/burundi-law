@@ -1,0 +1,3 @@
+# Article 27
+
+Respect des règles de fonctionnement et de sécurité Le Participant respecte les règles et normes de sécurité, ainsi que les règles techniques de fonctionnement du système, telles que prévues dans les documents techniques et organisationnels publiés par la Banque Centrale. Il doit suivre la bonne exécution de ses opérations et, en particulier, vérifier le relevé de ses positions. En cas de découverte d’anomalie, le Participant en avise la Banque Centrale par e-mail et sans délai. Toute réclamation susceptible de mettre en cause la responsabilité de la Banque Centrale, doit être envoyée par courriel officiel, au plus tard, quinze (15) jours calendaires suivant la date à laquelle le Participant a avisé la Banque Centrale.

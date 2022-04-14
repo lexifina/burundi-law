@@ -1,0 +1,3 @@
+# Article 37
+
+Réclamations et litiges En cas de réclamation portant sur les résultats du traitement des messages envoyés au système ou la facturation des services de celui-ci, les participants peuvent s’adresser à la Direction des Opérations de la Banque Centrale, dans un délai n’excédant pas un (1) mois calendrier. Les informations justificatives leur sont fournies et les actions correctrices éventuelles sont entreprises par la Banque Centrale. En cas de persistance des anomalies ayant donné lieu aux réclamations, la partie plaignante doit en saisir l’auteur et la Banque Centrale par lettre recommandée avec accusé de réception ou par tous moyens traçables, avant le déclenchement de toute action contentieuse en justice.
