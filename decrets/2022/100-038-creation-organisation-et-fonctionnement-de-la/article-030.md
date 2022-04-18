@@ -1,0 +1,3 @@
+# Article 30
+
+Ingingo ya 30 La sous- commission examine la recevabilité des offres et procède à leur analyse administrative, technique et financière. Umugwi ujejwe kwihweza ivyo abahiganira isoko biyemeje urihweza ko idosiye z’abahiganira isoko zokwakirwa ugaca wihweza ko zikwije ibisabwa n’amategeko, ibisabwa vyerekeye ubuhinga nibijanye n’amafaranga y’isoko. Elle examine également les propositions faites dans le cadre de la procédure de consultation simplifiée effectuée en dessous des seuils de passation. Urihweza kandi ivyashikirijwe mu gihe ari isoko ritugururiwe bose, risaba amafaranga ari munsi y’urugero ntarengwa rufatirwako.

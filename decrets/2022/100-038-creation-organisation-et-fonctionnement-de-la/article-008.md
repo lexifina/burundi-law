@@ -1,0 +1,5 @@
+# Article 8
+
+Ingingo ya 8 La personne responsable des marchés publics désigne pour chaque marché, les membres de la Commission de Passation, ceux de la Commission de Suivi de l’Exécution et ceux de la Commission de Uwujejwe amasoko ya Reta aragena kw’isoko rimwe rimwe ryose, abagize Umugwi ujejwe gutanga isoko, abagize Umugwi ujejwe gukurikirana ishirwa mu ngiro ry’isoko n’abagize Umugwi ujejwe kwakira ivyaranguwe hamwe Réception des Marchés ainsi que leurs présidents. n’abarongora iyo migwi.
+
+Les membres de chacune des commissions visées à l’alinéa précédent ne peuvent avoir participé, en tant que membre de la cellule de gestion des marchés publics à des opérations préalables de préparation du dossier d’appel d’offres ou des termes de référence afférents au marché concerné. Abagize umugwi umwe umwe wose mu yivugwa mu gahimba ka mbere k’iyi ngingo ntibashobora kuba baragize uruhara mu bikowa vy’ugutegura idosiye y’uguhamagarira abahiganira isoko gushikiriza idosiye zabo canke ibisabwa mu guhiganira iryo soko baserukira umugwi wo mw’ikomine ujejwe gutunganya amasoko ya Reta.

@@ -1,0 +1,3 @@
+# Article 21
+
+Ingingo ya 21 La sous-commission d’ouverture est composée d’au moins trois membres de la Cellule qui n’ont pas participé à l’élaboration du DAO. Umugwi ujejwe igikonwa c’ukugurura amabahasha ugizwe n’imiburiburi n’abantu batatu bo mu mugwi wo mw’ikomine ujejwe gutunganya amasoko ya Reta batari mu bateguye ibigize idosiye idondora isoko rihiganirwa. Sous réserve des dispositions de l’alinéa précédent le président de la sous-commission préside d’office la séance d’ouverture. Hatirengagijwe ibitegekanijwe mu gahimba ka mbere k’iyi ngingo, umukuru w’umugwi ujejwe igikorwa c’ukugurura amabahasha ni we arongora igikorwa c’ukugurura amabahasha.

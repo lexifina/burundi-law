@@ -1,0 +1,3 @@
+# Article 12
+
+Ingingo ya 12 La personne responsable des marchés publics adresse à l’autorité de régulation des marchés publics des copies des avis de non objection, des autorisations, des procès-verbaux, des rapports d’évaluation et des contrats afférents à chaque marché et de tout rapport d’activité de la Cellule. Uwujejwe amasoko ya Reta muri komine arashikiriza Urwego rujejwe gucungera amasoko ya Reta ikopi yemeza ko ivyo Umugwi wamushikirije yavyemeye, iz’impusha zatanzwe, iz’ivyegeranyo, iz’ivyegeranyo vy’ingene amanota yatanzwe ku mabahasha, ikopi z’amasezerano ajanye n’isoko rimwe rimwe ryose hamwe n’iy’ikindi cegeranyo cose kijanye n’ibikorwa Umugwi waranguye.

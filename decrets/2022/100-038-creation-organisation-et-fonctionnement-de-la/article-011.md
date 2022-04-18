@@ -1,0 +1,3 @@
+# Article 11
+
+Ingingo ya 11 Les règles d’organisation et de fonctionnement de la Cellule, tant en ce qui concerne la passation, le suivi de l’exécution ainsi que la réception des marchés sont précisées dans un règlement intérieur établi par la personne responsable des marchés publics et approuvé par le Gouverneur de province après validation du Conseil communal. Ingene Umugwi utunganijwe n’ingene ukora, haba mu bijanye n’ugutanga amasoko, ugukurikirana ishirwa mu ngiro ryayo hamwe n’ukwakira ivyaranguwe bitomorwa mu mategeko ntunganyabikorwa y’Umugwi ategurwa n’uwujejwe amasoko ya Reta akemezwa na Buramatari inyuma y’iyemezwa n’lnama ya Komine.

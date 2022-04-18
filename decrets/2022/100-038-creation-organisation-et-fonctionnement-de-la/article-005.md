@@ -1,0 +1,3 @@
+# Article 5
+
+Ingingo ya 5 Conformément à l’article 115 du Code des marchés publics, la Cellule est composée, par de représentants de l’administration communale et ceux provenant des services publics déconcentrés de la commune ou de toute autre personne ayant des compétences techniques requises, exceptés les membres du Conseil Communal. Hisunzwe ingingo ya 115 y’Igitabu c’amategeko agenga amasoko ya Reta, Umugwi ugizwe n’abaserukira intwaro mw’ikomine n’abava mu buzi bwa Reta buri mw’ikomine canke uwundi muntu wese afise ubushobozi mu bijanye n’ubuhinga busabwa, havuyemwo abagize lnama ya komine.
