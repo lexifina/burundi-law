@@ -2,4 +2,6 @@
 
 Ingingo ya 37 A l’issue des opérations de vérifications quantitatives et qualitatives, la commission de réception établit un procès-verbal détaillé de réception ou de refus signé par tous les membres présents ainsi que le titulaire du marché ou son représentant. Ibikorwa vy’ugusuzuma uko ivyaranguwe bingana n’ingene vyaranguwe birangiye, umugwi ujejwe kwakira ivyaranguwe uragira icegeranyo cerekana ido n’ido ibijanye n’ukwakira canke ukwanka kwakira ivyaranguwe gishirwako umukono n’abagize umugwi bose bari ngaho hamwe n’uwatsindiye isoko canke uwumuserukira.
 
-Sur demande écrite de l’autorité contractante, la DNCMP apporte, en cas de besoin, un appui technique à la réception des prestations. Bisabwe n’Urwego ruhagararira Reta mu kugira amasezerano biciye mu rwandiko, Ubuyobozi bujejwe gusuzuma ivyerekeye amasoko ya Reta mu gihugu burafasha mu vyerekeye ubuhinga, Iyo bikenewe, mu gikorwa c’ukwakira ivyaranguwe. Chapitre III Igice ca III Des dispositions finales Ingingo zisozera
+Sur demande écrite de l’autorité contractante, la DNCMP apporte, en cas de besoin, un appui technique à la réception des prestations. Bisabwe n’Urwego ruhagararira Reta mu kugira amasezerano biciye mu rwandiko, Ubuyobozi bujejwe gusuzuma ivyerekeye amasoko ya Reta mu gihugu burafasha mu vyerekeye ubuhinga, Iyo bikenewe, mu gikorwa c’ukwakira ivyaranguwe.
+
+Chapitre III Igice ca III Des dispositions finales Ingingo zisozera
