@@ -1,0 +1,5 @@
+# Article 11
+
+Ingingo ya 11 Les fonctions de membre de la Cellule sont incompatibles avec l’exercice d’une autre fonction administrative en rapport avec la passation des marchés au sein d’une autre Autorité contractante, du contrôle ou de la régulation des marchés publics. Imirimo y’abagize Umugwi ntibangikanywa n’uwundi murimo mubijanye n’ugutanga amasoko ya Reta murundi Rwego ruhagararira Reta mu kugira amasezerano, urujejwe gusuzuma canke mu rujejwe gucungera amasoko ya Reta.
+
+Les fonctions de membre de la Cellule sont incompatibles avec toute relation d’intérêt directe ou indirecte avec les entreprises soumissionnaires des marchés publics. Imirimo y’abagize Umugwi ntirangurwa n’umuntu afise inyungu ubwiwe canke biciye mu bundi buryo mu mashirahamwe ahiganira amasoko ya Reta. En tout état de cause, les membres de la Cellule ne peuvent pas être dans une situation de conflit d’intérêt par rapport à leurs missions. Au cas où il y a conflit d’intérêt, ils sont obligés de se récuser. Uko biri kwose, abagize Umugwi ntibashobora kugira inyungu zitabangikana n’iyo mirimo baba bashinzwe. Mugihe hariho inyungu, umuntu ari mu mugwi ategerejwe kwitaramura.

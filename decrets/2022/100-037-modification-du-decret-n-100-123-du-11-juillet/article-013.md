@@ -1,0 +1,3 @@
+# Article 13
+
+Ingingo ya 13 Les règles d’organisation et de fonctionnement de la Ingene Umugwi utunganijwe n’ingene ukora, haba cellule, tant en ce qui concerne la passation, le suivi de l’exécution ainsi que la réception des marchés, sont précisées dans un Règlement d’Ordre Intérieur établi par la personne responsable des marchés publics et approuvé par l’autorité contractante. mu bijanye n’ugutanga amasoko, ugukurikirana ishirwa mu ngiro ryayo hamwe n’ukwakira ivyaranguwe, bitomorwa mu Mategeko Ntunganyabikorwa y’Umugwi ategurwa n’uwujejwe amasoko ya Reta akemezwa n’Urwego ruhagararira Reta mu kugira amasezerano.

@@ -1,0 +1,3 @@
+# Article 7
+
+Ingingo ya 7 Dans la mesure du possible, sont nommées à titre de membre de la Cellule, les personnes qui ont le profil suivant: Abantu bagenwa kuja mu mugwi, bishobotse baba bakwije ibibikurikira : 1. avoir des connaissances en marchés publics, être un ingénieur du génie rural ou civil, un ingénieur informaticien ou un juriste; 1. kuba bafise ubumenyi mu vyerekeye amasoko ya Reta, kuba ari umuhinga mu vyerekeye inyubako, Umuhinga mu vyerekeye ubuhinga bwa none canke uwize ivy’amategeko 2. toute personne dont la compétence serait jugée nécessaire. 2. umuntu wese afise ubumenyi n’ubushobozi biboneka ko bwoba bukenewe.
