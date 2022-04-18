@@ -10,4 +10,6 @@
 
 - Le Ministère ayant les finances dans ses attributions transfère directement Quatre Milliards Deux Cent Cinquante Millions de Francs Burundais (4 250 000 000 BIF) sur le compte de la banque pour jeunes « BIJE » ouvert à la BRB.
 
-- Le Ministère ayant les finances dans ses attributions transfère directement Quatre Milliards Deux Cent Cinquante Millions de Francs Burundais (4 250 000 000 BIF) sur le compte de la banque pour les femmes « BIDF » ouvert à la BRB. CHAPITRE IV De l’utilisation
+- Le Ministère ayant les finances dans ses attributions transfère directement Quatre Milliards Deux Cent Cinquante Millions de Francs Burundais (4 250 000 000 BIF) sur le compte de la banque pour les femmes « BIDF » ouvert à la BRB.
+
+CHAPITRE IV De l’utilisation
