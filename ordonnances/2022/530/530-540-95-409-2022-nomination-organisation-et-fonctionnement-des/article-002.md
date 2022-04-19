@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés membres du Comité Provincial du Recensement Général (CPR) de la Population, de l’Habitat, de l’Agriculture et de l’Elevage au Burundi de 2022 (RGPHAE, 2022): - Gouverneur de Province: Président; - Chef de Bureau Provincial de l’ISTEEBU: Secrétaire; - Directeur Provincial de l’Environnement, de l’Agriculture et de l’Elevage: Membre; - Médecin Provincial de la Santé: Membre; - Directeur Provincial de l’Enseignement: Membre; - Commissaire Provincial de la Sécurité Publique: Membre; - Délégué provincial du Ministère de la Défense et des Anciens Combattants: Membre; - Représentant de la confession catholique: Membre; - Représentant de la confession protestante: Membre; - Représentant de la confession musulmane: Membre.
