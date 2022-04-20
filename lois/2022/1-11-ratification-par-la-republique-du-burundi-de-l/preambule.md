@@ -1,0 +1,11 @@
+# Loi n°1/11 du 20 avril 2022
+
+PORTANT RATIFICATION PAR LA REPUBLIQUE DU BURUNDI DE L’ACCORD DE FINANCEMENT N°D9440-BI ENTRE LA REPUBLIQUE DU BURUNDI ET L’ASSOCIATION INTERNATIONALE DE DEVELOPPEMENT EN FAVEUR DU PROJET D’APPUI AUX FILETS SOCIAUX PRODUCTIFS ET EMPLOIS, SIGNE A BUJUMBURA, LE 24 JANVIER 2022
+
+Le Président de la République,
+
+Vu la Constitution de la République du Burundi ;
+
+Le Conseil des Ministres ayant délibéré ; L’Assemblée Nationale et le Sénat ayant adopté ;
+
+Promulgue
