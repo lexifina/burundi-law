@@ -1,0 +1,9 @@
+# Article 20
+
+Le Ministre de l’Intérieur, du Développement Communautaire et de la Sécurité Publique est chargé de l’exécution du présent décret qui entre en vigueur le jour de sa signature.
+
+Fait à Gitega, le 21 avril 2022 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Alain-Guillaume BUNYONI (sé) Général de Police.
+
+Le Ministre des Affaires de la Communaute Est Africaine, de la Jeunesse, des Sports et de la Culture, Ambassadeur Ezéchiel NIBIGIRA (sé).
+
+Le Ministre de l’Interieur, du Développement Communautaire et de la Sécurité Publique, Gervais NDIRAKOBUCA (sé) Lieutenant Général de Police.
