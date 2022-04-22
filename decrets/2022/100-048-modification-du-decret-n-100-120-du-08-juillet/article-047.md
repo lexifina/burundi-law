@@ -1,0 +1,3 @@
+# Article 47
+
+Ingingo ya 47 Les fonctions de membre du service contrôle a posteriori sont incompatibles avec toute relation directe ou indirecte d’intérêts avec les entreprises soumissionnaires des marchés publics. Imirimo y’abagize lgisata kijejwe kugira isuzuma isoko rimaze gutangwa ntirangurwa n’umuntu afise inyungu ubwiwe canke biciye mu bundi buryo mu mashirahamwe ahiganira amasoko ya Reta. En tout état de cause, les membres du service contrôle a posteriori ne peuvent pas être dans une situation de conflit d’intérêt par rapport à leurs missions. Uko biri kwose, abagize lgisata kijejwe kugira isuzuma isoko rimaze gutangwa ntibashobora kugira inyungu zitabangikana n’iyo mirimo baba bashinzwe.

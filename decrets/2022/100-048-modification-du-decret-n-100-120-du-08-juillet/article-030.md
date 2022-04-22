@@ -1,0 +1,3 @@
+# Article 30
+
+Ingingo ya 30 Lorsqu’aucun des services techniques spécialisés n’est compétent pour réaliser une mission confiée à la Direction Nationale ou lorsque les composantes du marché relèvent de la compétence de plusieurs services techniques spécialisés, le Directeur National propose au Ministre ayant les Finances dans ses attributions de nommer à titre exceptionnel une commission ad hoc pour statuer sur le dossier. Igihe ata gisata na kimwe gishoboye kurangura umurimo Ubuyobozi buba bushinzwe canke mu gihe ibigize isoko bisaba ubuhinga bw’ibisata vyinshi bitandukanye, Umuyobozi mukuru arasaba Umushikiranganji ajejwe lkigega ca Reta ko yogena umugwi ushirwaho kugira urangure ico gikorwa gusa.

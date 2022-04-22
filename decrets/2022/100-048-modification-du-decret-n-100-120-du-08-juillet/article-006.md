@@ -1,0 +1,3 @@
+# Article 6
+
+Ingingo ya 6 La Direction Nationale est chargée de contrôler a priori la procédure de passation des marchés publics d’un montant supérieur aux seuils de contrôle. Ubuyobozi bukuru bujejwe gusuzuma, isoko ritaratangwa, ko ibikurikizwa mu gutanga Amasoko ya Reta vyagizwe neza ku masoko ya Reta asaba amafaranga arengeye ingero zifatirwako z’amafaranga amasoko atwara. Elle est également chargée de contrôler a posteriori les procédures de passation des marchés d’un montant inférieur auxdits seuils. Bujejwe kandi gusuzuma, isoko rimaze gutangwa, ko ibikurikizwa mu gutanga amasoko adashikana izo ngero vyubahirijwe.

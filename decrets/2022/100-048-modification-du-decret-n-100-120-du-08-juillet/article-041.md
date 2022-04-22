@@ -1,0 +1,3 @@
+# Article 41
+
+Ingingo ya 41 Les fonctions de membre du service de suivi de l’exécution des marchés sont incompatibles avec toute relation directe ou indirecte d’intérêts avec les entreprises soumissionnaires des marchés publics. Imirimo y’abagize Igisata kijejwe gukurikirana ishirwa mu ngiro ry’amasoko ntirangurwa n’umuntu afise inyungu ubwiwe canke biciye mu bundi buryo mu mashirahamwe ahiganira amasoko ya Reta. En tout état de cause, les membres du service de suivi de l’exécution des marchés ne peuvent pas être dans une situation de conflit d’intérêt par rapport à leurs missions. Uko biri kwose, abagize lgisata kijejwe gukurikirana ishirwa mu ngiro ry’amasoko ntibashobora kugira inyungu zitabangikana n’iyo mirimo baba bashinzwe.

@@ -1,0 +1,3 @@
+# Article 35
+
+Ingingo ya 35 Les fonctions de membre des services techniques spécialisés sont incompatibles avec toute relation directe ou indirecte d’intérêts dans les entreprises soumissionnaires des marchés publics. Imirimo y’abagize ibisata bitandukanye bijejwe amasoko ntirangurwa n’umuntu afise inyungu ubwiwe canke biciye mu bundi buryo mu mashirahamwe ahiganira amasoko ya Reta. En tout état de cause, les membres des services techniques spécialisés ne peuvent pas être dans une situation de conflit d’intérêt par rapport à leurs missions. Uko biri kwose, abagize ibisata bitandukanye bijejwe amasoko ntibashobora kugira inyungu zitabangikana n’iyo mirimo baba bashinzwe.

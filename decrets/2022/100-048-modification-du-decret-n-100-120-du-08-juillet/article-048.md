@@ -1,0 +1,3 @@
+# Article 48
+
+Ingingo ya 48 Hors les cas où ils sont appelés à rendre témoignage en justice et celui où la loi les oblige à faire connaître leurs secrets, les membres du service de contrôle a posteriori sont tenus au secret professionnel pour les informations, faits, actes et renseignements dont ils ont connaissance dans l’exercice en raison de leurs fonctions. Kiretse iyo bahamagawe gusura muri sentare n’iyo amategeko abategeka kumenyesha amabanga y’akazi bafise, abagize lgisata kijejwe kugira isuzuma isoko rimaze gutangwa bategerezwa kugumya amabanga y’akazi mu bijanye n’inkuru, ivyabaye, ivyakozwe n’ivyo batohoje bari mu kazi canke kubera amabanga bashinzwe. Section 5 Agace ka 5 Du service administratif Igisata kijejwe ivyerekeye intwaro
