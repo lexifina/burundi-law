@@ -1,3 +1,5 @@
 # Article 16
 
-Ingingo ya 16 La Direction nationale est composée : Ubuyobozi bukuru bugizwe n’ibisata bikurikira : 1. d’un Comité Permanent; 1. Komite yamaho; 2. des services techniques specialisés; 2. Ibisata bitandukanye bijejwe ivyerekeye amasoko; 3. d’un service de suivi de l’exécution; 3. Igisata kijejwe gukurikirana ibijanye n’ishirwa mu ngiro ry’amasoko; 4. d’un service de contrôle à posteriori; 4. Igisata kijejwe gusuzuma, isoko rimaze gutangwa, ko ibikurikizwa mu gutanga amasoko agirirwa iryo suzuma ryubahirijwe 5. d’un service administratif. 5. Igisata kijejwe ivyerekeye intwaro. Section 1 Agace ka 1 Du Comité Permanent Ibijanye na Komite yamaho
+Ingingo ya 16 La Direction nationale est composée : Ubuyobozi bukuru bugizwe n’ibisata bikurikira : 1. d’un Comité Permanent; 1. Komite yamaho; 2. des services techniques specialisés; 2. Ibisata bitandukanye bijejwe ivyerekeye amasoko; 3. d’un service de suivi de l’exécution; 3. Igisata kijejwe gukurikirana ibijanye n’ishirwa mu ngiro ry’amasoko; 4. d’un service de contrôle à posteriori; 4. Igisata kijejwe gusuzuma, isoko rimaze gutangwa, ko ibikurikizwa mu gutanga amasoko agirirwa iryo suzuma ryubahirijwe 5. d’un service administratif. 5. Igisata kijejwe ivyerekeye intwaro.
+
+Section 1 Agace ka 1 Du Comité Permanent Ibijanye na Komite yamaho
