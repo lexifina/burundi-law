@@ -1,0 +1,3 @@
+# Article 25
+
+Ingingo ya 25 Lorsque les faits visés à l’article 23 sont caractéristiques des violations de la législation sur les marchés publics, et sont découverts postérieurement à l’attribution du marché, le président du Comité saisit la Commission Disciplinaire. Si ces faits constituent une infraction, il dénonce lesdits faits aux organes compétents. Igihe ibivugwa mu ngingo ya 23 biboneka ko vyakozwe harenzwe amategeko agenga Amasoko ya Reta, bikaba vyamenyekanye isoko rimaze gutangwa, Umukuru w’Umugwi aca abishikiriza Umugwi ujejwe gufata ibihano. Iyo ivyakozwe asanze ari ivyaha, aca abishikiriza inzego zibifitiye ububasha.

@@ -1,0 +1,3 @@
+# Article 33
+
+Ingingo ya 33 La Direction Générale est un de deux organes de l’Autorité de Régulation. Elle a sous sa coordination, trois Directions Techniques : Ubuyobozi Bukuru ni rumwe mu nzego zibiri z’Urwego rujejwe gucungera. Ubwo buyobozi bujejwe gukurikiranira hafi ubuyobozi butatu bujejwe ivy’ubuhinga mu vyerekeye amasoko bukurikira : 1. la Direction des Affaires Juridiques; 1. Ubuyobozi bujejwe ivy’amategeko; 2. la Direction de la Formation; 2. Ubuyobozi bujejwe inyigisho; 3. la Direction des Statistiques. 3. Ubuyobozi bujejwe gutororokanya ibiharuro. Paragraphe 1 Agahimba ka 1 De l’organisation, des missions, des droits et des obligations de la Direction Générale Ingene Ubuyobozi Bukuru butunganijwe, imirimo yabwo, ivyo bufitiye ububasha n’ivyo butegerejwe

@@ -1,0 +1,5 @@
+# Article 27
+
+Ingingo ya 27 Lorsque le Comité de Règlement des Différends est saisi, il tente d’abord de concilier les parties en conflit. En cas d’échec, il statue sur les violations constatées de la législation en matière des marchés publics. Igihe Umugwi ujejwe gutatura amatati wituwe, ubanza kugerageza kwumvikanisha abafise ivyo batumvikanako. Igihe batumvikanye, urafata ingingo ku vyakozwe hatubahirijwe amategeko yerekeye Amasoko ya Reta n’amategeko ajanye n’itunganywa ry’ivyerekeye Amasoko ya Reta. Dans cette dernière éventualité, il prend toute mesure conservatoire, corrective, ou suspensive de la procédure de passation. Mu gihe hatabaye ukwumvikana, Umugwi urafata ingingo zose z’ukubangira, ugukosora canke uguhagarika ibijanye n’itangwa ry’isoko.
+
+Les décisions du Comité de Règlement des Différends sont validées par le Conseil de Régulation Ingingo z’Umugwi ujejwe gutatura amatati zemezwa n’lnama y’Urwego rujejwe ivyerekeye dans les limites de temps imparti au Comité de Règlement des Différends pour statuer sur le recours dont il est saisi. ugucungera yubahirije ikiringo Umugwi ujejwe gutatura amatati wahawe kugira ufate ingingo kuvyo ashikirijwe.

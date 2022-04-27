@@ -1,0 +1,3 @@
+# Article 54
+
+Ingingo ya 54 Les Commissaires aux comptes sont recrutés sur concours pour une durée deux ans non renouvlable. Abagenduzi b’amakonte bahabwa ako kazi babanje gukora ikibazo, bakamara ikiringo c’imyaka ibiri kidashobora kwisubiriza. Ils adressent leur rapport directement au Conseil de Régulation et aux membres du Conseil de Régulation avec copie au Directeur Général de l’Autorité de Régulation. Bashikiriza icegeranyo cabo ata wundi biciyeko lnama ijejwe ivyerekeye ugucungera n’abagize lama ijejwe ivyerekeye ugucungera bagaha ikopi y’ico cegeranyo Umuyobozi Mukuru w’Urwego rujejwe ivyerekeye ugucungera.

@@ -1,0 +1,3 @@
+# Article 29
+
+Ingingo ya 29 Le Comité de Règlement des Différends statue sur les litiges entre les organes de l’administration intervenant dans le cadre de la procédure de passation des marchés publics dont elle a été saisie, selon les modalités et les délais définis à l’article 342 du Code des Marchés publics. Umugwi ujejwe gutatura amatati urafata ingingo ku matati ari hagati y’inzego ziserukira Reta zifise uruhara mu bikorwa vyerekeye ugutanga Amasoko ya Reta n’ibikorwa Reta yokoze ituma abandi washikirijwe, hisunzwe ibikurikizwa n’ikiringo bitegekanijwe mu ngingo ya 342 y’Igitabu c’Amategeko agenga Amasoko ya Reta. Paragraphe 3 Agahimba ka 3 De la Commission Disciplinaire Ibijanye n’Umugwi ujejwe gutanga ibihano

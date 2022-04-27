@@ -1,0 +1,3 @@
+# Article 23
+
+Ingingo ya 23 Le Comité de Règlement des Différends examine et statue sur les cas des irregularités dénoncées par les parties intéressées ou par toute personne ou encore constatées par l’Autorité de Régulation avant ou pendant la passation et lors de l’exécution des marchés. Umugwi ujejwe gutatura amatati uriga ukongera ugafata ingingo ku vyakozwe hadakurikijwe amategeko vyashizwe ahabona n’ababifisemwo inyungu canke uwundi muntu wese canke naho vyabonywe n’Urwego rujejwe ivyerekeye ugucungera imbere yuko isoko ritangwa canke ririko riratangwa no mu gihe riba rikiriko rirashirwa mu ngiro.

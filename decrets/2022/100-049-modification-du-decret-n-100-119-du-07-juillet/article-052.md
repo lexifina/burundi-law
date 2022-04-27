@@ -1,0 +1,3 @@
+# Article 52
+
+Ingingo ya 52 Le budget de l’Autorité de Régulation prévoit et autorise des recettes et des dépenses et en détermine la nature des besoins. Il est préparé par le Directeur Général qui le soumet au Conseil de Régulation pour examen et approbation au plus tard deux mois avant la fin de l’année budgétaire en cours. Mu mafaranga Urwego rujejwe ivyerekeye ugucungera rutegekanya gukoresha harashirwamwo kandi hagategekanywa ko hagira amafaranga yinjira n’ayasohoka hakongera hagatomora ubwoko bw’ibikenewe. Integuro y’ayo mafaranga igirwa n’Umuyobozi mukuru akayishikiriza lnama ijejwe ivyerekeye ugucungera kugira iyihweze yongere iyemeze hasigaye amezi atarenga abiri imbere y’uwo mwaka amafaranga ategekanywa gukoreshwamwo urangire.

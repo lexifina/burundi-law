@@ -1,0 +1,3 @@
+# Article 20
+
+Ingingo ya 20 Lorsque le Conseil de Régulation examine des questions liées aux entreprises qu’il représente ou dans lesquelles il a des intérêts, le membre issu du secteur privé dont l’impartialité peut être sujette à caution ne peut pas participer aux délibérations. Igihe Inama ijejwe ivyerekeye ugucungera iriko irihweza ibibazo vyerekeye amashirahamwe uwuri mu bagize iyo Nama aserukira canke afisemwo inyungu, biboneka ko ashobora guhengama, ntashobora kuja mu bihweza ivyo bibazo Paragraphe 2 Agahimba ka 2 Du Comité de Règlement des Différends Ibijanye n’Umugwi ujejwe gutatura amatati

@@ -1,0 +1,3 @@
+# Article 56
+
+Ingingo ya 56 Le Cabinet d’audit devra adresser son rapport au Conseil de Régulation avec copie au Directeur Général de l’Autorité de Régulation. L’ARMP est également soumise à la vérification des organes de contrôle de l’Etat. Ibiro vy’abasuzumyi b’amakonte bigenga bitegerezwa gushikiriza icegeranyo cavyo lnama ijejwe ivyerekeye ugucungera, ikopi y’ico cegeranyo igahabwa Umuyobozi Mukuru w’Urwego rujejwe ivyerekeye ugucungera. Urwego rujejwe ivyerekeye ugucungera ruragirirwa isuzuma kandi n’inzego za Reta zijejwe isuzuma. Chapitre V Igice ca V Des dispositions transitoires et finales Ingingo mfatakibanza n’izisozera

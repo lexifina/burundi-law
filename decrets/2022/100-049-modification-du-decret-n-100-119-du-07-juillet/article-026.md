@@ -1,0 +1,3 @@
+# Article 26
+
+Ingingo ya 26 Le Comité de Règlement des Différends analyse et statue dans les délais de dix jours sur des recours introduits auprès de l’Autorité de Régulation. Umugwi ujejwe gutatura amatati urihweza ukongera ugafata ingingo mu kiringo c’iminsi icumi ku vyashikirijwe Urwego rujejwe ivyerekeye ugucungera. Ce recours invoque une violation de la législation sur les marchés publics ainsi que les principes généraux en la matière. Urwandiko rurimwo ibishikirizwa rurerekana ingingo itubahirijwe yo mu mategeko agenga amasoko hamwe n’ingingo zikurikizwa muri rusangi mu vyerekeye amasoko.
