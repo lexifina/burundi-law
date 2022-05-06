@@ -10,4 +10,6 @@ Les principes ci-après s’appliquent à la gestion des ressources biologiques 
 
 4° Le principe de responsabilité selon lequel toute personne qui, par son action, crée des conditions de nature à poter atteinte à la santé humaine et à l’environnement, est tenue de prendre des mesures propres à faire cesser et à réparer le dommage occasionné;
 
-5° Le principe de précaution selon lequel l’absence de certitudes, compte tenu des connaissances scientifiques et techniques du moment, ne doit pas retarder l’adoption de mesures effectives et proportionnées visant à prévenir un risque de dommages graves et irréversibles à l’environnement à un coût économiquement acceptable. Chapitre II De la typologie des droits d’usage
+5° Le principe de précaution selon lequel l’absence de certitudes, compte tenu des connaissances scientifiques et techniques du moment, ne doit pas retarder l’adoption de mesures effectives et proportionnées visant à prévenir un risque de dommages graves et irréversibles à l’environnement à un coût économiquement acceptable.
+
+Chapitre II De la typologie des droits d’usage

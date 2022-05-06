@@ -1,0 +1,7 @@
+# Article 3 3
+
+Cette Ordonnance confère à son titulaire le droit d’exploiter le calcaire sur le site ci-haut cité et de procéder à la commercialisation de calcaire produit exclusivement au niveau national.
+
+Le transport doit être assuré par des véhicules ayant des autorisations de transport des produits carriers valides.
+
+Le montant issu de la commercialisation du calcaire exploité sur ce site doit être versé au compte n°0150800973400 ouvert à la Banque CRDB sous le nom de la Société UNIGLOBAL IMPEX.
