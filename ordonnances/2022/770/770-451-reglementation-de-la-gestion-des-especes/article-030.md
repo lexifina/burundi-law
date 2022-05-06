@@ -1,0 +1,3 @@
+# Article 30
+
+Dans un délai de deux ans à compter de la signature de la présente ordonnance, l’organe en charge des espèces exotiques envahissantes met en place des mesures efficaces de gestion des espèces exotiques envahissantes préoccupantes pour le pays qui, d’après ses constatations, sont largement répandues sur son territoire, afin que leurs effets sur la biodiversité, les services écosystèmes associés ainsi que, les cas échéant, la santé humaine ou l’économie soient réduits au minimum. Ces mesures de gestion sont proportionnelles aux effets sur l’environnement et reposent sur une analyse des coûts et des avantages et comprennent également, dans la mesure du possible, les mesures de restauration visées aux articles 24 et 25.
