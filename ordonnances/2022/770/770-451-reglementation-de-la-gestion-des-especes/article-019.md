@@ -6,4 +6,6 @@ L’organe en charge de la lutte contre des espèces exotiques envahissantes peu
 
 2° Une analyse coûts-avantages démontre, sur la base des données disponibles et avec un degré de certitude raisonnable, qu’à long terme, les coûts seront exceptionnellement élevés et disproportionnés par rapport aux avantages de l’éradication;
 
-3° Les méthodes d’éradication ne sont pas disponibles, ou bien sont disponibles mais ont des effets néfastes très gaves sur la santé humaine, l’environnement ou d’autres espèces. Chapitre IV Gestion des espèces exotiques envahissantes largement répandues
+3° Les méthodes d’éradication ne sont pas disponibles, ou bien sont disponibles mais ont des effets néfastes très gaves sur la santé humaine, l’environnement ou d’autres espèces.
+
+Chapitre IV Gestion des espèces exotiques envahissantes largement répandues
