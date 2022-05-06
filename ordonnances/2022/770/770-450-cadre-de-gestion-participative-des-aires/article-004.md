@@ -8,4 +8,6 @@ Les sous-comités d’appui à la protection collinaire ont pour missions de:
 
 3° Veiller à l’intégrité physique de l’aire protégée;
 
-4° Participer aux différentes activités d’aménagement, de surveillance et de protection de commun accord avec les gestionnaires de l’aire protégée. Chapitre II De la Composition, de l’organisation et du Fonctionnement du Comité d’Appui à la Protection
+4° Participer aux différentes activités d’aménagement, de surveillance et de protection de commun accord avec les gestionnaires de l’aire protégée.
+
+Chapitre II De la Composition, de l’organisation et du Fonctionnement du Comité d’Appui à la Protection
