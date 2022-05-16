@@ -24,4 +24,6 @@ Vu le Décret N°100/007 du 28 juin 2020 portant révision du décret N°100/037
 
 Vu le Décret N°100/093 du 09 novembre 2020 portant Organisation et Fonctionnement du Ministère de la Santé Publique et de la Lutte contre le Sida ;
 
-Ordonne: Chapitre 1 Des dispositions générales
+Ordonne:
+
+Chapitre 1 Des dispositions générales
