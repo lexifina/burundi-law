@@ -1,0 +1,3 @@
+# Article 28
+
+Les postes d’officiers de protection, d’administration de la base de données, d’archivage-documentation et du CCOR sont dirigés respectivement par des chefs de postes assistés par leurs adjoints. Ils sont recrutés par le ministère ayant la gestion des réfugiés et apatrides dans ses attributions et mis à la disposition du Coordonnateur de l ‘ONPRA pour signature du contrat de travail. L’administration de la base de données comprend également les agents de saisie qui sont recrutés par le ministère ayant la gestion des réfugiés et apatrides dans ses attributions et mis à la disposition du Coordonnateur de l’ONPRA pour signature du contrat de travail.
