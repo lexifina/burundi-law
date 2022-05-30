@@ -20,4 +20,6 @@ La CCER est requise pour :
 
 9° statuer sur le non-renouvellement du visa d’établissement et les cas d’expulsion;
 
-10° préparer et signer le Règlement d’Ordre Intérieur de la CCER. Section 2 De la composition et de l’organisation
+10° préparer et signer le Règlement d’Ordre Intérieur de la CCER.
+
+Section 2 De la composition et de l’organisation
