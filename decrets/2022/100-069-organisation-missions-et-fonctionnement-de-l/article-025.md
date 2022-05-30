@@ -24,4 +24,6 @@ Le poste de comptabilité est chargé de :
 
 11° procéder aux paiements des différentes redevances;
 
-12° établir les rapports périodiques d’exécution budgétaire et proposer des révisions budgétaires si nécessaire. Chapitre IV Du fonctionnement
+12° établir les rapports périodiques d’exécution budgétaire et proposer des révisions budgétaires si nécessaire.
+
+Chapitre IV Du fonctionnement
