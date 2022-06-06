@@ -1,0 +1,3 @@
+# Article 4
+
+De la structure salariale Le salaire brut d’un membre du Comité de Direction, d’un Cadre et agent de l’Agence Burundaise de l’Hydraulique et de l’Assainissement en Milieu Rural « AHAMR » comprend un salaire de base, une indemnité de logement de 60% du salaire de base, une indemnité de déplacement de 15% du salaire de base. Il est accordé exceptionnellement une indemnité de fonction de 15% du salaire de base pour les membres du personnel occupant des postes de responsabilité dont ceux du Directeur Général, des Directeurs, les Conseillers à la Direction Générale et les Chefs de Service et les Chefs de Cellule.
