@@ -2,4 +2,4 @@
 
 La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
 
-Fait à Bujumbura, le 13/06/2022 Prof. François HAVYARIMANA (sé)
+Fait à Bujumbura, le 13/06/2022 Prof. François HAVYARIMANA (sé) ORDONNANCE MINISTERIELLE RENOUVELLEMENT DU PERMIS D’EXPLOITATION ARTISANALE DU CALCAIRE SUR LE SITE BUGIGA DANS LA PROVINCE RUTANA OCTROYE PAR
