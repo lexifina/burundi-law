@@ -1,0 +1,3 @@
+# Article 2
+
+L’Université Lumière de Bujumbura est autorisée à ouvrir un nouveau campus à Kayero en Province de Rutana avec les programmes de formation de niveau Baccalauréat et de l’Enseignement Supérieur Technique et Professionnel déjà autorisés suivants : 1. Niveau Baccalauréat : Faculté de Gestion et administration, Options : -Marketing et Management ; -Finance et comptabilité. II. Enseignement Supérieur Technique et Professionnel de niveau 1 : -Institut Supérieur Professionnel en Entrepreneuriat et Gestion des Projets (ISPEGP) ; -Institut Supérieur Professionnel de Gestion et de Commerce (ISPGECO), option : comptabilité.
