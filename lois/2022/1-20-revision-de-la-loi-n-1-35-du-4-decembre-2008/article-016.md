@@ -8,4 +8,6 @@ Les bénéficiaires de ces engagements de l’Etat doivent produire annuellement
 
 La variation nette de l’encours des garanties et avals qui peuvent être accordés par l’Etat sur chaque compte de garanties et avals est plafonnée annuellement par une loi de finances.
 
-Les garanties et avals sont donnés par décret. L’ensemble des comptes de garanties et d’avals constitue un programme au sens de l’article 23 de la présente loi organique. Section 6 Du solde budgétaire
+Les garanties et avals sont donnés par décret. L’ensemble des comptes de garanties et d’avals constitue un programme au sens de l’article 23 de la présente loi organique.
+
+Section 6 Du solde budgétaire

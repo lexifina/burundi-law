@@ -6,4 +6,6 @@ La prescription peut être interrompue ou suspendue dans les conditions définie
 
 Les règles de prescription des créances de l’Etat ou de tout autre organisme public doté d’un comptable public, sur des particuliers ou personnes morales, doivent être définies dans les lois et règlements en vigueur. Quelle que soit leur nature, les actifs de l’Etat ou de tout autre organisme public sont insaisissables.
 
-Le patrimoine immobilier de l’Etat ou de tout autre organisme public ne peut être aliéné sans l’aval du Conseil des Ministres. Section 2 De l’exécution
+Le patrimoine immobilier de l’Etat ou de tout autre organisme public ne peut être aliéné sans l’aval du Conseil des Ministres.
+
+Section 2 De l’exécution

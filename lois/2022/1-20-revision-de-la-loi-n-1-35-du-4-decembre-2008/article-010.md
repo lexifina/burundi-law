@@ -26,4 +26,6 @@ a) les charges budgétaires regroupant :
 
 - les dépenses d’investissement;
 
-b) les charges de trésorerie regroupant le remboursement d’emprunts. Section 2 Des budgets annexes
+b) les charges de trésorerie regroupant le remboursement d’emprunts.
+
+Section 2 Des budgets annexes

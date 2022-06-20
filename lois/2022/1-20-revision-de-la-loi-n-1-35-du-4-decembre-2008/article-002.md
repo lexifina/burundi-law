@@ -34,4 +34,6 @@ o) Contrôleur des Engagements des Dépenses (CED): un cadre nommé par le Minis
 
 p) débet : une décision de nature juridictionnelle prononcée par la Cour des Comptes pour engager la responsabilité du comptable public en cas de faute de gestion ;
 
-q) audit de capacité : un audit effectué par la Cour des Comptes, dans le cadre de la mise en œuvre du budget-programme, en vue d’évaluer dans quelle mesure le mode de gestion budgétaire et le système de contrôle interne adoptés et appliqués dans un ministère ou une institution répondent aux normes d’efficacité, d’efficience et de sécurité. CHAPITRE II DES RESSOURCES ET DES CHARGES PUBLIQUES
+q) audit de capacité : un audit effectué par la Cour des Comptes, dans le cadre de la mise en œuvre du budget-programme, en vue d’évaluer dans quelle mesure le mode de gestion budgétaire et le système de contrôle interne adoptés et appliqués dans un ministère ou une institution répondent aux normes d’efficacité, d’efficience et de sécurité.
+
+CHAPITRE II DES RESSOURCES ET DES CHARGES PUBLIQUES
