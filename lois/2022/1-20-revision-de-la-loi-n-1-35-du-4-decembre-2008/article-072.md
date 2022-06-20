@@ -1,0 +1,3 @@
+# Article 72
+
+Le projet de loi de règlement et de compte-rendu budgétaire est accompagné : - des comptes et des Etats financiers de l’Etat issus de la comptabilité budgétaire et de la comptabilité générale de l’Etat ; - d’annexes explicatives développant, par programme et dotation du budget général, par programme de chaque budget annexe, de chaque budget d’affectation spéciale, de chaque budget de prêts et de chaque compte de garanties et avals, le montant définitif des crédits ouverts, des dépenses et, le cas échéant, des recettes constatées ; - des rapports annuels de performance par programme rendant compte de leur gestion et de leurs résultats.

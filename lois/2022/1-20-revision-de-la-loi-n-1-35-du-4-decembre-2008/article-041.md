@@ -1,0 +1,3 @@
+# Article 41
+
+Les commissions permanentes en charge des finances du Parlement ont tout pouvoir d’enquêter sur pièce et sur place sur les questions relatives à la gestion budgétaire, financière et comptable des administrations de l’Etat. Elles peuvent, sur ces questions, obtenir communication de tout document détenu par l’administration et entendre toute autorité administrative sur la préparation et la mise en œuvre de son budget. Pendant la session budgétaire, un membre du Gouvernement peut être appelé à se présenter selon le cas, devant la commission permanente ayant les finances dans ses attributions pour expliquer le budget alloué à son ministère ainsi que son plan de performance.

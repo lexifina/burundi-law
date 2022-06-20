@@ -1,0 +1,3 @@
+# Article 68
+
+L’Inspection Générale de l’Etat a tout pouvoir d’enquête et de contrôle sur la gestion des recettes et des dépenses des organismes publics ainsi que sur tous les éléments de leur patrimoine. A cet effet, elle procède aux inspections et enquêtes nécessaires. Elle s’assure de l’efficacité du contrôle interne des ministères et coordonne l’action des inspections ministérielles. Elle exerce ses missions de façon indépendante et ne peut recevoir aucune instruction dans la conduite de ses enquêtes et contrôles ni dans la formulation de ses conclusions. Ses rapports sont transmis au Président de la République avec copie à la Cour des Comptes. Ils peuvent être rendus publics par le Président de la République.

@@ -1,0 +1,3 @@
+# Article 53
+
+La procédure d’exécution des dépenses de tout organisme public doit respecter les étapes suivantes: - l’engagement qui, sous réserve de la constatation du service fait, crée une obligation financière pour l’organisme public concerné ; - la liquidation qui constate le service fait, arrête le montant de l’obligation financière effective de l’organisme public et en permet l’ordonnancement qui, en conséquence des étapes précédentes, traduit la décision de l’organisme public de s’acquitter de son obligation financière ; - le paiement qui libère effectivement l’organisme public de son obligation financière.

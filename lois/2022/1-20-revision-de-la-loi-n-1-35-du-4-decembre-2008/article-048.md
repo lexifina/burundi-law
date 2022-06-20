@@ -1,0 +1,3 @@
+# Article 48
+
+Le Ministre en charge des finances est responsable de l’exécution de la loi de finances et du respect des équilibres budgétaires et financiers définis par celle-ci. A ce titre, il dispose d’un pouvoir de régulation budgétaire qui lui permet, au cours de l’exécution du budget de: - annuler un crédit devenu sans objet au cours de l’exercice ; - annuler un crédit pour prévenir une détérioration des équilibres budgétaire et financier de la loi de finances. En outre, le Ministre en charge des finances peut subordonner l’utilisation des crédits par les ordonnateurs aux disponibilités de trésorerie de l’Etat.
