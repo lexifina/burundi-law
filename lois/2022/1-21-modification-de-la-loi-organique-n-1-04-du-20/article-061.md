@@ -12,4 +12,6 @@ lngingo ya 61 Le service aumônerie militaire a notamment pour missions de : lgi
 
 - coordonner les activités religieuses et assurer le service du culte.
 
-- gukurikiranira hafi ibikorwa bijanye n’amadini no gufasha mu bikorwa vyerekeye uguhimbaza lmana. Section 4 Agace ka 4 Des attributions des Composantes Imirimo y’imice y’abasirikare igize urwego FDNB
+- gukurikiranira hafi ibikorwa bijanye n’amadini no gufasha mu bikorwa vyerekeye uguhimbaza lmana.
+
+Section 4 Agace ka 4 Des attributions des Composantes Imirimo y’imice y’abasirikare igize urwego FDNB

@@ -12,4 +12,6 @@ lngingo ya 47 Les unités spécialisées sont notamment : lmice y’urwego FDNB 
 
 - le Quartier Général «QG» en sigle.
 
-- lcicaro gikuru, mu mpfunyapfunyo y’igifaransa « QG». A côté des unités spécialisées, la FDNB dispose d’une unité des opérations spéciales régie par une ordonnance du Ministre ayant la Défense Nationale et des Anciens Combattants dans ses attributions. Uretse imice y’urwego FDNB ifise imirimo yisangije, Urwego FDNB rurafise kandi umuce urangura ibikorwa bidasanzwe vya gisirikare ugengwa n’itegeko ry’Umushikiranganji ajejwe ivyo kwivuna umwansi n’ugukurikirana abahoze k’urugamba. Section 3 Agace ka 3 Des attributions des services l’EMG/FDNB lmirimo y’ibisata vya EMG/FDNB
+- lcicaro gikuru, mu mpfunyapfunyo y’igifaransa « QG». A côté des unités spécialisées, la FDNB dispose d’une unité des opérations spéciales régie par une ordonnance du Ministre ayant la Défense Nationale et des Anciens Combattants dans ses attributions. Uretse imice y’urwego FDNB ifise imirimo yisangije, Urwego FDNB rurafise kandi umuce urangura ibikorwa bidasanzwe vya gisirikare ugengwa n’itegeko ry’Umushikiranganji ajejwe ivyo kwivuna umwansi n’ugukurikirana abahoze k’urugamba.
+
+Section 3 Agace ka 3 Des attributions des services l’EMG/FDNB lmirimo y’ibisata vya EMG/FDNB

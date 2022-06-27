@@ -8,4 +8,6 @@ lngingo ya 39 Le Ministère Public près les juridictions militaires comprend hi
 
 - les Auditorats Militaires.
 
-- Paraki za Gisirikare. Section 2 Agaceka 2 De l’organisation des Composantes lngene imice ya FDNB itunganijwe
+- Paraki za Gisirikare.
+
+Section 2 Agaceka 2 De l’organisation des Composantes lngene imice ya FDNB itunganijwe

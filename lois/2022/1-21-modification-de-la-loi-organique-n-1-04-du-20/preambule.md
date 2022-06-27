@@ -10,4 +10,6 @@ Le Conseil des Ministres ayant délibéré ; lnama Nshikiranganji imaze kubica i
 
 Vu l’Arrêt RCCB 412 du 14 juin 2022 rendu par la Cour Constitutionnelle ; Yihweje ingingo ya Sentare yubahiriza Ibwirizwa Shingiro RCCB 412 yo ku wa 14 Ruheshi 2022 ;
 
-Promulgue: Atangaje: Chapitre 1 Igice ca 1 Des Dispositions Générales Ingingo ngenderwako
+Promulgue: Atangaje:
+
+Chapitre 1 Igice ca 1 Des Dispositions Générales Ingingo ngenderwako

@@ -48,4 +48,6 @@ lngingo ya 3 Au sens de la présente loi organique, les concepts suivants signif
 
 12° réserviste: tout homme ou toute femme ayant subi un encadrement patriotique ou étant retraité de la FDNB n’appartennant pas à l’armée d’active, susceptible d’être rappelé ou appelé pour effectuer des activités militaires ou d’appui au développement du pays limitées dans le temps.
 
-- Uwushobora gutumwako gufasha ni umugabo canke umugore adaharurwa mu basirikare yaronse inyigisho z’ugukunda igihugu canke yakukurutse mu Rwego FDNB, ashobora kugarukanwa canke gutumwako iyo bikenewe kugira arangure ibikorwa vya gisirikare canke aterere mw’iterambere ry’igihugu mu kiringo gitomorwa. Section 2 Agace ka 2 Des principes de base lngingo ngenderwako
+- Uwushobora gutumwako gufasha ni umugabo canke umugore adaharurwa mu basirikare yaronse inyigisho z’ugukunda igihugu canke yakukurutse mu Rwego FDNB, ashobora kugarukanwa canke gutumwako iyo bikenewe kugira arangure ibikorwa vya gisirikare canke aterere mw’iterambere ry’igihugu mu kiringo gitomorwa.
+
+Section 2 Agace ka 2 Des principes de base lngingo ngenderwako
