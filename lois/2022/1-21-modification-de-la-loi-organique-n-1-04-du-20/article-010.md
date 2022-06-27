@@ -1,0 +1,3 @@
+# Article 10
+
+lngingo ya 10 Le patrimoine de la FDNB est insaisissable. L’Etat est garant de plein droit des obligations contractuelles ou délictuelles souscrites ou encourues par la FDNB. Amatungo y’Urwego FDNB ntashobora gufatwa n’ubutungane. Reta ni yo ibazwa ivyo Urwego FDNB rutegerejwe biri mu masezerano urwo Rwego rwagiraniye n’abandi canke ibijanye n’amakosa rwakoze. Lors des importations, la FDNB bénéficie des exonérations à l’occasion des différentes déclarations douanières et des facilités d’enlèvement. Mu gihe hari ivyo Urwego FDNB rwinjije mu gihugu, rurakurwako amakori n’amatagisi mu gihe c’ukumenyesha muri duwane ivyo rwinjije rukongera rukworoherezwa mu kubikura muri duwane.

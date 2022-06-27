@@ -1,0 +1,3 @@
+# Article 16
+
+Ingingo ya 16 La FDNB intervient exceptionnellement, en appui à la Police Nationale du Burundi, dans le maintien et le rétablissement de l’ordre public sur réquisition formelle de l’autorité habilitée. Urwego FDNB rurafasha rimwe na rimwe rufadikanije n’Urwego rw’lgiporisi c’igihugu mu kubungabunga no mu kugarukana umutekano mu gihugu bisabwe n’umutegetsi abifitiye ububasha kandi yisunze amategeko. Elle participe aussi aux missions de secours et d’assistance en cas de désastres et de catastrophes. Urwo rwego rurafasha kandi mu bikorwa vyo gutabara mu gihe habaye ivyaduka n’impanuka.

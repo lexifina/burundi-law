@@ -1,0 +1,3 @@
+# Article 98
+
+lngingo ya 98 La FDNB est placée sous la plus haute autorité du Président de la République qui en est le Commandant en Chef. Il déclare la guerre et signe l’armistice après consultation du Gouvernement, des Bureaux de l’Assemblée Nationale et du Sénat et du Conseil National de Sécurité. Umukuru w’lgihugu ni we mutegetsi mukuru w’Urwego FDNB ari na we Kizigenza mu ntwaramiheto. Ni we afata ingingo yo kugomora ingabo akongera agashira igikumu ku masezerano yo guhagarika ingwano, abanje kubigisha inama Urwego Nshikiranganji, lbiro vy’lnama Nshingamateka n’lbiro vy’lnama Nkenguzamateka hamwe n’lnama Nkuru y’lgihugu ijejwe Umutekano.
