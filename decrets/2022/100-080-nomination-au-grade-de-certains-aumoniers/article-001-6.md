@@ -1,0 +1,3 @@
+# Article 1 6
+
+En application de l’article 80 de la loi n°1/22 du 30 juin 2022 portant fixation du budget Général de la République du Burundi pour l’exercice 2022/2023, il est opéré une redevance de sureté sur toutes les marchandises importées en République du Burundi à l’exception des produits pétroliers, des importations destinées à l’usage officiel des missions diplomatiques et des organismes spécialisés des Nations Unies, à la Présidence de la République, aux secteurs de la Défense et de la Police ainsi qu’aux dons faits à l’Etat par des organismes d’assistance ou les partenaires techniques et financiers.

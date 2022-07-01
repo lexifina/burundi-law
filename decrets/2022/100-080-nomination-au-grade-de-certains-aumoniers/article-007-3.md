@@ -1,0 +1,5 @@
+# Article 7 3
+
+Sont éligibles au Programme d’Investissements Public et à la loi des finances, les projets remplissant les critères suivants :  Priorité aux projets en cours, qu’il faut achever ;  Appartenance claire du projet au Plan National de Développement (PND) 2018-2027;  Etude d’identification et de préfaisabilité disponible ainsi que la justification économique du projet ;  Financement assuré et contrepartie assurée au budget d’investissements ;  Pour les projets financés sur les ressources extérieures, avoir une convention de financement signée ;  Etude de faisabilité disponible et Taux de rentabilité interne > = 10% pour les projets productifs et d’infrastructure ; analyse coûts-avantages pour les projets sociaux.
+
+Chapitre 2 Du suivi
