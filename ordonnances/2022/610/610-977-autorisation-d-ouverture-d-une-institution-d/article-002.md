@@ -1,0 +1,3 @@
+# Article 2
+
+L’institution d’enseignement Supérieur dénommée « Olivia University Bujumbura » est autorisée à ouvrir ses portes avec trois facultés comprenant les programmes de formation de niveau baccalauréat suivants : Faculty of Computing and Sciences, departments: 1. Computer Science ; 2. Cyber Security; 3. Information Systems ; 4. Software Engineering ; 5. Artificial intelligence. Faculty of Engineering and Technology, departments: 1. Civil Engineering ; 2. Telecommunication Engineering; 3. Mining Engineering; 4. Architecture. Faculty of Management and Social Sciences, departments: 1. Economies ; 2. Banking and Finance ; 3. Accounting; 4. Business administration.
