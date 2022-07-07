@@ -6,4 +6,6 @@ a. Couvrir tous les dommages liés aux manquements. Les frais de réparation des
 
 b. Etre suspendue ou rayée de la liste des détenteurs de licence par le Ministère ayant les Affaires Etrangères dans ses attributions conformément aux lois et règlements burundais en vigueur ;
 
-c. Etre poursuivie en justice, si nécessaire, conformément à la loi burundaise en vigueur. Chapitre IV Des dispositions transitoires et finales
+c. Etre poursuivie en justice, si nécessaire, conformément à la loi burundaise en vigueur.
+
+Chapitre IV Des dispositions transitoires et finales
