@@ -24,4 +24,6 @@ b) les canalisations des bornes fontaines et leur entretien dans les rues et rou
 
 8° toute personne propriétaire des lieux de lavage automobile et prestataire d’autres services entrainant le mouillage du sol est tenue d’en diriger les eaux et do [se contenir afin de rie pas endommager la route;
 
-9° tous les chemins aboutissant à une route, à leur intersection, recueillent leurs eaux au moyen d’un aqueduc qui est à la charge des propriétaires de ces chemins. CHAPITRE IV DE L’OCCUPATION ET EXECUTION DES TRAVAUX DANS L’EMPRISE DU DOMAINE PUBLIC ROUTIER
+9° tous les chemins aboutissant à une route, à leur intersection, recueillent leurs eaux au moyen d’un aqueduc qui est à la charge des propriétaires de ces chemins.
+
+CHAPITRE IV DE L’OCCUPATION ET EXECUTION DES TRAVAUX DANS L’EMPRISE DU DOMAINE PUBLIC ROUTIER

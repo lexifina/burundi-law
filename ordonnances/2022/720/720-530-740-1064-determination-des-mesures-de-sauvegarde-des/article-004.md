@@ -62,4 +62,6 @@ Dans la présente ordonnance ministérielle conjointe, les termes ci-après ont 
 
 25° Trottoir: aire de circulation destinée principalement aux piétons, présentant une différence de niveau par rapport à la chaussée ;.
 
-26° Voie publique: toute l’emprise des routes, des rues, des places publiques, des aires de parcage, des chemins, des sentiers, des ponts, des bacs et, de façon générale, toutes les voies ouvertes à la circulation par terre. CHAPITRE II DE L’EMPRISE DES ROUTES/DIMMENSION DES ROUTES
+26° Voie publique: toute l’emprise des routes, des rues, des places publiques, des aires de parcage, des chemins, des sentiers, des ponts, des bacs et, de façon générale, toutes les voies ouvertes à la circulation par terre.
+
+CHAPITRE II DE L’EMPRISE DES ROUTES/DIMMENSION DES ROUTES

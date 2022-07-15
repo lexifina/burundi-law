@@ -10,4 +10,6 @@ c) interdiction de construire ;
 
 d) résection de talus ;
 
-e) suppression de tous les éléments naturels gênant la visibililé. CHAPITRE V DES DISPOSITIONS FINALES
+e) suppression de tous les éléments naturels gênant la visibililé.
+
+CHAPITRE V DES DISPOSITIONS FINALES
