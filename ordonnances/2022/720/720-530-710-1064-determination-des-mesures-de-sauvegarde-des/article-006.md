@@ -1,0 +1,3 @@
+# Article 6
+
+L’implantation des parcelles de part et d’autre de la voie publique routière doit être séparée par une distance correspondant à l’emprise de la route considérée. Pour des contraintes techniques pouvant apparaitre sur terrains, la voie peut être installée d’un côté ou d’un autre dans l’emprise de la route, dans ce cas prévoir des solutions intermédiaires. L’implantation des maisons dans des parcelles situées dans des sites lotis à l’alignement des emprises doit se faire en respectant le règlement d’occupation du site. Pour de sites non lotis, l’implantation des maisons doit respecter les normes d’emprise et un recul d’au moins égale à 3m à partir de la limite de l’emprise de la voie routière.
