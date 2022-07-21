@@ -4,7 +4,7 @@ La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
 
 Fait à Bujumbura, Le 21/07/2022 Prof. François HAVYARIMANA (sé) NOM DE L’ECOLE : ECOLE BUTANUKA COMMUNITY ACADEMY Cadre légal Nature de la requête Rapport du service technique de la CNEFPF Avis de la CNEFPF Recommandation Recommandation
 
-- Association Organisatrice : Dreaming for change(D4C) Agrée par l’OM N°530/068 du 26/04/2018
+- Association Organisatrice : Dreaming for change(D4C) Agrée par l’OM N°530/068 du
 
 - Les élèves ne sont pas assurés
 
