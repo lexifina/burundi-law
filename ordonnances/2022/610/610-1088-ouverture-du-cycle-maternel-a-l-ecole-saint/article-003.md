@@ -1,0 +1,5 @@
+# Article 3
+
+La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 21/07/2022 Prof. François HAVYARIMANA (sé). NOM DE L’ECOLE: SAINT RAPHAEL Cadre légal Nature de la requête Rapport du service technique de la CNEFPF Avis de la CNEFPF Propositions Recommandations Association organisatrice : Association Raphael Burundi "ARB") Agrée par l’OM N°530/711 du 27/04/2010 Bordereau de demande d’autorisation d’ouverture existe Autorisation d’ouverture du cycle maternel - Le cadre légal est respecté; Avis favorable à l’ouverture du cycle maternel - Le nom de l’école est différent de celui de l’association organisatrice de l’école; - Personnel administratif suffisant qualifié; - personnel enseignant en cours de recrutement - Le programme existe est conforme au programme national; - les supports pédagogiques sont en commande; - Le domaine de l’école est vaste : 2 ha, propres à l’association - Les locaux sont propres à l’association organisatrice - une classe construite en matériaux durables répond aux normes - La salubrité est assurée - Cour de récréation suffisante - Disponibilité de l’eau et de l’électricité
