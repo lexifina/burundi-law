@@ -10,4 +10,6 @@ Pour être agréée, toute société privée de gardiennage et de surveillance d
 
 4° avoir un personnel ayant subi une formation patriotique et celle technique assurées par les services techniques de la Police Nationale du Burundi;
 
-5° avoir la capacité pour chaque poste à communiquer avec le siège. CHAPITRE III DES DISPOSITIONS APPLICABLES AU PERSONNEL
+5° avoir la capacité pour chaque poste à communiquer avec le siège.
+
+CHAPITRE III DES DISPOSITIONS APPLICABLES AU PERSONNEL
