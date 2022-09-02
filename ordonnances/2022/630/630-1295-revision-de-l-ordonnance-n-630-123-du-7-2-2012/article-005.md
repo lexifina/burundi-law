@@ -26,4 +26,6 @@ Le Programme National de Lutte contre le Sida, les Infections sexuellement Trans
 
 - Planifier et superviser en partenariat avec les autres parties prenantes les enquêtes en rapport avec le VIH/Sida, les IST et les hépatites virales au niveau national;
 
-- Produire des rapports périodiques d’activités; Chapitre III De l’organisation administrative du programme
+- Produire des rapports périodiques d’activités;
+
+Chapitre III De l’organisation administrative du programme

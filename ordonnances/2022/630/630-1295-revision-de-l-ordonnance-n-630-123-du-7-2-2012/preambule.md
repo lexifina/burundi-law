@@ -26,4 +26,6 @@ Vu le décret n°100/175 du 02 août 2016 portant réorganisation, fonctionnemen
 
 Vu le décret n°100/007 du 28 juin 2020 portant révision du décret n°100/037 du 19 avril 2018 portant structure, fonctionnement et missions du Gouvernement de la République du Burundi,
 
-Vu le décret n°100/093 du 09 novembre 2020 portant organisation et fonctionnement du ministère de la santé publique et de la lutte contre le Sida. Revu l’ordonnance n°630/l23 du 07 février 2012 portant création du programme national de lutte contre le Sida et les infections sexuellement transmissibles. Chapitre I Des dispositions générales
+Vu le décret n°100/093 du 09 novembre 2020 portant organisation et fonctionnement du ministère de la santé publique et de la lutte contre le Sida. Revu l’ordonnance n°630/l23 du 07 février 2012 portant création du programme national de lutte contre le Sida et les infections sexuellement transmissibles.
+
+Chapitre I Des dispositions générales
