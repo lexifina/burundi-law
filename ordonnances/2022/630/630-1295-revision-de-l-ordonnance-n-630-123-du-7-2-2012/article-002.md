@@ -1,0 +1,3 @@
+# Article 2
+
+Le Programme National de Lutte contre le Sida, les Infections Sexuellement Transmissibles et les Hépatites Virales est la structure technique de référence nationale pour toutes les activités en rapport avec la réponse médicale et sanitaire de lutte contre le VIH/Sida, les IST et les hépatites virales. Il est chargé de proposer des politiques et stratégies de prévention, de diagnostic, de prise en charge, de suivi, de participation à la mobilisation sociale, la réduction de l’impact et la vulnérabilité face au VIH/Sida, aux hépatites virales et IST ainsi qu’à la mobilisation des ressources.

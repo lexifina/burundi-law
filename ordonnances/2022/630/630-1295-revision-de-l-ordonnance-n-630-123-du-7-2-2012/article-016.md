@@ -1,0 +1,3 @@
+# Article 16
+
+Le service de renforcement des interventions de prévention du VIH/IST/Hépatites virales et mobilisation sociale est chargé de la promotion des comportements et pratiques visant à réduire la transmission du VIH, des IST et des hépatites virales par l’information, éducation et communication / communication pour le changement de comportement (IEC/CCC). Il est aussi chargé de la promotion de la prophylaxie préexposition, la promotion de la circoncision masculine, la promotion du dépistage du VIH, des IST et des hépatites virales ainsi que l’organisation des campagnes de mobilisation sociale.
