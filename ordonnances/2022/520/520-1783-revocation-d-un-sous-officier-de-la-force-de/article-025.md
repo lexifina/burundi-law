@@ -1,0 +1,5 @@
+# Article 25
+
+Le laboratoire doit avoir au moins les caractéristiques suivantes : - 7 m de largeur sur 8 m de longueur; - hauteur sous plafond de 3,20 m, toiture en tôles en bon état, murs en briques cuites, pavement cimenté ; - éclairage naturel respectant l’orientation de la salle pignon Est-Ouest et absence d’ombrage dans l’environnement immédiat; - tableau à craies noir ou vert placé à 80 cm du sol et ayant comme dimensions d’1 m de largeur et 6 m de longueur; - une paillasse pour les expérimentations ; - des armoires pour la conservation des appareils et produits de laboratoire ; - Un lavabo.
+
+Section 3 Equipements
