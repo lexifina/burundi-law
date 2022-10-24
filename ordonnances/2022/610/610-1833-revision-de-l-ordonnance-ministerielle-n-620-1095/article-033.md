@@ -1,0 +1,3 @@
+# Article 33
+
+Le Ministre ayant l’éducation et la formation dans ses attributions, décide du gel de recrutement des élèves/apprenants dans les cas suivants : - inscription irrégulière des élèves ; - inscription des élèves après le premier trimestre sans autorisation préalable du Ministre ; - taux de réussite aux évaluations nationales inférieur à 20% pendant trois années consécutives; - non-respect de l’Ordonnance Ministérielle n°620/630/972 du 17/07/2018 portant réglementation des frais scolaires et autres contributions des parents; - équipements spécifiques de la section ou filière insuffisants ; - le non-respect de l’article 18 de cette ordonnance.
