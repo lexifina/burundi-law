@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Membres de la Commission Vérité et Réconciliation : 1. Amb. Pierre Claver NDAYICARIYE : Président ; 2. Révérend Pasteur Clément Noah NINZIZA :Vice-Président ; 3. Madame Léa Pascasie NZIGAMASABO : Secrétaire ; 4. Monsieur Aloys BATUNGWANAYO. : Membre; 5. Amb. Stella BUDIRIGANYA : Membre; 6. Sheikh Sadiki Abdallah KAJANDI : Membre; 7. Amb. Laurent KAVAKURE : Membre; 8. Révérend Pasteur Elie NAHIMANA : Membre; 9. Maître Déo NDIKUMANA : Membre; 10. Madame Alice NIJIMBERE: Membre; 11. Abbé Pascal NIYONKURU : Membre 12. Hon. Denise SINDOKOTSE: Membre; 13. Madame Charlotte RUKUNDO: Membre.
