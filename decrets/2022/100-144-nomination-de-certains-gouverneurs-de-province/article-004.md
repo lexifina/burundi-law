@@ -4,4 +4,4 @@ Le Ministre de l’Intérieur, du Développement Communautaire et de la Sécurit
 
 Fait à Gitega, le 02 novembre 2022 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le premier ministre, Gervais NDIRAKOBUCA (sé) Lieutenant Général de Police.
 
-Le Ministre de l’Intérieur, du Développement Communautaire et de la Sécurité Publique, Hon. Martin NITERETSE (sé) N°100/149 14/11/2022
+Le Ministre de l’Intérieur, du Développement Communautaire et de la Sécurité Publique, Hon. Martin NITERETSE (sé)
