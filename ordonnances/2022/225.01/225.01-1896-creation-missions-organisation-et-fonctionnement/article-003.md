@@ -14,4 +14,4 @@ En plus de la Coordination, le Centre comprend les services qui suivent:
 
 – Le service de l’administration et des finances
 
-– Tout autre service au bénéfice du/de la survi­ vante
+– Tout autre service au bénéfice du/de la survivante
