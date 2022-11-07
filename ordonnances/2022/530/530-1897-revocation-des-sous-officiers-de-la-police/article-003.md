@@ -1,0 +1,5 @@
+# Article 3
+
+L’inspecteur général de la Police nationale du Burundi est chargé de l’exécution de la présente ordonnance qui entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura le 07/11/2022 Martin NITERETSE (sé). N°630/1899 08/11/2022
