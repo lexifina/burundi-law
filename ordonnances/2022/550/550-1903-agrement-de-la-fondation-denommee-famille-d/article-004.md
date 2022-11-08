@@ -2,4 +2,4 @@
 
 La présente Ordonnance entre en vigueur le jour de sa signature.
 
-Fait à Bujumbura, le 08/11/2022 Domine BANYANKIMBONA (sé). N°540/1904 09/11/2022
+Fait à Bujumbura, le 08/11/2022 Domine BANYANKIMBONA (sé).
