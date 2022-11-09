@@ -4,4 +4,4 @@ Des frais de renseignement et de communication du Secrétaire Permanent Tenant c
 
 – un million de francs Burundi (1 000 000 BIF) pour les frais de renseignement mensuels;
 
-– deux cent cinquante mille francs Burundi (250 000 BIF) pour les frais de communication men­ suels.
+– deux cent cinquante mille francs Burundi (250 000 BIF) pour les frais de communication mensuels.
