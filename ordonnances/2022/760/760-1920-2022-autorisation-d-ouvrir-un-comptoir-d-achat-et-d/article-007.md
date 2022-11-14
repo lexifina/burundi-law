@@ -1,0 +1,3 @@
+# Article 7
+
+Le comptoir TANGANYIKA MINERALS LTD fournira au Ministère de l’Hydraulique, de l’Ener­ gie et des Mines le rapport trimestriel sur les acti­ vités d’achat et d’exportation en précisant la quantité des devises rapatriées.
