@@ -1,5 +1,5 @@
 # Article 10
 
-Le Directeur Général de l’Office Burundais des Mines et Carrières est chargé de la mise en appli­ cation de la présente Ordonnance qui entre en vigueur le jour de sa signature.
+Le Directeur Général de l’Office Burundais des Mines et Carrières est chargé de la mise en application de la présente Ordonnance qui entre en vigueur le jour de sa signature.
 
-Fait à Bujumbura, le 14/11/2022 Le Ministre de l’Hydraulique, de l’Energie et des Mines Ir. Ibrahim UWIZEYE (sé). N°520/1922 14/11/2022
+Fait à Bujumbura, le 14/11/2022 Le Ministre de l’Hydraulique, de l’Energie et des Mines Ir. Ibrahim UWIZEYE (sé).
