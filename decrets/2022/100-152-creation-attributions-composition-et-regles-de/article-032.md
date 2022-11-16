@@ -1,0 +1,3 @@
+# Article 32
+
+Le GTS en charge des statistiques sur la justice, la défense, la sécurité, la paix, la coopération et la bonne gouvernance comprend les membres du CTIS provenant des ministères en charge de la justice, de la défense nationale, de la sécurité publique; affaires étrangères et de la Commu-nauté Est Africaine. Il comprend également les personnes ressources en charge des statistiques sur la Gouvernance à l’Autorité Statistique Nationale, un représentant du Service National de Législation, un représen-tant du Conseil National de Sécurité et un repré-sentant du Service National de Renseignement.
