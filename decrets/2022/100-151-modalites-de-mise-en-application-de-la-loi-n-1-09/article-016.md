@@ -6,4 +6,4 @@ Fait à Gitega, le 16 novembre 2022 Evariste NDAYISHIMIYE (sé) Par le Présiden
 
 Le Ministre des Finances, du Budget et de la Planification Economique Hon. Audace NIYONZIMA (sé)
 
-Le Ministre de la Solidarité Nationale, des Affaires Sociales, des Droits de la Personne Humaine et du Genre, Hon. Imelde SABUSHIMIKE (sé) N°100/152 16/11/2022
+Le Ministre de la Solidarité Nationale, des Affaires Sociales, des Droits de la Personne Humaine et du Genre, Hon. Imelde SABUSHIMIKE (sé)
