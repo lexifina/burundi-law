@@ -4,4 +4,4 @@ Le Ministre des Finances, du Budget et de la Pla-nification Economique est charg
 
 Fait à Gitega, le 16 novembre 2022 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Gervais NDIRAKOBUCA (sé) Lieutenant Général de Police.
 
-Le Ministre des Finances, du Budget et de la Planification Economique, Hon. Audace NIYONZIMA (sé). N°100/154 22/11/2022
+Le Ministre des Finances, du Budget et de la Planification Economique, Hon. Audace NIYONZIMA (sé).
