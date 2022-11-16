@@ -34,4 +34,4 @@ Les infrastructures abritant le cycle Fondamental ont été réhabilitées tel q
 
 Les sanitaires sont au nombre de 8 dont 4 pour les filles, 3 pour les garçons et 1 pour le personnel.
 
-Les conditions d’hygiène au niveau des sanitaires ont été améliorées. Avis favorable à la réouverture de l’Ecole Fondamentale INKINGI SCHOOL DE BUKEYE à partir de la rentrée scolaire 2023-2024 étant donné que le premier trimestre touche presque à la fin de la période des cours. Chauler les murs. BOB N°11BIS/2022 2198 N°520/1933 16/11/2022
+Les conditions d’hygiène au niveau des sanitaires ont été améliorées. Avis favorable à la réouverture de l’Ecole Fondamentale INKINGI SCHOOL DE BUKEYE à partir de la rentrée scolaire 2023-2024 étant donné que le premier trimestre touche presque à la fin de la période des cours. Chauler les murs. BOB N°11BIS/2022 2198
