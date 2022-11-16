@@ -22,4 +22,6 @@ Le CNIS est chargé de proposer les orientations de politique générale en mati
 
 – il anime et développe le dialogue entre les pro-ducteurs et les utilisateurs des données statis-tiques;
 
-– il traite de toute question relevant de la coordi-nation des systèmes d’informations statistiques se rapportant à l’information économique, sociale et démographique. Chapitre III De la composition du comité national de l’information statistique (CNIS)
+– il traite de toute question relevant de la coordi-nation des systèmes d’informations statistiques se rapportant à l’information économique, sociale et démographique.
+
+Chapitre III De la composition du comité national de l’information statistique (CNIS)

@@ -18,4 +18,6 @@ Le CTIS est un organe chargé d’apporter un appui technique au CNIS. A ce titr
 
 – l’émission d’avis techniques sur les opérations statistiques réalisées au Burundi;
 
-– la validation des résultats des travaux statis-tiques effectués, notamment les enquêtes et recensements statistiques et les synthèses sta-tistiques réalisés au niveau national avant leur diffusion. Chapitre VI De la composition du comité technique de l’information statistique (CTIS)
+– la validation des résultats des travaux statis-tiques effectués, notamment les enquêtes et recensements statistiques et les synthèses sta-tistiques réalisés au niveau national avant leur diffusion.
+
+Chapitre VI De la composition du comité technique de l’information statistique (CTIS)

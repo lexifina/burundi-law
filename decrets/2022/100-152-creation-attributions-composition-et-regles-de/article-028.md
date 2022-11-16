@@ -14,4 +14,6 @@ Les GTS s’occupent des questions statistiques de leurs domaines respectifs. A 
 
 – présenter les rapports des travaux leur confiés par le CTIS ou issus de leurs propres initia-tives;
 
-– s’acquitter de toute autre tâche qui pourrait leur être confiée par le CTIS. Chapitre XI De la composition des groupes de travail statistiques (GTS)
+– s’acquitter de toute autre tâche qui pourrait leur être confiée par le CTIS.
+
+Chapitre XI De la composition des groupes de travail statistiques (GTS)

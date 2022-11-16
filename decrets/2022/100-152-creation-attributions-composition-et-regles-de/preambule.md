@@ -22,4 +22,6 @@ Sur proposition du Ministre des Finances, du Budget et de la Planification Econo
 
 Le Conseil des Ministres ayant délibéré;
 
-Décrète Titre I Du comité national de l’information statistique (CNIS) Chapitre I De la création et de l’objet
+Décrète Titre I Du comité national de l’information statistique (CNIS)
+
+Chapitre I De la création et de l’objet
