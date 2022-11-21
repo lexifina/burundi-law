@@ -1,0 +1,5 @@
+# Article 30
+
+La présente ordonnance entre en vigueur le jour de sa signature.
+
+La Ministre du Commerce, du Transport, de l’Industrie et du Tourisme Marie Chantal NIJIMBERE (sé). C. Enclos royal et Maison de la nature Adulte Burundais 5000 BIF EAC 5USD Expatrié 10 USD Enfant (moins de 3ans) Burundais, EAC, Expatrié Gratuit Enfant (de3 à 9ans) Burundais 1 000BIF EAC 1USD Expatrié 2USD Enfant de (10 à 17ans) Burundais 2000FBU EAC 2USD Expatrié 5USD Groupe d’étudiants ou d’élèves (+20) Nationaux ou EAC Réduction de 20% Expatrié Réduction de 10% Elèves sous encadrement Burundais, EAC ou Expatrié 1000 BIF ou 2USD par tête D. Accès au jar-din et hangar de sculpture Adulte Burundais 2000 BIF EAC 2USD Expatrié 5 USD Enfant (moins de 3ans) Burundais, EAC, Expatrié Gratuit Enfant (de3 à 9ans) Burundais 500BIF EAC 1USD Expatrié 2USD Enfant de (10 à 17ans) Burundais 1 000BIF EAC 1USD Expatrié 2USD Groupe d’étudiants ou d’élèves (+20) Nationaux ou EAC Réduction de 20% Expatrié Réduction de 10% Elèves sous encadrement Burundais, EAC ou Expatrié 1000 BIF ou 1 USD par tête N°520/1956 22/11/2022
