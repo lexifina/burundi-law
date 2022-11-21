@@ -28,4 +28,6 @@ Le Musée Vivant de Bujumbura est implanté sur une superficie de trois (3) hect
 
 – La nouvelle maison de billetterie;
 
-– Le Parking. Section 4 Du personnel et du fonctionnement du musée vivant
+– Le Parking.
+
+Section 4 Du personnel et du fonctionnement du musée vivant
