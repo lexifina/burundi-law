@@ -1,0 +1,11 @@
+# Loi n°1/38 du 30 novembre 2022
+
+PORTANT RATIFICATION PAR LA RÉPUBLIQUE DU BURUNDI DE L’ACCORD DE DON IDA N°E0700-BI ENTRE LA RÉPUBLIQUE DU BURUNDI ET L’ASSOCIATION INTERNATIONALE DE DÉVELOPPEMENT EN FAVEUR DU PROJET DE FACILITATION DU COMMERCE ET INTÉGRATION DANS LA RÉGION DES GRANDS LACS (PFCIGL), SIGNÉ À BUJUMBURA, LE 06 AOÛT 2022
+
+Le Président de la République,
+
+Vu la Constitution de la République du Burundi;
+
+Le Conseil des Ministres ayant délibéré; L’Assemblée Nationale et le Sénat ayant adopté;
+
+Promulgue
