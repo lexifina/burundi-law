@@ -1,0 +1,11 @@
+# Loi n°1/36 du 30 novembre 2022
+
+PORTANT RATIFICATION PAR LA RÉPUBLIQUE DU BURUNDI DE L’ACCORD DE DON IDA N°E0930-BI ENTRE LA RÉPUBLIQUE DU BURUNDI ET L’ASSOCIATION INTERNATIONALE DE DÉVELOPPEMENT EN FAVEUR DU PROJET D’APPUI AUX FONDATIONS DE L’ECONOMIE NUMÉRIQUE (PAFEN), SIGNÉ À BUJUMBURA, LE 1ER SEPTEMBRE 2022
+
+Le Président de la République,
+
+Vu la Constitution de la République du Burundi;
+
+Le Conseil des Ministres ayant délibéré; L’Assemblée Nationale et le Sénat ayant adopté;
+
+Promulgue
