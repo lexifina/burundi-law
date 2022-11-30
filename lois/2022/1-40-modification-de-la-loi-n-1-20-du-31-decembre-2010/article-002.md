@@ -18,4 +18,6 @@ b) Le personnel de réserve comprend:
 
 – les sous-officiers en retraite anticipée jusqu’à leur âge légal de retraite;
 
-– le personnel de réserve assimilé aux sous-offi-ciers en cas de mobilisation sous le drapeau. Chapitre II Des conditions d’admission
+– le personnel de réserve assimilé aux sous-offi-ciers en cas de mobilisation sous le drapeau.
+
+Chapitre II Des conditions d’admission

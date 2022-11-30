@@ -28,4 +28,6 @@ l) des indemnités de réforme;
 
 m)des bonifications de stages.
 
-Les modalités d’octroi des droits ci-dessus énumé-rés sont déterminées par un texte règlementaire. Chapitre VII De la carrière du sous-officier
+Les modalités d’octroi des droits ci-dessus énumé-rés sont déterminées par un texte règlementaire.
+
+Chapitre VII De la carrière du sous-officier
