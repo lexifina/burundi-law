@@ -8,4 +8,4 @@ Vu et scellé du sceau de la République Le Ministre de la Justice Domine BANYAN
 
 Fait à Gitega, le 30 novembre 2022 Evariste NDAYISHIMIYE (sé) Par le Président de la République
 
-Vu et scellé du sceau de la République Le Ministre de la Justice Domine BANYANKIMBONA (sé). N°1/36 30/11/2022
+Vu et scellé du sceau de la République Le Ministre de la Justice Domine BANYANKIMBONA (sé).
