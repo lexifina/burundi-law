@@ -4,4 +4,4 @@ Le Ministre de la Défense Nationale et des Anciens Combattants est chargé de l
 
 Fait à Gitega, le 20 novembre 2022 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Gervais NDIRAKOBUCA (sé) Lieutenant Général de Police.
 
-Le Ministre de la Défense Nationale et des Anciens Combattants Ir Alain Tribert MUTABAZI (sé). N°100/156 30/11/2022
+Le Ministre de la Défense Nationale et des Anciens Combattants Ir Alain Tribert MUTABAZI (sé).
