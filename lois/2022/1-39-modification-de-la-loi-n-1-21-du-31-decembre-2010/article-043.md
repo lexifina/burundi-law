@@ -32,4 +32,6 @@ n) des bonifications de stages;
 
 o) des frais de représentation.
 
-Les modalités d’octroi des droits ci-dessus énumé-rés sont déterminées par un texte règlementaire. Chapitre VII De la carrière d’officier
+Les modalités d’octroi des droits ci-dessus énumé-rés sont déterminées par un texte règlementaire.
+
+Chapitre VII De la carrière d’officier
