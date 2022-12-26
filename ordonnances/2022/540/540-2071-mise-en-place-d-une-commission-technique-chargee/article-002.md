@@ -1,10 +1,10 @@
 # Article 2
 
-La Commission Technique chargée d’étudier les dossiers relatifs à la demande de conventions fis­ cales entre le Burundi et les autres pays est com­ posée des membres ci-après :
+La Commission Technique chargée d’étudier les dossiers relatifs à la demande de conventions fiscales entre le Burundi et les autres pays est composée des membres ci-après :
 
-– Me Julius BUCUMI, Directeur des Enquêtes sur les Taxes Internes et Douanes à l’OBR, Pré­ sident de la Commission;
+– Me Julius BUCUMI, Directeur des Enquêtes sur les Taxes Internes et Douanes à l’OBR, Président de la Commission;
 
-– Hon. Pierre Claver KAYANZARI, Conseiller à la Direction de la Politique Fiscale au Minis­ tère des Finances, du Budget et de la Planifica­ tion Economique, Vice-président;
+– Hon. Pierre Claver KAYANZARI, Conseiller à la Direction de la Politique Fiscale au Ministère des Finances, du Budget et de la Planification Economique, Vice-président;
 
 – Monsieur Ladislas BIGIRIMANA, Chef d’Equipe Contentieux Fiscal à la Direction des Affaires Juridiques et Gestion du Contentieux à l’OBR, Secrétaire;
 
@@ -14,4 +14,4 @@ La Commission Technique chargée d’étudier les dossiers relatifs à la demand
 
 – Monsieur Jean Claude NSHIMIRIMANA, Chef d’Equipe Rapprochement des Recettes Fiscales à la Direction des Moyens Contribuables à l’OBR, Membre;
 
-– Monsieur Evariste NYABENDA, Conseiller à la Direction Chargée des Relations avec l’Europe, l’Amérique et les Caraïbes au Minis­ tère des Affaires Etrangères et de la Coopéra­ tion au Développement, Membre.
+– Monsieur Evariste NYABENDA, Conseiller à la Direction Chargée des Relations avec l’Europe, l’Amérique et les Caraïbes au Ministère des Affaires Etrangères et de la Coopération au Développement, Membre.
