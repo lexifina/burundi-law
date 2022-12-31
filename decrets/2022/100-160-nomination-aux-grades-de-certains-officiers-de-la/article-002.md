@@ -1,0 +1,3 @@
+# Article 2
+
+Sont nommés au grade de Major de Police (Maj Pol) à la date du 31 décembre 2022, les Capitaines de Police (Capt Pol) dont les noms, prénoms et matricules suivent: Série Nom et prénom Matricule 1. AHISHAKIYE Jean Marie OPN 1439 2. BIZINDAVYI Fidèle OPN 1443 3. DUSABE Claudine OPN 1486 4. HAGURUKANUBUGABO Bienfait OPN 1442 5. KABURA Dieudonné OPN 1437 6. KAMIKAZI Nadia OPN 1455 7. KANKINDI Odette OPN 1479 8. KANKURIZE Francine OPN 1484 9. KANYABWERO Spés OPN 1472 10. KAZOKURA Félix OPN 1474 11. KUBWAYO Amani OPN 1436 12. KWITONDA Eric OPN 1470 13. KWIZERA Odette OPN 1454 14. MANIRAKIZA Jeanine OPN 1485 15. MANIRAMBONA Aimé OPN 1440 16. MBAZUMUTIMA Christian OPN 1467 17. MBONIHANKUYE Roger OPN 1430 18. MINANI Agricole OPN 1478 19. MPABANSI Pamphile OPN 1435
