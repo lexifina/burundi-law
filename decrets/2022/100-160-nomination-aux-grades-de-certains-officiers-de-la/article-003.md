@@ -1,3 +1,3 @@
 # Article 3
 
-Toutes dispositions antérieures contraires au pré­ sent Décret sont abrogées.
+Toutes dispositions antérieures contraires au présent Décret sont abrogées.
