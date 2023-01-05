@@ -26,7 +26,7 @@ Vu le Décret n°100/166 du 12 juillet 2021 portant Modification du Décret n°1
 
 Vu l’Ordonnance Ministérielle n°610/786 du 16/05/2017 portant Fixation des Termes de Référence pour l’Evaluation d’une Institution d’Enseignement Supérieur en vue de l’Octroi d’une Autorisation d’ouverture;
 
-Vu l’Ordonnance Ministérielle n°610/1073 du 17 juin 2020 portant Révision de l’Ordonnance Ministérielle n°610/294 du 24 février 2015 portant Fixation des Principes Généraux applicables aux personnels enseignants des Etablissements d’Enseignement Supérieur; Vu l’Ordonnance Ministérielle N°610/114/du 23/06/2020 portant Agrément des référentiels d’accréditation des institutions d’enseignement supérieur au Burundi;
+Vu l’Ordonnance Ministérielle n°610/1073 du 17 juin 2020 portant Révision de l’Ordonnance Ministérielle n°610/294 du 24 février 2015 portant Fixation des Principes Généraux applicables aux personnels enseignants des Etablissements d’Enseignement Supérieur; Vu l’Ordonnance Ministérielle 23/06/2020 portant Agrément des référentiels d’accréditation des institutions d’enseignement supérieur au Burundi;
 
 Vu l’Ordonnance Ministérielle N°610/1135 du 24/06/2020 portant Approbation des référentiels d’accréditation des programmes d’enseignement supérieur au Burundi;
 
