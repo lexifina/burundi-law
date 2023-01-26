@@ -1,0 +1,7 @@
+# Article 4
+
+Le régime d’imposition forfaitaire sur le transport international routier est fixé annuellement et il est comme suit: 1. Agence de transport international routier des personnes par véhicules de moins de 30 places assises enregistrés au Burundi: 100 000 Bif 2. Agence de transport international routier des personnes par véhicules de plus de 30 places assises enregistrés au Burundi: 200 000 Bif 3. Agence de transport international routier des personnes par véhicules de moins de 30 places assises enregistrés à l’étranger: 60 dollars américains (USD) 4. Agence de transport international routier des personnes par véhicules de plus de 30 places assises enregistrés à l’étranger: 150 dollars américains (USD); 5. Agence de transport international routier des véhicules importés de l’étranger: 400.000 BIF; 6. Agence de transport international routier des marchandises par des poids lourds, enregistrée au Burundi: 800 .000 BIF 7.
+
+Les chauffeurs individuels non enregistrés dans les agences de transport international routier des véhicules importés doivent être en possession d’une autorisation du Ministère en charge des Transports dans ses attributions moyennant payement de 50 000 BIF chaque fois qu’ils amènent un véhicule. 8.
+
+Les camions individuels effectuant le Transport International routier qui ne sont pas enregistrés dans la liste des agences de transport International routier doivent être en possession d’un permis de transport délivré par la Direction Général des Transports.
