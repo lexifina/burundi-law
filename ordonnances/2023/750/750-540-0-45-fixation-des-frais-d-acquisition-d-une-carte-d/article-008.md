@@ -1,0 +1,3 @@
+# Article 8
+
+Les frais d’acquisition d’une carte d’agrément par les bâtiments navigant dans les eaux intérieures du Burundi sont fixés comme suit: 1. Pour les bateaux de pêche artisanal: 10 dollars américains (USD); 2. Pour les bateaux de pêche industriel: 50 dollars américains (USD); 3. Pour les bateaux commerciaux ayant une capacité inférieurs à 100 tonnes: 45 dollars américains (USD); 4. Pour les bateaux ayant une capacité variant entre 100 et 500 tonnes: 200 dollars américains (USD); 5. Pour les bateaux ayant une capacité variant entre 500 et 1000 tonnes: 300 dollars américains (USD); 6. Pour les bateaux qui ont une capacité de plus de 1000 tonnes: 5000 dollars américains (USD).

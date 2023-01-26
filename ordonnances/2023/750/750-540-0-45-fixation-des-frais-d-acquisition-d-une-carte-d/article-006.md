@@ -1,0 +1,5 @@
+# Article 6
+
+Les frais d’acquisition d’une carte d’agrément par les agences de transport international terrestre sont fixés comme suit: 1. Agence de transport international par voitures, enregistrée à l’étranger: 200 dollars américains (USD); 2. Agence de transport international par voitures, enregistrée au Burundi: 250 000 BIF; 3. Agence de transport international par minibus, enregistrée à l’étranger: 400 dollars américains (USD); 4. Agence de transport international par minibus, enregistrée au Burundi: 500.000BIF; 5. Agence de transport international par bus, enregistrée à l’étranger: 700 dollars américains (USD); 6. Agence de transport international par bus, enregistrée au Burundi: 1.000.000 BIF; 7. Agence de transport des véhicules importés de l’étranger : 2.000.000 BIF; 8. Agence de transport international des marchandises par des poids lourds, enregistrée au Burundi: 4.000.000 BIF 9.
+
+Les chauffeurs individuels qui ne sont pas employés dans les agences de transport des véhicules importés doivent être en possession d’une autorisation du Ministère en charge des Transports moyennant payement de 50 000 BIF chaque fois qu’ils amènent un véhicule.
