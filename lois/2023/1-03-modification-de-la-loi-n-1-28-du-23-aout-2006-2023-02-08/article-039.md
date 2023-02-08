@@ -1,0 +1,3 @@
+# Article 39
+
+Après avoir pris connaissance du rapport, le maître de stage y apporte son appréciation et le transmet, quinze jours au plus tard, au responsable de la gestion du personnel du ministère. Après analyse détaillée du rapport de stage, le responsable de la gestion du personnel y apporte son appréciation et y appose sa signature pour visa. Une copie de ce rapport est remise à l’intéressé et une autre est transmise au Ministre dont relève le fonctionnaire pour compétence. Lorsque le maître de stage estime qu’une prolongation de stage est nécessaire, la décision est notifiée à l’intéressé qui doit débuter immédiatement la nouvelle période de stage.
