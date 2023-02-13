@@ -1,0 +1,3 @@
+# Article 6 5
+
+Le Diplôme de Technicien Supérieur de Niveau Al en Sciences de Gestion et d’Economie Appliquée; Option:Economie et Commerce International, combiné avec le Certificat de Formation Complémentaire en Sciences de Gestion et d’Economie Appliquée; Option:Economie et Commerce International, délivrés respectivement en 2015 et en 2022 par l’Université du Lac Tanganyika, « ULT » en sigles, trois années d’Etudes après le Diplôme d’Instituteur, jouit de l’équivalence administrative avec le Diplôme de Licence Professionnelle en Sciences de Gestion et d’Economie Appliquée; Option:Economie et Commerce International reconnu au Burundi.
