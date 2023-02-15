@@ -1,0 +1,3 @@
+# Article 3
+
+Sont nommés : 1. Directeur Général de l’Education Nationale : Dr Paul HAKIZIMANA; 2. Directeur Général de la Science, la Technologie et la Recherche: Monsieur Claver NIJIMBERE; 3. Directeur Général des Ressources Humaines : Madame Marie KANA; 4. Directeur Général des Finances et du Patrimoine: Monsieur Steve NIYONGABO; 5. Directeur Général de la Formation Technique et Professionnelle et des Métiers: Dr Nestor NIYONZIMA; 6. Directeur Général de la Régie des Productions Pédagogiques: Madame Marie Rosette NIZIGIYIMANA; 7. Directeur Général des Curricula et des Innovations Pédagogiques : Dr André NDUWIMANA; 8. Directeur National des Cantines Scolaires: Monsieur Liboire BIGIRIMANA.
