@@ -1,3 +1,0 @@
-# Article 5 13
-
-Toutes dispositions antérieures contraires au présent décret sont abrogées.
