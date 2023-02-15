@@ -1,0 +1,5 @@
+# Article 5
+
+Le Ministre de la Santé Publique et de la Lutte contre le SIDA est chargé de l’exécution du présent décret qui entre en vigueur le jour de sa signature.
+
+Fait à Gitega, le 15 février 2023 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Gervais NDIRAKOBUCA (sé) Lieutenant Général de Police Le Ministre de la Santé Publique et de la Lutte contre le Sida, Dr. Sylvie NZEYIMANA (sé).
