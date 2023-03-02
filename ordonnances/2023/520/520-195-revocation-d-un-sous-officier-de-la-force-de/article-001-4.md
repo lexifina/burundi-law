@@ -1,0 +1,3 @@
+# Article 1 4
+
+Sont nommés membres d’une commission technique chargée de l’élaboration des textes d’application de la Politique Salariale et du Nouveau Statut Général des Fonctionnaires, les personnes dont les noms suivent : 1. Madame Nadine NIMBABAZI: Présidente 2. Madame Espérance HABONIMANA: Vice-Présidente ; 3. Monsieur Charles BERAHINO : Secrétaire; 4. Madame Nadine GACUTI : membre ; 5. Monsieur Balthazar BATUNGWANAYO : membre; 6. Monsieur Prosper NIBASUMBA: membre; 7. Madame Marie Noëlla BAZUBWENGE: membre; 8. Madame Evangéline ITANGIVYIZA : membre; 9. Monsieur Abdoul Kassim : membre; 10. Monsieur Rodin BIZIMANA: membre; 11. Monsieur Léonidas BIZIMANA : membre; 12. Monsieur Dieudonné NIMBONA: membre;
