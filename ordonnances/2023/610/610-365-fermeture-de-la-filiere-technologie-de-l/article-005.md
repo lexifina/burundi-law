@@ -1,0 +1,5 @@
+# Article 5
+
+La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 04/04/2023 Prof François HAVYARIMANA (sé). N°610/366 04/04/2023
