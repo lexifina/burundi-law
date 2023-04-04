@@ -2,4 +2,4 @@
 
 La présente Ordonnance Ministérielle entre en application le jour de sa signature.
 
-Fait à Bujumbura, le 04/04/2023 Prof François HAVYARIMANA (sé). N°710/367 05/04/2023
+Fait à Bujumbura, le 04/04/2023 Prof François HAVYARIMANA (sé).
