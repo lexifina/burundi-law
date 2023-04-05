@@ -1,0 +1,15 @@
+# Article 2
+
+Le Comité de Pilotage est notamment chargé de :
+
+• Prendre des décisions relatives à la gestion effi­ ciente du projet;
+
+• Suivre et la mise en œuvre du projet;
+
+• Veiller à ce que les ressources nécessaires soient engagées pour l’atteinte des résultats;
+
+• Négocier des solutions aux problèmes éven­ tuels avec les partenaires au projet s’il le faut,
+
+• Examiner et approuver les plans de travail annuel, les rapports trimestriels semestriel et annuels et;
+
+• Approuver toute modification substantielle per­ tinente par rapport au document du projet.
