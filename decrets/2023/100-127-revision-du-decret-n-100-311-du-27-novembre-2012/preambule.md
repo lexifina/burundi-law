@@ -12,13 +12,13 @@ Vu la Loi n° 1/09 du 30 mai 2011 portant Code des Sociétés Privées et à Par
 
 Vu le Décret n°100/007 du 28 juin 2020 portant Révision du Décret n°100/037 du 19 avril 2018 portant Structure, Fonctionnement et Missions du Gouvernement de la République du Burundi;
 
-Vu le Décret n°100/069 du 24 septembre 2020 portant Missions, Organisation et Fonctionne­ ment du Ministère des Finances, du Budget et de la Planification Economique;
+Vu le Décret n°100/069 du 24 septembre 2020 portant Missions, Organisation et Fonctionnement du Ministère des Finances, du Budget et de la Planification Economique;
 
-Vu le Décret n° l 00/094 du 09 novembre 2020 por­ tant Réorganisation du Ministère du Commerce, du Transport, de l’Industrie et du Tourisme;
+Vu le Décret n° l 00/094 du 09 novembre 2020 portant Réorganisation du Ministère du Commerce, du Transport, de l’Industrie et du Tourisme;
 
-Vu le Décret n°100/118 du 27 mars 2023 portant Création, Organisation, Missions et Fonctionne­ ment de l’Autorité Maritime et Portuaire du Burundi« AMPB» en sigle; Revu le Décret n°100/311 du 27 novembre 2012 portant Autorisation de l’Etat du Burundi à par­ ticiper au capital de la Société « Global Port Ser­ vices Burundi », Société Concessionnaire de l’Exploitation du Port de Bujumbura;
+Vu le Décret n°100/118 du 27 mars 2023 portant Création, Organisation, Missions et Fonctionnement de l’Autorité Maritime et Portuaire du Burundi« AMPB» en sigle; Revu le Décret n°100/311 du 27 novembre 2012 portant Autorisation de l’Etat du Burundi à participer au capital de la Société « Global Port Services Burundi », Société Concessionnaire de l’Exploitation du Port de Bujumbura;
 
-Sur proposition du Ministre du Commerce, du Transport, de l’industrie et du Tourisme et du Ministre des Finances, du Budget et de la Planifi­ cation Economique;
+Sur proposition du Ministre du Commerce, du Transport, de l’industrie et du Tourisme et du Ministre des Finances, du Budget et de la Planification Economique;
 
 Le Conseil des Ministres ayant adopté;
 
