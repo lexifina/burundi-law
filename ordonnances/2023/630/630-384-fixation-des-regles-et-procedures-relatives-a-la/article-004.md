@@ -1,6 +1,6 @@
 # Article 4
 
-Les principes directeurs à la procréation médica­ lement assistée sont notamment:
+Les principes directeurs à la procréation médicalement assistée sont notamment:
 
 – Respect de la dignité de la personne humaine et de la préservation de sa vie;
 
