@@ -1,6 +1,6 @@
 # Article 1
 
-Sont nommés Membres du Conseil d’Administra­ tion de l’Hôpital de la Police Nationale du Burundi:
+Sont nommés Membres du Conseil d’Administration de l’Hôpital de la Police Nationale du Burundi:
 
 – Général de Brigade NIBONA BONANSIZE Célestin: Président;
 
