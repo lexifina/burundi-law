@@ -2,4 +2,4 @@
 
 Le Premier Ministre est chargé de l’exécution du présent décret qui entre en vigueur le jour de sa signature.
 
-Fait à Gitega, le 12 avril 2023 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Gervais NDIRAKOBUCA (sé) Lieutenant Général de Police. N°100/132 12/04/2023
+Fait à Gitega, le 12 avril 2023 Evariste NDAYISHIMIYE (sé) Par le Président de la République, Le Premier Ministre, Gervais NDIRAKOBUCA (sé) Lieutenant Général de Police.
