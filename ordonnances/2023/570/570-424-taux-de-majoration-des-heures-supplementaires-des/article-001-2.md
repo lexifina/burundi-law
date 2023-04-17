@@ -1,0 +1,3 @@
+# Article 1 2
+
+Toute personne physique ou morale qui se propose d’ouvrir ou de fermer une entreprise de quelque nature qu’elle soit, est tenue de faire dans lcs15 jours qui précèdent l’ouverture ou la fermeture, la déclaration à l’inspection du travail et à l’Office Burundais de l’Emploi et de la Main d’œuvre, OBEM en sigle qui est le service public de l’emploi. Si l’entreprise comporte plusieurs établissements, il en est fait mention dans la déclaration. Si l’entreprise comporte des établissements dans le ressort de plusieurs inspections du travail, il est fait une déclaration distincte par inspection.
