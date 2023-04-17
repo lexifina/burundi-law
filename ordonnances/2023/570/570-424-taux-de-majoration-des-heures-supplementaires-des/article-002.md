@@ -6,4 +6,6 @@ Toute heure considérée comme supplémentaire, au titre des dispositions de l�
 
 2°. Soixante pourcent pour chacune des heures qui suivent.
 
-3°. Cent pour cent pour les heures effectuées pendant le jour de repos hebdomadaire ou pendant un jour férié. Section 2 Travail pendant les jours de repos hebdomadaire et les jours féries
+3°. Cent pour cent pour les heures effectuées pendant le jour de repos hebdomadaire ou pendant un jour férié.
+
+Section 2 Travail pendant les jours de repos hebdomadaire et les jours féries
