@@ -1,0 +1,9 @@
+# Article 8
+
+1. L’expression « travail intermittent » s’applique à des personnes employées à des travaux qui, par leur nature, sont coupés par de longues périodes d’inaction pendant lesquelles ces personnes n’ont à déployer ni activité matérielle, ni attention soutenue, ou ne restent à leur poste que pour répondre à des appels éventuels. 2. A ce titre, une durée de présence supérieure à la durée légale du travail, considérée comme équivalente à celle-ci est admise pour les catégories des personnes suivantes:
+
+a) Personne à gardiennage ou de surveillance, préposé au service d’incendie : 60 heures par semaine. cette durée est portée à 72 heures par semaine pour les sentinelles.
+
+b) Conducteurs de véhicules affectés aux déplacements du personnel de l’établissement : 50 heures par semaines;
+
+c) Personnel des débits de boissons, cafés, hôtel, restaurants ; - Maître d’hôtel, personnels des cuisines, sommeliers, cavistes : 54 heures par semaines; - Personnel de réception, des salles, des bars, des terrasses, des chambres, préposés aux bagages : 60 heures par semaine. 3. Les durées de présence prévues pour le personnel mentionné au présent paragraphe sont majorées d’une heure par jour lorsque le personnel est nourri par l’établissement. 4. Les durées de présence indiquées au présent article, considérées comme équivalentes à la durée légale du travail, sont rémunérées sur la base de quarante -cinq heures de travail effectif par semaine. 5. Le bénéfice des dérogations permanentes visées au présent article est acquis au chef d’entreprise sous réserve de l’accomplissement préalable des formalités concernant l’horaire telles que fixées à l’article 12 ci- après. TITRE(CHAPITRE) III DEROGATIONS TEMPORAIRES A LA DUREE DU TRAVAIL Section 1 Récupération des heures perdues du fait d’interruption collective
