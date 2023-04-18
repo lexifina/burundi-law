@@ -18,4 +18,6 @@ g) Ne pas avoir encouru dans les douze mois précédents l’élection une sanct
 
 h) Avoir le niveau de connaissance suffisant eu égard à la mission du conseil d’entreprise. Ce niveau sera précisé dans le règlement de l’entreprise.
 
-Les travailleurs restent éligibles aussi longtemps qu’ils sont en service actif. Les conditions d’éligibilité doivent être réunies au jour de l’élection. CHAPITRE VI DU COLLEGE ELECTORAL
+Les travailleurs restent éligibles aussi longtemps qu’ils sont en service actif. Les conditions d’éligibilité doivent être réunies au jour de l’élection.
+
+CHAPITRE VI DU COLLEGE ELECTORAL

@@ -1,3 +1,5 @@
 # Article 12
 
-Le chef d’établissement, ou son représentant, a la charge de l’agencement du local réservé aux opérations électorales, de façon à assurer le secret du vote. Il assure le maintien de l’ordre et veille à la régularité des opérations de vote. Il préside le bureau de vote, assisté de deux assesseurs. Les fonctions d’assesseur sont assumées par deux travailleurs, non candidats, sachant lire et écrire, remplissant les conditions d’éligibilité visées aux literas b) à d) de l’article 7 et proposés par les travailleurs deux jours ouvrables avant le vote. CHAPITRE XI DES OPERA TI ONS DE VOTE
+Le chef d’établissement, ou son représentant, a la charge de l’agencement du local réservé aux opérations électorales, de façon à assurer le secret du vote. Il assure le maintien de l’ordre et veille à la régularité des opérations de vote. Il préside le bureau de vote, assisté de deux assesseurs. Les fonctions d’assesseur sont assumées par deux travailleurs, non candidats, sachant lire et écrire, remplissant les conditions d’éligibilité visées aux literas b) à d) de l’article 7 et proposés par les travailleurs deux jours ouvrables avant le vote.
+
+CHAPITRE XI DES OPERA TI ONS DE VOTE

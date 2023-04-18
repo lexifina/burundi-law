@@ -26,4 +26,6 @@ j) Les observations formulées éventuellement par les assesseurs ou par l’un 
 
 k) Les événements marquants et les incidents éventuels qui se sont produits lors des opérations électorales et les mesures prises par le président du bureau électoral à cette occasion.
 
-Le président du bureau de vote clôture le procès-verbal, qui est revêtu de la signature de tous les membres du bureau et immédiatement transmis, par les soins du président, à l’inspecteur du travail du ressort. Au plus tard le lendemain de la clôture des opérations de vote, président affiche, aux endroits habituels, un avis indiquant le résultat du vote. CHAPITRE XIV DES CONTENTIEUX
+Le président du bureau de vote clôture le procès-verbal, qui est revêtu de la signature de tous les membres du bureau et immédiatement transmis, par les soins du président, à l’inspecteur du travail du ressort. Au plus tard le lendemain de la clôture des opérations de vote, président affiche, aux endroits habituels, un avis indiquant le résultat du vote.
+
+CHAPITRE XIV DES CONTENTIEUX
