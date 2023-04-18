@@ -6,4 +6,6 @@ En cas d’ interruption collective du travail résultant des causes accidentell
 
 2° La prolongation de la durée journalière du travail ne pourra dépasser une heure dans la limite maximum de dix heures de travail dans la journée.
 
-3° Tout employeur qui pourra user des facultés prévues au présent article devra demander préalablement l’autorisation à l’inspecteur du travail géographiquement compétent en indiquant la cause de l’interruption collective du travail, le nombre d’heures perdues de ce fait et les modifications d’horaire. Section 2 La durée du travail
+3° Tout employeur qui pourra user des facultés prévues au présent article devra demander préalablement l’autorisation à l’inspecteur du travail géographiquement compétent en indiquant la cause de l’interruption collective du travail, le nombre d’heures perdues de ce fait et les modifications d’horaire.
+
+Section 2 La durée du travail

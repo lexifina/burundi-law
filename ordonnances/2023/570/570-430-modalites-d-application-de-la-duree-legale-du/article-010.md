@@ -12,4 +12,6 @@ La demande, datée, doit spécifier :
 
 - Les heures de travail et de repos prévues pour ces travailleurs ;
 
-- Ainsi que la justification qu’il n’est pas possible de faire face aux surcroits extraordinaires de travail par d’autres moyens tels que l’embauche des travailleurs supplémentaires. L’inspecteur du travail doit formuler sa décision dans les 24 heures. TITRE IV MAJORATION DE SALAIRE
+- Ainsi que la justification qu’il n’est pas possible de faire face aux surcroits extraordinaires de travail par d’autres moyens tels que l’embauche des travailleurs supplémentaires. L’inspecteur du travail doit formuler sa décision dans les 24 heures.
+
+TITRE IV MAJORATION DE SALAIRE

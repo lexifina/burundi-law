@@ -22,4 +22,6 @@ i) Travail des ouvriers employés à des opérations qui, techniquement, ne peuv
 
 j) Travail des pointeurs, garçon de bureau ou de magasin, appelés à exécuter les travaux divers et agents similaires, travail du personnel de nettoyage des bureaux : Durée maximum, une heure, Travail du personnel préposé à l’emballage et aux expéditeurs: Durée maximum, une heure. 3.
 
-Le bénéfice des dérogations énumérées au présent article est d’établissement sous réserve de l’accomplissement préalable acquis au chef des formalités concernant l’horaire de travail telles que fixées à l’article 12 ci - après. Section 2 Travaux intermittents
+Le bénéfice des dérogations énumérées au présent article est d’établissement sous réserve de l’accomplissement préalable acquis au chef des formalités concernant l’horaire de travail telles que fixées à l’article 12 ci - après.
+
+Section 2 Travaux intermittents
