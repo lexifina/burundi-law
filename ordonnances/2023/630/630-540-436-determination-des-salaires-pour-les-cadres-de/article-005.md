@@ -8,4 +8,4 @@ b) Représentant des travailleurs : 2ème Vice-président;
 
 c) Secrétariat assuré par le Directeur Général du Travail et de l’Emploi assisté par deux (2) cadres de sa direction. Le secrétaire du comité fait fonction de rapporteur.
 
-Le budget de fonctionnement du Comité National du Travail provient du budget du MFPTE sur la rubrique appui au dialogue social Les membres du Comité National du Travail ne sont pas rémunérés. Toutefois, ils perçoivent des jetons de présence conformément à la correspondance du Secrétariat Général du Gouvernement N°11/SGG/249/2009 portant honoraires des membres des commissions techniques.
+Le budget de fonctionnement du Comité National du Travail provient du budget du MFPTE sur la rubrique appui au dialogue social Les membres du Comité National du Travail ne sont pas rémunérés. Toutefois, ils perçoivent des jetons de présence conformément à la correspondance du Secrétariat Général du Gouvernement portant honoraires des membres des commissions techniques.
