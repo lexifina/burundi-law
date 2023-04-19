@@ -1,0 +1,3 @@
+# Article 1
+
+Outre les attributions prévues à l’article 4 de l’Ordonnance n550/221 du 01/03/2022 portant création, organisation et fonctionnement des cellules au Cabinet du Ministre et au Secrétariat Permanent du Ministère de la Justice, la cellule bonne gouvernance, éthique et lutte contre la corruption est chargée de : 1. Assurer la coordination et le suivi des activités des Conseils des notables collinaires et de quartiers ; 2. Veiller à ce que les notables collinaires et de quartiers s’acquittent de leur mission en respectant les valeurs d’intégrité et d’impartialité; 3. Recevoir et exploiter les rapports sur le fonctionnement des Conseils des notables collinaires et de quartiers.
