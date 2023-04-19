@@ -1,0 +1,5 @@
+# Article 14
+
+Le Comité National du Travail est présidé par le Ministre ayant le travail dans ses attributions ou par un des vices présidents en cas d’empêchement du président du comité.
+
+Le Président du comité ne peut participer aux votes. En cas d’empêchement du Ministre, le Président de la séance relevant d’un des groupes professionnels a droit au vote. En sus des pouvoirs qui lui sont conférés en vertu d’autres dispositions du présent règlement, le Président a charge de prononcer l’ouverture et la clôture de chaque session du Comité, d’assurer le maintien de l’ordre au cours des sessions, de diriger les débats et d’assurer l’application du présent règlement par des mesures que les circonstances exigeront. Il a en particulier le pouvoir d’accorder ou de retirer le droit de parole, de mettre les questions aux voix, de statuer sur les motions d’ordre et en particulier de proposer l’ajournement ou la clôture du débat ou suspension d’une séance, de proclamer le résultat des scrutins. Il prononce les recommandations du Comité et porte à la connaissance des membres les communications qui le concernent. IV. DÉBATS
