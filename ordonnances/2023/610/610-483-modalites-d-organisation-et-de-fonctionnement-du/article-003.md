@@ -24,4 +24,6 @@ Le Secrétariat Exécutif Permanent est chargé de :
 
 - élaborer ou actualiser l’avant-projet de plan de développement de l’Académie, de budget, de plan d’action et de plan stratégique, de rapport annuel d’activités et d’exécution budgétaire;
 
-- élaborer et assurer le suivi des cahiers de charges du personnel et en évaluer les performances. Section 2 De la composition et de l’organisation
+- élaborer et assurer le suivi des cahiers de charges du personnel et en évaluer les performances.
+
+Section 2 De la composition et de l’organisation
