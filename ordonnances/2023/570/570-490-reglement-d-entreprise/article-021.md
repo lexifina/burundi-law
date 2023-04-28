@@ -1,0 +1,3 @@
+# Article 21
+
+Le règlement d’entreprise entre en vigueur quinze jours après son affichage. Ses modifications entrent en vigueur dans le même délai. Toutefois, les modifications temporaires relatives à l’horaire de travail ou à l’exécution d’un travail exceptionnel peuvent être prises et communiquées par simple avis, daté et affiché au panneau réservé aux communications destinées aux membres du personnel. Sauf urgence manifeste, ces modifications ne sont applicables qu’après un délai de 2 jours après l’affichage de l’avis. Lorsque cette modification concerne seulement une équipe ou un atelier, l’avis peut être affiché seulement dans les locaux de travail de cette équipe ou dans cet atelier. Une copie est donnée aux représentants du personnel s’ils existent.
