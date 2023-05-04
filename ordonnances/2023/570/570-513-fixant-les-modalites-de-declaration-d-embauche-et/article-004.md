@@ -8,4 +8,6 @@ b. Les employeurs ayant embauché des travailleurs suite aux travaux urgents ou 
 
 c. Les entreprises familiales n'occupant pas de travailleurs salariés ;
 
-d. Les cas d'abandon de travail avant 1e 8" jour à compter du début d'engagement. Section 4 Des dispositions finales
+d. Les cas d'abandon de travail avant 1e 8" jour à compter du début d'engagement.
+
+Section 4 Des dispositions finales
