@@ -1,0 +1,5 @@
+# Article 12
+
+Les consultants individuels exerçants en qualité de spécialiste ou experts dans des domaines définis de concert avec les partenaires au développement concernés, sont recrutés sur une base compétitive, par appel à la candidature, suivant les conditions et les procédures en vigueur chez les Partenaires au développement concernés.
+
+Les consultants individuels comprennent les personnels ci- après : ▪ un (1) Responsable Administratif et Financier; ▪ un (1) Responsable de suivi-Evaluation ; ▪ un (1) Responsable de passation des marchés ; ▪ un (1) Responsable des Sauvegardes Environnementales ; ▪ un (1) Responsable des Sauvegardes Sociales ▪ Un(1) Comptable du projet ▪ Deux ingénieurs du projet Pour des raisons d'efficience, et d'efficacité dans la mise en œuvre des actions de l'unité, d'autres postes de consultants individuels peuvent, en cas de besoin, et en fonction du volume et de la nature des activités suivant la disponibilité des ressources, être ouverts au sein de l'unité.

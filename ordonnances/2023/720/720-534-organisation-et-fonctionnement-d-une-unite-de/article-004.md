@@ -1,0 +1,3 @@
+# Article 4
+
+Au sens de la présente ordonnance, les projets routiers à financements extérieur comprennent : ➢ la construction et la réhabilitation des routes, des ouvrages d'art et les opérations connexes y rattachés, ainsi que les études techniques, économiques, environnementales et sociales ; ➢ la préparation et le suivi- évaluation des prestations ; ➢ les audits techniques financiers des projets ; ➢ les études prospectives et stratégiques dans le domaine de la facilitation des transports ; ➢ toute autre prestation relative aux projets routiers, arrêtée d'accord parties. Chapitre II Organisation et fonctionnement de l'unité
