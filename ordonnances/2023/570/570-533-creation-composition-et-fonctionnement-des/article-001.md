@@ -1,0 +1,3 @@
+# Article 1
+
+Un comité d'hygiène, de santé et de sécurité au travail est créé dans les entreprises ou établissements assujettis à la loi n°1/11 du 24 novembre 2020, portant révision du Décret-loi n°1/037 du 7 juillet 1993 portant révision du Code du Travail du Burundi. Ce comité est obligatoire pour toutes les entreprises ou établissements occupant 40 travailleurs au moins exerçant les activités à risque notamment les entreprises du secteur industriel, travaux publics, bâtiment, mines et carrières et 80 travailleurs dans les établissements commerciaux ou administratifs. De même, les chantiers devant durer 6 mois et regroupant plusieurs entreprises, doivent créer un comité inter-entreprises d'hygiène, de santé et de sécurité au travail.
