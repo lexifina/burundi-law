@@ -14,7 +14,7 @@ Vu le Décret n°100/090 du 28 octobre 2020 portant Missions et Organisation du 
 
 Vu le Décret n°100/081 du 02 août 2001 portant Modalités d'Encouragement à l'Enseignement Privé;
 
-Vu ['Ordonnance Ministérielle N"610/1833 du 24/10/2022 portant révision de 'Ordonnance Ministérielle N°620/1095 du 19/0612020 portant normes de qualité et conditions d'ouverture, d'agrément et de fermeture d'un établissement d'enseignement et de formation privé spécialement à ses articles 18,28,29,30 et 31; Me référant au rapport d'inspection administrative et pédagogique effectué à l'Ecole the Light of Buragane;
+Vu ['Ordonnance Ministérielle N"610/1833 du portant révision de 'Ordonnance Ministérielle N°620/1095 du 19/0612020 portant normes de qualité et conditions d'ouverture, d'agrément et de fermeture d'un établissement d'enseignement et de formation privé spécialement à ses articles 18,28,29,30 et 31; Me référant au rapport d'inspection administrative et pédagogique effectué à l'Ecole the Light of Buragane;
 
 Sur base du rapport d'analyse des dossiers des écoles fondamentales privées à requête d'agrément pour l'année scolaire 2022-2023 ;
 
