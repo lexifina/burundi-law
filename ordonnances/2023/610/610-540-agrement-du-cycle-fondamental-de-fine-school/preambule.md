@@ -14,7 +14,7 @@ Vu le Décret n°100/090 du 28 octobre 2020 portant Missions et Organisation du 
 
 Vu le Décret n°100/081 du 02 août 2001 portant Modalités d'Encouragement à l'Enseignement Privé;
 
-Vu l'Ordonnance Ministérielle n°610/1833 du 24/10/2022 portant révision de 'Ordonnance Ministérielle n°620/1095 du 19/06/2020 portant normes de qualité et conditions d'ouverture, d'agrément et de fermeture d'un établissement d'enseignement et de formation privé spécialement à ses articles 28, 29, 30 et 31 ; Me référant au rapport d'inspection administrative et pédagogique effectué à Fine School ; Me basant sur le rapport d'analyse des dossiers des écoles fondamentales privées à requête d'agrément pour l'année scolaire 2022-2023 ;
+Vu l'Ordonnance Ministérielle n°610/1833 du portant révision de 'Ordonnance Ministérielle n°620/1095 du 19/06/2020 portant normes de qualité et conditions d'ouverture, d'agrément et de fermeture d'un établissement d'enseignement et de formation privé spécialement à ses articles 28, 29, 30 et 31 ; Me référant au rapport d'inspection administrative et pédagogique effectué à Fine School ; Me basant sur le rapport d'analyse des dossiers des écoles fondamentales privées à requête d'agrément pour l'année scolaire 2022-2023 ;
 
 Sur proposition de la Commission Nationale de l'Enseignement Fondamental et Post Fondamental ;
 
