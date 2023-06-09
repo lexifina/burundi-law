@@ -1,0 +1,3 @@
+# Article 12
+
+Le Diplôme d’ingénieur en Radiocommunication/Télécommunication; Option : Emploi et Exploitation des moyens de Transmission des Objectifs mobiles, délivré en 2014 par l’Académie Militaire des forces maritimes de la Fédération de Russie au nom de l’Amiral de l’Union Soviétique N.G. Kuznetsov de Saint-Pétersbourg, cinq années d’Etudes après le Diplôme d’Etat burundais, jouit de l’équivalence académique et administrative avec le Diplôme de Master en Radiocommunication/Télécommunication ; Option : Emploi et Exploitation des Moyens de Transmission des Objectifs Mobiles reconnu au Burundi.
