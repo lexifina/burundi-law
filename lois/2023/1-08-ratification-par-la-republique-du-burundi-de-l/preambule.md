@@ -1,0 +1,11 @@
+# Loi n°1/08 du 9 juin 2023
+
+PORTANT RATIFICATION PAR LA REPUBLIQUE DU BURUNDI DE L’ACCORD ENTRE LE GOUVERNEMENT DE LA REPUBLIQUE DU BURUNDI ET LE GOUVERNEMENT DE LA REPUBLIQUE DE TURQUIE EN VUE D’EVITER LA DOUBLE IMPOSITION ET DE PREVENIR LA FRAUDE FISCALE EN MATIERE D’IMPOTS SUR LE REVENU
+
+Le Président de la République,
+
+Vu la Constitution de la République du Burundi;
+
+Le Conseil des Ministres ayant délibéré ; L’Assemblée Nationale et le Sénat ayant adopté;
+
+Promulgue
