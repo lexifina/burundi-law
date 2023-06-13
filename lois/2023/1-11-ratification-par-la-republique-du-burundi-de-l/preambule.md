@@ -1,0 +1,11 @@
+# Loi n°1/11 du 13 juin 2023
+
+PORTANT RATIFICATION PAR LA REPUBLIQUE DU BURUNDI DE L’ACCORD DE COOPERATION ENTRE LE GOUVERNEMENT DE LA REPUBLIQUE TUNISIENNE ET LE GOUVERNEMENT DE LA REPUBLIQUE DU BURUNDI DANS LE DOMAINE DU DEVELOPPEMENT TECHNOLOGIQUE ET INDUSTRIEL
+
+Le Président de la République,
+
+Vu la Constitution de la République du Burundi;
+
+Le Conseil des Ministres ayant délibéré ; L’Assemblée Nationale et le Sénat ayant adopté ;
+
+Promulgue
