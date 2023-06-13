@@ -12,4 +12,6 @@ Au sens de la présente ordonnance, on entend par :
 
 - diplôme : un titre scolaire délivré par une école pour sanctionner la réussite d’un cycle complet de l’enseignement post fondamental technique ;
 
-- triplement : le fait de reprendre trois fois le même programme de formation dans une même classe et même section. CHAPITRE II DES CONDITIONS DE PASSAGE DE CLASSE Section 1 Du jury de délibération
+- triplement : le fait de reprendre trois fois le même programme de formation dans une même classe et même section.
+
+CHAPITRE II DES CONDITIONS DE PASSAGE DE CLASSE Section 1 Du jury de délibération
