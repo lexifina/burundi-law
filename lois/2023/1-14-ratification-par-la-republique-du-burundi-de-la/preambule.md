@@ -1,0 +1,11 @@
+# Loi n°1/14 du 13 juin 2023
+
+PORTANT RATIFICATION PAR LA REPUBLIQUE DU BURUNDI DE LA CONSTITUTION ET LA CONVENTION DE L’UNION AFRICAINE DES TELECOMMUNICATIONS SIGNEES LE 7 DECEMBRE 1999, AU CAP TOWN EN AFRIQUE DU SUD, TELLES QUE REVISEES LE 10 JUILLET 2014 A HARARE AU ZIMBABWE
+
+Le Président de la République,
+
+Vu la Constitution de la République ;
+
+Le Conseil des Ministres ayant délibéré ; L’Assemblée Nationale et le Sénat ayant adopté ;
+
+Promulgue
