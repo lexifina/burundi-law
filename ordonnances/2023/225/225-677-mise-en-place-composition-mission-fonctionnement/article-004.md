@@ -6,4 +6,6 @@ Le Comité Technique regroupe un pôle d’experts mandatés pour suivre la bonn
 
 - Assurer un rapportage annuel du Programme conforme aux critères définis par le Comité de Pilotage du Fonds Fiduciaire Multipartenaires du Burundi et organiser une communication des activités pour son ancrage dans la planification nationale ;
 
-- Evaluer les progrès atteints dans la réalisation des objectifs fixés, identifier les défis liés à la mise en œuvre du Programme et proposer des actions permettant de les résoudre. CHAPITRE IV DU FONCTIONNEMENT
+- Evaluer les progrès atteints dans la réalisation des objectifs fixés, identifier les défis liés à la mise en œuvre du Programme et proposer des actions permettant de les résoudre.
+
+CHAPITRE IV DU FONCTIONNEMENT
