@@ -1,0 +1,3 @@
+# Article 8
+
+Les comptes rendus des réunions sont finalisés et transmis à tous ses membres endéans huit (8) jours. Chaque membre du Comité Technique aura la responsabilité de tenir informée sa hiérarchie des informations relatives au Programme et de partager le cas échéant une copie des comptes rendus du Comité Technique pour une bonne information des progrès réalisés. Nonobstant le rapport qui lui sera transmis annuellement, le Comité de Pilotage du Fonds Fiduciaire au Burundi peut, s’ils le jugent nécessaire, demander une copie des comptes rendus des réunions du Comité Technique pour se tenir informé de l’avancement du Programme. CHAPITRE V DES DISPOSITIONS FINALES
