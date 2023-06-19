@@ -1,0 +1,5 @@
+# Article 3
+
+La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura, le 19/06/2023· François HAVYARIMANA (sé) NOM DE L'ECOLE: LYCEE TECHNIQUE SUNLIGHT DE KAYOGORO : DPE :MAKAMBA DCE KAYOGORO TEL :61110844 DATE DE LA VISITE: Le 14/3/2023 OBJET DE LA VISITE: Agrément de la section Informatique de Gestion CADRE LEGAL NATURE DE LA REQUETE RAPPORT DU SERVICE TECHNIQUE DE LA CNEFPF NOTE OBTENUE PAR DOMAINE
