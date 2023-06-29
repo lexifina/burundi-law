@@ -1,0 +1,5 @@
+# Article 18
+
+L’entérinement est constaté par une formule reproduite sur le Diplôme signé par le Président et le Secrétaire de la Commission.
+
+Le Diplôme porte préalablement les signatures du Doyen de la Faculté ou équivalent, du Responsable compétent de l’Etablissement d’Enseignement Supérieur concerné et du porteur. Cette formule est libellée de la façon suivante : « Au nom de Son Excellence le Président de la République, Nous, Président et membres de la Commission d’Entérinement des Diplômes et Titres Universitaires, instituée en vertu de la Loi N°.......... du ………, attestons que le présent Diplôme ou Titre a été délivré régulièrement et que toutes les conditions prescrites ont été observées en ce qui concerne les matières inscrites au programme légal. En foi de quoi, nous l’avons entériné aujourd’hui le (le jour….. et l’année en chiffres et le mois en toutes lettres) et enregistré sous le N°…..…../……. (année d’entérinement) au registre ………..Folio ……………. littera …………. Pour la Commission, Le Secrétaire, (Nom, Prénom et signature Le Président (Nom,Prénom et signature en bas à gauche du diplôme) en bas à droite du diplôme) »
