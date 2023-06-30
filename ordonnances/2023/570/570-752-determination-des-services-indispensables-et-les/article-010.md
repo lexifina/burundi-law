@@ -1,0 +1,3 @@
+# Article 10
+
+Le maintien des services minima en cas de grève doit être possible : 1. Dans les services dont l’interruption risquerait de mettre en danger la vie, la sécurité ou la santé de la personne dans une partie ou l’ensemble de la population (c’est-à-dire des services essentiels au sens strict du terme) ; 2. Dans les services qui ne sont pas essentiels au sens strict du terme mais où les grèves d’une certaine ampleur ou durée pourraient provoquer une situation de crise nationale aigue menaçant les conditions normales d’existence de la population ; 3. Dans les services publics d’importance primordiale ; 4. Tout service dont l’arrêt absolu cause un préjudice à l’outil de production de l’entreprise.

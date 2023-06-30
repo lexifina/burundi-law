@@ -1,0 +1,3 @@
+# Article 8
+
+L’exercice du droit de grève peut être restreint ou interdit par la loi dans les trois cas de figures suivants: - En cas d’atteinte à l’ordre public ; - En cas de nécessité absolue d’assurer le respect du service minimum notamment dans les conflits survenant dans les services essentiels au sens strict du terme; - En cas de nécessité d’assurer la sécurité notamment dans des situations de crise nationale ou locale aigues mais pour une durée limitée et dans la mesure nécessaire pour faire face à la situation uniquement. Cependant, des mesures compensatoires sont prises pour régler pacifiquement le conflit à travers la conciliation ou la médiation sans dépasser cinq jours francs après l’expiration du délai de préavis de grève.
