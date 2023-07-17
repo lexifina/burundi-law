@@ -1,0 +1,3 @@
+# Article 6
+
+Les frais d’acquisition d’une carte d’agrément sont déterminés comme suit : 1. un établissement d’autoécoles : 1 000 000 BIF 2. un établissement d’un garage : 1 500 000 BIF Les chauffeurs individuels qui ne sont pas employés dans les agences de transports des véhicules importés, ne sont pas concernés par la carte d’agrément. Cependant, ils doivent être en possession d’une quittance de paiement à l’Office Burundaise des Recettes (OBR) d’un montant de cinquante mille francs burundais (50 000 BIF) chaque fois qu’ils apportent un véhicule. De surcroît, ces derniers doivent être en possession d’une autorisation du Ministère en charge du transport.
