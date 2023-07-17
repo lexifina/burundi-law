@@ -1,0 +1,3 @@
+# Article 2
+
+Contenu des prestations Les prestations de services consistent, pour le contractant à fournir, installer et rendre opérationnel les équipements de contrôle technique, à fournir les carnets de bord contenant les certificats de contrôle technique et les permis de transport, selon les spécifications techniques convenues entre les deux parties et transférer les équipements et le savoir-faire à l’Administration après la période de dix (l 0) ans, comptés à partir du 29/06/2021 et à former le personnel affecté aux services techniques du Ministère en charge du Commerce, du Transport, du Tourisme et de l’Industrie cités à l’article 1.
