@@ -1,0 +1,3 @@
+# Article 2
+
+En se conformant à l’article 18 de la Loi n°1/16 du 28 juin 2023 portant fixation du Budget Général de la République du Burundi pour l’exercice 2023/2024, les engagements des dépenses sont régulés sur base des prévisions inscrites dans les Plans de Travail et Budget Annuel (PTBA) alignées à la nomenclature budgétaire de l’Etat et au moyen des dispositifs existants suivants: Pour les dépenses de la dette (Intérêt et Principal), les engagements sont réalisés conformément au calendrier d’amortissement établi; Pour les dépenses d’investissement, la régulation des engagements des dépenses est réalisée conformément aux plans annuels de passation des marchés publics ;
