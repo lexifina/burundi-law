@@ -1,0 +1,5 @@
+# Article 2
+
+Toutes dispositions antérieures contraires à cette ordonnance sont abrogées. Article 3 : La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura le 19/07/2023; Prof François HAVYARIMANA (sé) FICHE SYNTHESE NOM DE L’ECOLE : ECOLE SAINT JOSEPH DE GASENYI DPE : BUJUMBURA DCE : MUTIMBUZI TEL : 79957072 DATE DE LA VISITE : 17/5/2023 OBJET DE LA VISITE : VERIFIER LES CONDITIONS D’OUVERTURE DU CYCLE MATERNEL CADRE LEGAL NATURE DE LA REQUETTE RAPPORT DU SERVICE TECHNIQUE DE LA CNEFPF NOTE OBTENUE PAR DOMAINE
