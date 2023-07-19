@@ -1,0 +1,5 @@
+# Article 3
+
+La présente Ordonnance Ministérielle entre en vigueur le jour de sa signature.
+
+Fait à Bujumbura le 19/07/2023; Prof. François HAVYARIMANA (sé) FICHE SYNTHESE POUR L’ECOFO SAGESSE DE KABERE DPE : CIBITOKE DCE : MABAYI TEL : 69959479 DATE DE LA VISITE : LE 15/05/2023 OBJET DE LA VISITE : Vérifier les conditions d’ouverture du 4ème CYCLE DU FONDAMENTAL CADRE LEGAL NATURE DE LA REQUETTE RAPPORT DU SERVICE TECHNIQUE DE LA CNEFPF NOTE OBTENUE PAR DOMAINE
