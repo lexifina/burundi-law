@@ -1,0 +1,3 @@
+# Article 37
+
+lngingo ya 37 Des organismes professionnels ou interprofessionnels peuvent être agréés par les pouvoirs publics pour servir d’intermédiaire dans l’exécution des enquêtes statistiques. Les organismes enquêteurs agréés adressent au service initiateur de l’enquête, dans les délais fixés par leur contrat de service, les renseignements qu’ils ont recueillis. Amashirahamwe akora umwuga kanaka canke amashirahamwe y’imyuga ifise ico ihuriyeko ashobora kwemererwa gukora n’abajejwe intwaro kugira ngo afashe Reta gushira mu ngiro ibikorwa bijanye n’amatohoza y’ibiharuro bifatirwako. Amashirahamwe akora amatohoza yemerewe gukora ashikiriza inkuru yatororokanije ibisata vyasavye amatohoza mu biringo bitomorwa mu masezerano y’ugukora ayo matohoza.

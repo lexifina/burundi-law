@@ -1,0 +1,5 @@
+# Article 25
+
+lngingo ya 25 Les services relevant du Système Statistique National (SSN) décident librement des sources de collecte de données de base pour la production des statistiques officielles en tenant compte des coûts de collecte et de la charge des répondants. lbisata bihurikiye mu Rwego SSN birafata ingingo mu bwigenge aho bikura ivyatororokanijwe bi koresha mu kugira ibiharuro bifatirwako vyemewe hafatiwe ku kuburyo bwokoreshwa mu kubitororokanya n’ibishobora kuremera abatanga inkuru.
+
+Les sources de données de base et les méthodes de leur traitement doivent permettre la production, par des méthodes scientifiques éprouvées et adaptées, des statistiques officielles comparables aux standards internationaux. Ahava ibitororokanywa hamwe n’ubuhinga bukoreshwa mu kuvyihweza bitegerezwa gutuma vyoroha gutororokanya ibiharuro bifatirwako vyemewe, hakoreshejwe ubuhinga bwo mu bushakashatsi bwamaze gukoreshwa ahandi kandi bujanye n’ibitororokanywa bumeze n’ubukoreshwa ku rwego mpuzamakungu.

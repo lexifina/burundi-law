@@ -1,0 +1,5 @@
+# Article 36
+
+lngingo ya 36 Les personnes physiques et morales soumises aux enquêtes et aux recensements statistiques sont tenues de répondre avec exactitude et dans les délais leur impartis. Abantu n’amashirahamwe bagirwako amatohoza canke urusansuma z’ugutororokanya ibiharuro bifatirwako bategerezwa gutanga inkuru z’ukuri kandi mu biringo bahabwa.
+
+Les personnes physiques ou morales, appelées à fournir les fichiers administratifs aux services statistiques compétents à des fins d’exploitation statistique, sont tenues de mettre lesdits fichiers à la disposition de ces services dans un délai convenu entre lesdites personnes et le service compétent. Abantu canke amashirahamwe, bahamagariwe guha ibisata bijejwe gutororokanya ibiharuro bifatirwako bibifitiye ububasha idosiye zikoreshwa mu ntwaro kugira bizikoreshe mu bijanye n’ugutororokanya ibiharuro bifatirwako, bategerezwa kuzironsa ivyo bisata igihe cose bizikeneye mu kiringo abo bantu n’ayo mashirahamwe bumvikanyeko n’igisata gifise ububasha bw’ukuzitanga.

@@ -1,0 +1,3 @@
+# Article 39
+
+lngingo ya 39 L’autorité statistique nationale et les services centraux des statistiques ministériels s’attachent à évaluer et améliorer constamment la qualité des statistiques officielles en termes de pertinence, d’exactitude, de fiabilité, d’actualité, de transparence, de clarté, de cohérence et de comparabilité. lgisata c’igihugu kijejwe gutororokanya ibiharuro bifatirwako n’ibisata bijejwe gutororokanya ibiharuro bifatirwako vyo mu burongozi bw’ubuushikiranganj butandukanye biraja birasuzuma no gutuma ibiharuro vy’ibitororokanywa bifatirwako vyemewe bimera neza gusumba mu kubigira nkenerwa, ivy’ukuri, ivy’ukwizerwa bihuye n’igihe kigezweho, bikorerwa ku mugaragaro, bitahurika, biroranye kandi bishobora kugereranywa n’ibindi.
