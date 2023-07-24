@@ -6,4 +6,6 @@ Le conseil de l’ordre peut omettre du tableau:
 
 2° l’avocat qui ne s’acquitte pas dans les délais prescrits de sa cotisation;
 
-3° l’avocat qui refuse de suivre les formations obligatoires. Section IV De la coordination des barreaux
+3° l’avocat qui refuse de suivre les formations obligatoires.
+
+Section IV De la coordination des barreaux
