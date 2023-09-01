@@ -12,7 +12,7 @@ La section Informatique de Maintenance est ouverte dans les établissements suiv
 
 – Lycée Technique Nyabigina, en commune Makamba
 
-– Lycée Reine des Apotres de Kaganza en com­ mune Vyanda
+– Lycée Reine des Apotres de Kaganza en commune Vyanda
 
 – Lycée Technique Ruhande en commune Gishubi
 

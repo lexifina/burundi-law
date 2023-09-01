@@ -1,6 +1,6 @@
 # Article 5
 
-La section Agriculture est ouverte dans les éta­ blissements suivants:
+La section Agriculture est ouverte dans les établissements suivants:
 
 – ITAB Kivyuka en commune Musigati
 
@@ -20,6 +20,6 @@ La section Agriculture est ouverte dans les éta­ blissements suivants:
 
 – ITAB Rubirizi en commune Bukemba
 
-– ITAB Saint Pierre et Paul de Karinzi en Com­ mune Mutambu
+– ITAB Saint Pierre et Paul de Karinzi en Commune Mutambu
 
 – ITAB Bikobe en commune Nyabitsinda

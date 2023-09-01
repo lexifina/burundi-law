@@ -4,8 +4,8 @@ La section Informatique de Télécommunication est ouverte dans les établisseme
 
 – Lycée Communal Nyamitanga en commune Buganda
 
-– Lycée Technique Kibuye en commune Bukira­ sazi
+– Lycée Technique Kibuye en commune Bukirasazi
 
-– Lycée Paix de Marumane en commune Rute­ gama
+– Lycée Paix de Marumane en commune Rutegama
 
 – Lycée Technique Sainte Marie Consolatrice des Affligés de Saswe en commune Kayokwe

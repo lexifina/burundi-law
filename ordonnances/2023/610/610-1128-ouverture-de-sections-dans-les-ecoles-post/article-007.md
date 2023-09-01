@@ -1,6 +1,6 @@
 # Article 7
 
-La section Eaux et forêts est ouverte dans les éta­ blissements suivants:
+La section Eaux et forêts est ouverte dans les établissements suivants:
 
 – ITAB Ruce en commune Rugazi
 

@@ -30,8 +30,8 @@ La section Informatique de Gestion est ouverte dans les établissements suivants
 
 – Lycée Technique Regina Pacis de Nyabihanga en commune Nyabihanga
 
-– Lycée Technique Kirama en commune Buyen­ gero
+– Lycée Technique Kirama en commune Buyengero
 
 – Lycée Technique Kagoma en commune Kayokwe
 
-– Lycée Technique Communal de Bitare en com­ mune Rumonge
+– Lycée Technique Communal de Bitare en commune Rumonge
