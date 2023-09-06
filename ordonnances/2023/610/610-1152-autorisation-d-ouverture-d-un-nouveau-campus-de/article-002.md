@@ -1,8 +1,8 @@
 # Article 2
 
-Il est accordé à International Leadership Univer­ sity l’autorisation d’ouverture d’un nouveau cam­ pus universitaire à Kiyange abritant les programmes de formation de master déjà autori­ sés et les nouveaux programmes de l’enseigne­ ment supérieur technique et professionnel suivants: 1. Niveau Master:
+Il est accordé à International Leadership University l’autorisation d’ouverture d’un nouveau campus universitaire à Kiyange abritant les programmes de formation de master déjà autorisés et les nouveaux programmes de l’enseignement supérieur technique et professionnel suivants: 1. Niveau Master:
 
-– Master of Business administration. 2. Enseignement Supérieur Technique et Profes­ sionnel:
+– Master of Business administration. 2. Enseignement Supérieur Technique et Professionnel:
 
 – Business administration, options:
 
