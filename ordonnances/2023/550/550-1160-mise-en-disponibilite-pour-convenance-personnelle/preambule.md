@@ -10,10 +10,10 @@ Vu la Loi n°1/08 du 17 mars 2005 portant Code de l’Organisation et de la Comp
 
 Vu la loi n°1/001 du 29 février 2000 portant Réforme du Statut des Magistrats, spécialement en ses articles 82, 1° et 84;
 
-Vu le Décret n°100/119 du 18 décembre 2020 por­ tant Mission et Organisation du Ministère de la Justice;
+Vu le Décret n°100/119 du 18 décembre 2020 portant Mission et Organisation du Ministère de la Justice;
 
-Vu la lettre du 19/06/2023 par laquelle Madame Espérance NDIHOKUBWAYO, Matricule: 14420361 (223.125) demande une mise en dispo­ nibilité;
+Vu la lettre du 19/06/2023 par laquelle Madame Espérance NDIHOKUBWAYO, Matricule: 14420361 (223.125) demande une mise en disponibilité;
 
-Vu le dossier personnel et administratif de l’inté­ ressée;
+Vu le dossier personnel et administratif de l’intéressée;
 
 Ordonne
