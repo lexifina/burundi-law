@@ -1,0 +1,3 @@
+# Article 1
+
+La Fondation dénommée « ACTION POUR L’EDUCATION FINANCIERE ET SOCIALE DE PASSY ET CARMELLA » est agréée.
