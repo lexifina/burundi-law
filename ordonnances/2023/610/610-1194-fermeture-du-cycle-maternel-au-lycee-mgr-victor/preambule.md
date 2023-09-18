@@ -18,7 +18,7 @@ Vu l’Ordonnance Ministérielle n°620/254 du 08 Août 1990 portant réorganisa
 
 Vu le Décret n°100/204 du 17 septembre 2021 portant Création, Missions, Organisation et Fonctionnement de la Commission Nationale de l’Enseignement Fondamental et Post Fondamental ;
 
-Vu l’Ordonnance Ministérielle n°610/1038 du 11/07/2022 portant ouverture des cycles « maternel», « fondamental » et de la section « BCST » au Lycée Monseigneur Victor Scheppers de Gihosha ;
+Vu l’Ordonnance Ministérielle n°610/1038 du portant ouverture des cycles « maternel», « fondamental » et de la section « BCST » au Lycée Monseigneur Victor Scheppers de Gihosha ;
 
 Vu l’Ordonnance Ministérielle n°610/1833 du 24/10/2022 portant Révision de l’Ordonnance Ministérielle n°620/1095 des 19/06/2020 portant normes de qualité et conditions d’ouverture, d’agrément et de fermeture d’un établissement d’enseignement et de formation privé ;
 
