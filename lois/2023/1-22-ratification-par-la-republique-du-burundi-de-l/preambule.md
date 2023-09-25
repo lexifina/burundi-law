@@ -1,0 +1,11 @@
+# Loi n°1/22 du 25 septembre 2023
+
+PORTANT RATIFICATION PAR LA REPUBLIQUE DU BURUNDI DE L’ACCORD ENTRE LE GOUVERNEMENT DE L’ETAT DU QATAR ET LE GOUVERNEMENT DE LA REPUBLIQUE DU BURUNDI CONCERNANT LA REGLEMENTATION DE L’EMPLOI DES TRAVAILLEURS BURUNDAIS DANS L’ETAT DU QATAR, SIGNE A DOHA, LE 07 MARS 2023
+
+Le Président de la République,
+
+Vu la Constitution de la République du Burundi ;
+
+Le Conseil des Ministres ayant délibéré ; L’Assemblée Nationale et le Sénat ayant adopté;
+
+Promulgue:
