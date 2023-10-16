@@ -1,0 +1,3 @@
+# Article 24
+
+La Cellule Communication a pour missions de : - Produire les bulletins d’information sur les activités de l’ARB ; - Concevoir des mécanismes dynamiques d’information, de communication et de relations publiques susceptibles d’établir , de développer et de maintenir les relations entre l’ARB, ses partenaires et l’opinion publique ; - Coordonner la couverture médiatique de toutes les activités officielles réalisées par l’ARB et produire des comptes rendus y relatifs ; - Alimenter et assurer le suivi du fonctionnement et développement du Site Web de l’ARB et d’autres canaux de communication de l’ARB; - Contrôler la bonne tenue des documents d’informations et d’autres supports électroniques.

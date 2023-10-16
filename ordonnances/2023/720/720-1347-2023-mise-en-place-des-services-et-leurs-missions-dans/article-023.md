@@ -1,0 +1,3 @@
+# Article 23
+
+La Cellule Juridique a pour missions de : - Fournir des avis juridiques sur des dossiers lui soumis par la Direction Générale; Prévenir les contentieux qui pourraient naître à l’Agence ; - Appuyer l’Avocat du Gouvernement sur les aspects juridiques dans le traitement de certains dossiers litigieux introduits auprès des instances judiciaires par l’ARB, les Entreprises ou les Tiers en diverses matières; - Produire des rapports périodiques du service; - Inculquer et promouvoir la culture juridique au sein de la Direction Générale ; Effectuer toute autre tâche lui confiée par le Directeur Général.
