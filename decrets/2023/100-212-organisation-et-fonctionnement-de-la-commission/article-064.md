@@ -1,0 +1,3 @@
+# Article 64
+
+Lorsqu’une personne se prévaut du secret des affaires, elle signale par lettre, à l’occasion de leur communication à la Commission de la concurrence, les informations, les documents ou les parties des documents considérés comme mettant en jeu le secret des affaires et demande, pour des motifs qu’elle précise pour chacun d’entre eux, leur classement en annexe confidentielle. Elle fournit séparément une version non confidentielle de ces documents ainsi qu’un résumé des éléments dont elle demande le classement. Le cas échéant, elle désigne les entreprises à l’égard desquelles le secret des affaires est susceptible de s’appliquer.

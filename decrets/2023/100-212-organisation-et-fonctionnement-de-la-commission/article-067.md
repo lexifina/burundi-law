@@ -1,0 +1,3 @@
+# Article 67
+
+Lorsque le rapporteur considère qu’une pièce classée en annexe confidentielle est nécessaire à la procédure, il en informe par lettre recommandée avec accusé de réception à la personne qui en a demandé le classement. Si cette dernière s’oppose, dans le délai qui lui a été imparti par le rapporteur, à ce que la pièce soit utilisée dans la procédure, elle saisit le président de la Commission. Lorsque le président ou le vice-président confirme son opposition, la pièce est maintenue dans l’annexe confidentielle. Dans le cas contraire, il en autorise l’utilisation par le rapporteur et sa communication aux parties mises en cause ainsi qu’au Commissaire du Gouvernement.

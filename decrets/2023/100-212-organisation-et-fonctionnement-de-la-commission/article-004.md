@@ -1,0 +1,3 @@
+# Article 4
+
+L’association des consommateurs ainsi que les associations représentatives, exerçant ou ayant exercé leurs activités dans les secteurs de la production, du commerce, de l’artisanat, des services ou des professions libérales, établissent elles-mêmes les procédures de sélection de leurs représentants. En cas d’impossibilité manifeste ou de retard prolongé supérieur à trois mois dans l’organisation et la sélection de ces représentants, le Ministre ayant le commerce dans ses attributions peut, par ordonnance motivée, les sélectionner sur la liste officielle des membres desdites associations.
