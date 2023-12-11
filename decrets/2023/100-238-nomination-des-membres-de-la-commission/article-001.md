@@ -1,0 +1,3 @@
+# Article 1
+
+Sont nommés Membres de la Commission Electorale Nationale Indépendante « CENI»: 1. Monsieur Prosper NTAHORWAMIYE: Président; 2. Madame Victoire NAHIMANA: Vice-Président; 3. Madame Odette BIZUMUREMYI: Commissaire chargé de l’Administration et des Finances; 4. Monsieur Sylvestre NYANDWI: Commissaire chargé des Affaires Juridiques et du Contentieux Electoral; 5. Monsieur François BIZIMANA: Commissaire chargé de l’Education Electorale et de la Communication; 6. Monsieur Léonidas NDAYIRAGIJE: Commissaire chargé des Opérations, de l’Informatique Electorale et de la Maintenance des Equipements; 7. Monsieur Gabby BUGAGA: Commissaire chargé de la Logistique Electorale et des Approvisionnements.
