@@ -18,4 +18,6 @@ Le Centre a pour missions de :
 
 - servir de centre de rayonnement et d’encadrement socio-professionnel des autres structures de formation et de production de la localité;
 
-- organiser des tests de validation des acquis de l’expérience et des acquis professionnels. Section 2 De l’organisation administrative
+- organiser des tests de validation des acquis de l’expérience et des acquis professionnels.
+
+Section 2 De l’organisation administrative
