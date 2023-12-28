@@ -1,0 +1,5 @@
+# Article 127
+
+Ingingo ya 127 La décision de sursis peut être frappée d’un recours s’il est justifié d’un motif légitime. Ingingo ishinga ko urubanza rubangira irasho-bora gusubirishwamwo iyo bitangiwe imvo yemewe n’amategeko.
+
+La partie qui veut exercer le recours saisit le pré-sident de la juridiction qui statue dans la forme des référés. L’assignation doit être délivrée dans le mois de la décision. Umuburanyi yipfuza gusubirishamwo ingingo yitura umukuru wa sentare, na we agafata ingingo mu buryo bw’imanza zihutirwa kubura-nishwa. Umutahe utegerezwa gutangwa mu kwezi ingingo yafatiwemwo. S’il reçoit la demande, le président fixe, par une décision non susceptible d’appel, le jour où l’affaire est examinée par la juridiction. Iyo yemeye ivyo asabwe, umukuru wa sentare arashinga, abicishije mu ngingo idashobora kwungururizwa, umusi sentare izokwihwerezako urubanza. Sous-section 2 Agahimba k’agace ka 2 De la radiation et du retrait du rôle Ugufuta urubanza hamwe n’ugukura urubanza ku rutonde rw’iziburanishwa

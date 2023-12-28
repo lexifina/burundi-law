@@ -1,0 +1,3 @@
+# Article 413
+
+Ingingo ya 413 Le Conservateur des Titres Fonciers, après avoir pris l’avis du saisissant et de la partie saisie, fixe la date de la vente publique, au moins quinze jours après la notification du commandement, et au moins trente jours après l’affichage dans la localité où la vente doit avoir lieu. Uwujejwe kwandika no gushingura impapuro ndangatongo amaze kwumva iciyimviro c’uwafa-tishije n’uwafatiwe amatungo, aca ashinga igene-kerezo iryo gurishwa rizoberako n’imiburiburi imbere y’imisi cumi n’itanu iharurwa kuva hame-nyeshejwe umutahe w’ugufatisha amatungo, n’imiburiburi imisi mirongo itatu hamaze kuma-nikwa urwandiko ahantu iryo gurishwa ritege-rezwa kuberako.

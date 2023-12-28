@@ -1,0 +1,3 @@
+# Article 157
+
+Ingingo ya 157 Si le témoin justifie qu’il n’a pu se présenter au jour indiqué, le juge peut lui accorder un délai. Dans ce cas, il est déchargé de l’amende et des frais de la nouvelle convocation. Iyo isura ryerekanye ko ritashoboye kurenguka ku musi wategekanijwe, umucamanza ashobora kumuha ikindi kiringo. Muri ico gihe, aca akwurwako ihadabu n’amafaranga y’umutahe mushasha. Si le témoin est dans l’impossibilité de se présen-ter, le juge peut se transporter pour recevoir sa déposition. Iyo isura ridashobora kurenguka, umucamanza arashobora kumushikira kugira yakire ivyo iryo sura rishikiriza.

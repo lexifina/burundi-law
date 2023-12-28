@@ -1,0 +1,3 @@
+# Article 107
+
+Ingingo ya 107 L’intervention est l’acte par lequel un tiers qui, originairement, n’était pas partie dans une ins-tance, s’y présente ou est appelé à y prendre part. Ukwinjira mu rubanza bivugwa igihe uwundi muntu, mu ntango, atari umuburanyi arwin-jiyemwo canke ahamagarirwa kurwinjiramwo. L’intervention est dite volontaire lorsqu’un tiers intervient spontanément dans la cause. Elle est dite forcée ou mise en cause lorsqu’une assigna-tion est dirigée par le demandeur ou le défendeur contre un tiers. Bivugwa ko uwundi muntu yinjiye mu rubanza ku gushaka mu gihe aciye arwinjiramwo avyisha-kiye. Bivugwa na ho ko yarwinjiyemwo ku gahato canke arukwegewemwo iyo uwitwaye canke uwit-wariwe asavye ko arungikirwa umutahe.

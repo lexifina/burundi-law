@@ -1,0 +1,5 @@
+# Article 177
+
+Ingingo ya 177 Les contestations afférentes à la régularité du siège sont présentées, sous peine d’irrecevabilité, dès l’ouverture des débats ou dès la révélation de l’irrégularité si celle-ci survient postérieurement, faute de quoi aucune nullité ne peut être ultérieu-rement prononcée de ce chef, même d’office. Ibijanye n’uguhakana abagize intahe, kugira vya-kirwe bishikirizwa imburano zigitangura canke kuva hamenyekanye ko abagize intahe bashi-zweho hatisunzwe amategeko iyo bimenyekanye mu nyuma, bitagenze uko na ho ntawusaba mu nyuma ko ingingo yafashwe igirwa impfagusa hafatiwe kuri iryo kosa, n’aho abacamanza boba ari bo bavyibwirije.
+
+Les dispositions de l’alinéa qui précède ne sont pas applicables dans les cas où il a été fait appel à une personne dont la profession ou les fonctions ne sont pas de celles qui l’habilitent à faire partie de la juridiction. Ibitegekanijwe mu gahimba ka mbere k’iyi ngingo ntibikurikizwa mu bihe mu ntahe hashizwemwo umuntu afise umwuga canke ashinzwe amabanga atamurekurira kuba ari mu bacamanza bo muri iyo sentare.

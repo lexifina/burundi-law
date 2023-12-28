@@ -1,0 +1,3 @@
+# Article 146
+
+Ingingo ya 146 A l’exception des avocats régulièrement inscrits à un barreau, les autres mandataires doivent justi-fier d’un pouvoir spécial, qui peut être donné au bas de l’assignation et doivent être agréés dans chaque cas par le juge. L’avocat porteur de pièces de procédure est présumé représenter valable-ment la partie qu’il invoque. Kiretse abashingwamanza basanzwe banditswe mu rwego rw’abashingwamanza, izindi ntumwa zitegerezwa kwerekana ububasha budasanzwe bushobora kwerekanwa mu mpera z’umutahe kandi zitegerezwa kuba zemewe n’umucamanza. Umushingwamanza yitwaje ivyemeza vy’amate-geko afatwa nk’uwuserukira bikwiye umuburanyi avugira

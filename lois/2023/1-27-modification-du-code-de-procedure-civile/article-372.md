@@ -1,0 +1,3 @@
+# Article 372
+
+Ingingo ya 372 Si les portes sont fermées ou si l’ouverture en est refusée, ou s’il est fait contre l’huissier des actes de violence ou de résistance, il prend toutes les mesures conservatoires pour empêcher les détournements et demande l’assistance de la force publique par l’intermédiaire du Ministère public ou de l’autorité locale. Iyo inzugi zugaye canke uwuheranye yanse kwu-gurura, iyo akubaguye umumenyeshamanza canke agagaje, uwo mumenyeshamanza aca afata ingingo zose z’ugukinga kugira abuze inyuruzwa ry’ayo matungo kandi agasaba gufashwa n’abaje-jwe umutekano abicishije ku Mushikirizamanza canke umutegetsi w’aho hantu.

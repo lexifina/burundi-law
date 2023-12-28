@@ -1,0 +1,3 @@
+# Article 179
+
+Ingingo ya 179 Les audiences des juridictions sont publiques, sauf cas de huis-clos prononcé par décision judi-ciaire lorsque la publicité est dangereuse pour l’ordre public, ou les bonnes mœurs, s’il survient des désordres de nature à troubler la sérénité de la justice, s’il doit résulter de la publicité des audiences une atteinte à l’intimité de la vie privée des parties. Ukuburanisha imanza muri sentare bibera mu ntahe y’icese, kiretse sentare ishinze ko bibera mu mwiherero mu gihe uko kuburanisha mu ntahe y’icese bishobora kubangamira umutekano w’aba-nyagihugu canke imico myiza, canke hadutse imi-dugararo ku buryo ishobora gutuma sentare ikora idatekanye, iyo ukuburanira mu ntahe y’icese vyotuma amabanga y’ubuzima bw’umuburanyi amenyekana.

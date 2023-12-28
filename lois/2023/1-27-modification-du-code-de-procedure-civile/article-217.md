@@ -1,0 +1,3 @@
+# Article 217
+
+Ingingo ya 217 Lorsque, après avoir comparu, le défendeur ne se présente plus ou s’abstient de conclure, le deman-deur peut poursuivre l’instance, après somma-tion de conclure faite au défendeur. Igihe uwitwariwe yamaze kurenguka adasubiriye kwitaba sentare canke yanse gutanga imburano zanditse, uwitwaye arashobora gukurikirana imburano inyuma yuko uwitwariwe bamutegetse kwitaba canke kwandika imburano ziwe. Ukwo kumugabisha babigira bamusubiriramwo ivyan-ditse muri ino ngingo. Haheze ikiringo c’iminsi rwumvirizwa. Ico gihe baca bafata yuko urubanza rwaciwe ababuranyi bose bahinyuzanya.

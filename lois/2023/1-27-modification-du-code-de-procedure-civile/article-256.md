@@ -1,0 +1,3 @@
+# Article 256
+
+Ingingo ya 256 Les jugements qui tranchent dans leur dispositif une partie du principal et ordonnent une mesure d’instruction ou une mesure provisoire peuvent être immédiatement frappés d’appel comme les jugements qui tranchent tout le principal. Imanza zicibwa zishingiye gusa mw’iciro ryazo kuri bimwe bimwe mu vyasabwe zigashinga ingingo ijanye n’ugutohoza canke ingingo mfata-kibanza zirashobora kwunguruzwa ubwo nyene nk’imanza zicibwa zishingiye ku vyasabwe vyose. Il en est de même des jugements qui, sans juger le fond, mettent fin à l’instance. Dans ce cas, le juge d’appel évoque l’ensemble de la cause. Ni ko kw’uko no ku ngingo zishinga ko urubanza rurangiye rutaburanishijwe mw’ido n’ido. Muri ico gihe, sentare y’iyungururizo ifatira ku rubanza rwose.

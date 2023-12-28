@@ -1,0 +1,5 @@
+# Article 377
+
+Ingingo ya 377 La vente a lieu à la criée de l’huissier et au comp-tant L’adjudication est faite au plus offrant. Igurishwa ngirwa icamunara n’umumenyesha-manza kandi uwuguze agatangira amafaranga aho nyene. Ibiriko biragurishwa bitsindira uwat-anze menshi kurusha abandi. Si l’adjudicataire ne paye pas comptant, l’objet est immédiatement remis en vente. Iyo uwubitsindiye mw’igurishwa ry’icamunara adatangiye amafaranga aho, ikiriko kiragurishwa gica gisubizwa kwisoko.
+
+Le premier adjudicataire doit les intérêts du prix de son adjudication conformément aux clauses du cahier des charges, jusqu’au jour de la revente. Il ne peut en aucun cas répéter les frais de procé-dure et les droits qu’il aura payés. Uwabitsindiye ubwa mbere ategerezwa kwongera inyungu ku giciro yatsindiyeko, hisunzwe ingingo ziri mu masezerano agenga ibisabwa vyose mw’iringanizwa ry’isoko, gushika umusi wo gusu-bira kukigurishirizako. Ntashobora guhirahira ngo asabe gusubizwa amafaranga yari amaze gutanga kuva yinjire mw’ihiganwa.

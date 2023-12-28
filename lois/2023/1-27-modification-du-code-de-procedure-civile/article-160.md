@@ -1,0 +1,3 @@
+# Article 160
+
+Ingingo ya 160 Si le témoin est domicilié en dehors du ressort du tribunal et ne peut sans difficultés se déplacer pour comparaître, le juge donne commission rogatoire au président du tribunal du domicile du témoin pour procéder à son audition. Ce magis-trat peut déléguer tout juge de son ressort pour assurer la commission. Iyo isura iba mu karere katagengwa na sentare vyerekeye kandi ridashobora kwiyunguruza ata ngorane, kugira rirenguke, umucamanza arasho-bora gutuma Umukuru wa Sentare w’aho isura riba kugira aryumvirize. Uwo mushikirizamanza ashobora gutuma umucamanza wese wo mu karere ajejwe kurangura ubwo butumwa.

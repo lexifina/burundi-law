@@ -1,0 +1,3 @@
+# Article 294
+
+Ingingo ya 294 La tierce opposition tend à faire rétracter ou réformer un jugement au profit du tiers qui l’attaque. Ugusubirishamwo urubanza rwaciriwe abandi bifise intumbero y’ugusaba sentare kwivuguruza ku rubanza yaciye canke kuruhindura ku nyungu y’uwurusubirishamwo. Elle remet en question, relativement à son auteur, les points jugées qu’elle critique pour qu’il soit à nouveau statué en fait et en droit. Ugusubirishamwo urubanza rwaciriwe abandi bituma hasubira kwihwezwa ingingo zari zafashwe zinegurwa n’uwurusubirishamwo kugira rusubire gucibwa hafatiwe kw’ido n’ido ryarwo no ku mategeko.

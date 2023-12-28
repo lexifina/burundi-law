@@ -1,0 +1,3 @@
+# Article 285
+
+Ingingo ya 285 Les parties peuvent également expliciter les pré-tentions qui étaient virtuellement comprises dans les demandes et défenses soumises au pre-mier juge et ajouter à celles-ci toutes les demandes qui en sont l’accessoire, la conséquence ou le complément. Ababuranyi barasbobora kandi gutomora neza ivyo basaba bitari bitomoye neza mu mburano z’ukwitwara no mu mburano z’ukwiregura zashi-kirijwe sentare yo ku rugero rwa mbere no kwon-gerako ivyo basaba vyose bijanye n’ivya mbere, vy’inkurikizi canke vyunganira ivya mbere. Paragraphe 2 Agahimba ka 2 L’évocation Ugufatira ku bitihwejwe ku rugero rwa mbere

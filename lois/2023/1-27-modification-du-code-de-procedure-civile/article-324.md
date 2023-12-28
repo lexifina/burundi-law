@@ -1,0 +1,5 @@
+# Article 324
+
+Ingingo ya 324 En cas de non conciliation et après la procédure de mise en état, le président de la juridiction transmet le dossier au Ministère public pour qu’il donne son avis écrit. Sous peine de déni de jus-tice, le Ministère public dispose d’un délai de trente jours pour donner son avis. Mu gihe ata kwumvikana kwahabaye kandi hamaze gusuzumwa ko ibikenewe bikwiye kugira urubanza rushobore kuburanishwa, umukuru wa sentare ararungikira idosiye umushikirizamanza kugira atange iciyumviro ciwe canditse. Kugira ntibifatwe ko ari ukunana guca urubanza, umushikirizamanza afise ikiringo c’imisi mirongo itatu kugira agire ico ashikirije.
+
+Le président de la juridiction fixe ensuite l’affaire pour l’audience publique. Sous peine de déni de justice, la décision est rendue dans les trente jours qui suivent la clôture des débats à une date annoncée aux parties à l’avance. Umukuru wa Sentare aca ashira urubanza mu ntahe y’icese. Kugira ntibafatwe ko abacamanza bananye guca urubanza, rutegerezwa gucibwa mu misi mirongo itatu ikurikira isozerwa ry’imbu-rano, kw’igenekerezo riba ryamenyeshejwe aba-buranyi imbere y’igihe.

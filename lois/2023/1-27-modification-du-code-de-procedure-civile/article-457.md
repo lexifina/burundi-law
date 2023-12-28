@@ -1,0 +1,3 @@
+# Article 457
+
+Ingingo ya 457 L’arbitrage ad hoc est celui organisé par les par-ties elles-mêmes dans la convention d’arbitrage et selon les règles de procédure convenues. A cet effet, les parties peuvent se convenir sur une loi, même étrangère, qui sera d’application. Ukwumvikanisha kugirwa n’abahuza bashizweho n’abafitaniye amatati nyene mu masezerano y’ukwumvikanisha hisunzwe ingingo bumvika-nye. Muri ico gihe, impande zose zirashobora kwumvikana kw’itegeko ryokurikizwa naho ryoba iryo mu mahanga. L’arbitrage ad hoc est composé soit d’un arbitre unique soit de trois arbitres. Ukwumvikanisha kugirwa n’abahuza bashi-riweho ico kugirwa n’umuhuza umwe canke batatu.

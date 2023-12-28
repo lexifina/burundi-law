@@ -1,0 +1,3 @@
+# Article 476
+
+Ingingo ya 476 Tout différend qui pourrait s’élever entre les par-ties concernant le sens ou la portée de la sentence arbitrale peut faire l’objet d’une demande en interprétation adressée par écrit à l’arbitrage ad hoc qui a statué ou aux organes habilités de l’arbitrage institutionnel. Amatati yose ashobora kwaduka hagati y’abumvi-kanishijwe yerekeye insiguro canke ububasha bw’ingingo yafashwe n’abahuza arashobora gutuma hasabwa insiguro biciye mu rwandiko rurungikirwa abahuza bashirirwaho ico bari bafashe iyo ngingo canke inzego z’abahuza zibifi-tiye ububasha. CHAPITRE IX IGICE CA IX DES FRAIS D’ARBITRAGE ET DES HONORAIRES DES ARBITRES AMAFARANGA AJANYE N’UKWUMVIKANISHA N’AGAHEMBO GAHABWA ABAHUZA

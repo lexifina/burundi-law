@@ -1,0 +1,3 @@
+# Article 427
+
+Ingingo ya 427 L’astreinte est une condamnation à une somme d’argent, à raison de tant par jour, par semaine ou par mois de retard, prononcée par le juge du fond ou le juge des référés, contre un débiteur récalcitrant, en vue de l’amener à exécuter la décision de justice ou tout autre mesure exécu-toire. Ihadabu ry’ugucererwa kuriha ni igihano c’ukuja hararihwa amafaranga, ku musi ku musi, ku ndwi ku ndwi canke ku kwezi ku kwezi uwuhera-nye atarishe, gishingwa n’umucamanza w’ido n’ido canke umucamanza w’imanza zerekeye ivyihutirwa, agicira uwuheranye aclashaka kuriha, mu ntumbero yo kumutuma ashira mu ngiro ingingo ya sentare canke iyindi ngingo yose itegerezwa gushirwa mu ngiro.

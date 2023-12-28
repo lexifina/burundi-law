@@ -1,0 +1,3 @@
+# Article 269
+
+Ingingo ya 269 Le délai d’appel est de trente jours francs s’il n’est autrement disposé. Ikiringo c’ukwunguruza urubanza ni ic’imisi mirongo itatu iyo bidategekanijwe ukundi. Pour les jugements contradictoires, il court à dater du lendemain de la signification. Ku manza zaciwe ababuranyi bahinyuzanya, ico kiringo gitangura guharurwa kuva umusi ukuri-kira uwo urubanza rwamenyesherejweko. Pour les jugements par défaut, les délais courent du jour où l’opposition n’est plus recevable. Ku manza zaciwe impaga, ibiringo bitangura guharurwa kuva umusi zitaba zigishobora gusu-birishwamwo rnuri sentare yaziciye.

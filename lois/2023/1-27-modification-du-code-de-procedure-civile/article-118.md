@@ -1,0 +1,3 @@
+# Article 118
+
+Ingingo ya 118 Le juge peut, à la demande des parties ou d’office, ordonner la jonction de plusieurs instances pen-dantes devant lui s’il existe entre les litiges un lien tel qu’il soit de l’intérêt d’une bonne justice de les faire instruire ou juger ensemble. Umucamanza arashobora, bisabwe n’ababuranyi canke avyibwirije, gushinga ko imanza nyinshi ziri mu minwe yiwe zifatanywa iyo zifitaniye isano mu gihe bigaragara ko ukuzitohoreza hamwe canke ukuzicira hamwe vyofasha ubutun-gane mu gutunganiriza ababwituye. Il peut également ordonner la disjonction d’une instance en plusieurs. Umucamanza arashobora kandi gushinga ko uru-banza nyamukuru rutandukanywa n’izadutse muri rwo.

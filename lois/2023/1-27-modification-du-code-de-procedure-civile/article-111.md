@@ -1,0 +1,3 @@
+# Article 111
+
+Ingingo ya 111 L’intervention est accessoire lorsqu’elle appuie les prétentions d’une partie. Elle est recevable lorsque son auteur a intérêt, pour la conservation de ses droits, à soutenir cette partie. L’interve-nant à titre accessoire peut se désister unilatéra-lement de son intervention. Ukwinjira mu rubanza biba vyunganira mu gihe bishigikira ivyashikirijwe n’umuburanyi. Urwan-diko rw’ugusaba kwinjira mu rubanza nk’uwun-ganira rwakirwa mu gihe nyene kurwandika afise inyungu y’ukugumana uburenganzira bwiwe, yo gushigikira uwo muburanyi. Uwinjira mu rubanza nk’uwunganira arashobora gusokora ivyo yari yashikirije ata we arinze kugisha inama.

@@ -1,0 +1,3 @@
+# Article 240
+
+Ingingo ya 240 En cas de condamnation solidaire ou indivisible de plusieurs parties, la notification faite à l’une d’elles ne fait courir les délais qu’à son égard. Mu gihe ababuranyi basangiye urubanza baci-riwe igihano rusangi canke kidashobora kugabu-rirwa ababuranyi, umuburanyi umwe muri bo amenyeshejwe urubanza ntibituma abatararu-menyeshwa baharurirwa ibiringo vy’ugusubi-rishamwo. Dans le cas où le jugement profite solidairement à plusieurs parties, chacune peut se prévaloir de la notification faite par l’une d’elles. Mu gihe ababuranyi benshi basangiye urubanza barutsinze, umwumwe wese muri bo arashobora kwitwaza ko umwe muri bo yamenyeshejwe uru-banza.

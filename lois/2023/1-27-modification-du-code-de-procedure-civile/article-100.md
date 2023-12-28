@@ -1,0 +1,3 @@
+# Article 100
+
+Ingingo ya 100 L’exécution d’une demande de notification ou de signification peut être refusée par l’autorité burundaise si elle est de nature à porter atteinte à la souveraineté, aux bonnes mœurs ou à la sécurité de l’Etat. Umutegetsi wo mu Burundi arashobora kutame-nyesha ingingo yafashwe na sentare yo mu kindi gihugu canke kuyishikiriza uwo igenewe iyo bishobora kubangamira ubwigenge bw’igihugu, imico myiza canke umutekano w’igihugu. Elle peut également être refusée si la demande n’est pas présentée conformément aux disposi-tions du présent Code. Ukumenyesha iyo ngingo birashobora kutemerwa igihe vyasabwe hatisunzwe ibitegekanijwe n’iki Gitabu c’amategeko. Section 2 Agace ka 2 De la computation des délai Ingene ibiringo biharurwa

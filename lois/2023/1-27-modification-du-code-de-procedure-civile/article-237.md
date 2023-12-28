@@ -1,0 +1,3 @@
+# Article 237
+
+Ingingo ya 237 Les ordonnances de référés sont exécutoires par provision sans caution à moins que le juge n’ait ordonné qu’il en soit foumi une. En cas de néces-sité, le juge peut ordonner l’exécution de son ordonnance sur minute. Ingingo zifatwa ku vyihutirwa zirakurikizwa n’aho urubanza rwoba rwungurujwe kandi ntizi-tangirwe ingwati kiretse umucamanza yashinze ko hatangwa ingwati. Igihe bikenewe, umuca-manza arashinga ko ingingo yafashe ica ikuriki-zwa ubwo nyene igifatwa. CHAPITRE X IGICE CA X DES VOIES DE RECOURS UBURYO BW’UGUSUBIRISHAMWO Section 1 Agace ca 1 Des dispositions communes Ingingo rusangi

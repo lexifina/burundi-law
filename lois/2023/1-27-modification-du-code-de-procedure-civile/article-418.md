@@ -1,0 +1,3 @@
+# Article 418
+
+Ingingo ya 418 Le Conservateur des Titres Fonciers dresse l’acte d’adjudication et en remet expédition à l’adjudi-cataire, après qu’il a justifié du payement du prix et des frais entre les mains d’un comptable de l’Etat. L’adjudicataire fait enregistrer la pro-priété en son nom en remettant au Conservateur des Titres Fonciers copie de l’acte d’adjudication. Uwujejwe kwandika no gushingura impapuro ndangatongo aragira urwandiko rwemeza ivyagu-rishijwe icamunara akongera agaha ikopi yarwo uwatsindiye isoko amaze kwerekana ko yarishe ikiguzi n’amafaranga yakoreshejwe akayashiki-riza umunyabigega wa Reta.

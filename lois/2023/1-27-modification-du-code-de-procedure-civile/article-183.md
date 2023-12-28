@@ -1,0 +1,5 @@
+# Article 183
+
+Ingingo ya 183 Les personnes qui assistent à l’audience doivent observer une attitude digne et garder le respect dû à la justice. Il leur est interdit de parler sans y avoir été invitées, de donner des signes d’appro-bation ou de désapprobation ou de causer du désordre de quelque nature que ce soit. Abantu baje kwumviriza ingene urubanza rugenda bategerezwa kugira inyifato ibereye no kuguma bubaha ubutungane. Birabujijwe kugira ico bavuze badahawe ijambo, kwerekana ibime-nyetso vy’ugushigikira canke vy’ukwiyamiriza ibi-riko biravugwa canke gutera uruhagarara urwo ari rwo rwose.
+
+Le président du siège peut faire expulser toute personne qui n’obtempère pas à ses injonctions, sans préjudice des poursuites pénales ou discipli-naires qui pourraient être exercées contre elle. Hatirengagijwe ko umuntu atubahirije ivyo umu-kuru w’intahe yategetse ashobora gukunkiranwa ku vyaha, umukuru w’intahe arashobora no kumusohora mu ntahe. Section 2 Agace ka 2 Du délibéré Ugushira urubanza mu mwiherero

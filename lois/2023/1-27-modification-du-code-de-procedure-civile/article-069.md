@@ -1,0 +1,3 @@
+# Article 69
+
+Ingingo ya 69 Le juge peut accorder un délai au défendeur pour appeler un garant en cause. Umucamanza arashobora guha uwitwariwe iki-ringo kugira ahamagaze uwishinze umwenda vye-rekeye. L’instance reprend son cours à l’expiration du délai dont dispose le garant pour comparaître, sauf à ce qu’il soit statué séparément sur la demande en garantie si la citation n’a pas été faite dans le délai ou si le garant n’a pas comparu. Urubanza rubandanya mu gihe ikiringo c’uko uwishinga aseruka giheze kiretse batandukanije kuvyihwereza hamwe iyo kurengukisha bitame-nyeshejwe ku gihe canke uwishinga ataserutse.

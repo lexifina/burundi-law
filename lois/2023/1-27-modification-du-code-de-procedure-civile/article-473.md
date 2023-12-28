@@ -1,0 +1,3 @@
+# Article 473
+
+Ingingo ya 473 La sentence doit être motivée. Elle est signée par chacun des arbitres. Ingingo ifashwe n’abahuza itegerezwa gutan-girwa imvo. Ishirwako umukono n’umwe umwe mu bahuza bose. Dans le cas où il y a plus d’un arbitre et que la minorité refuse de la signer, les autres arbitres en font mention et la sentence a le même effet que si elle avait été signée par tous. Igihe ari abahuza barenga umwe hanyuma bake muri bo bakanka kuyishirako umukono, abandi barayishirako umukono bakavyandikako kandi iyo ngingo y’abahuza iba ifise inkurikizi co kimwe n’iyo yobaye yashizweko umukono n’abahuza bose.

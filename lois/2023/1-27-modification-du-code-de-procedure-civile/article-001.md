@@ -1,0 +1,3 @@
+# Article 1
+
+Ingingo ya 1 Les dispositions de la présente loi s’appliquent devant toutes les juridictions siégeant en matière civile, commerciale, sociale et administrative. Ibitegekanijwe n’iri bwirizwa birakurikizwa muri sentare zose zisasa mu manza zerekeye amatati, ubudandaji, akazi n’izerekeye Reta n’ibisata vyayo. TITRE 1 IKIGABANE CA 1 DE LA PROCEDURE DEVANT LES JURIDICTIONS UKO IVYEREKEYE IMANZA Z’AMATATI BIGENDA MURI SENTARE CHAPITRE 1 IGICE CA 1 DES DISPOSITIONS LIMINAIRES INGINGO Z’INTANGAMARARA Section 1 Agace ka 1 Des principes directeurs du procès Ingingo ngenderwako mu kwitura sentare Sous-section 1 Agahimba k’agace ka 1 De l’instance Ibijanye n’urubanza

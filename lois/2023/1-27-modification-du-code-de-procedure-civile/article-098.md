@@ -1,0 +1,3 @@
+# Article 98
+
+Ingingo ya 98 L’acte est notifié dans la langue de l’Etat d’ori-gine. Urwandiko rumenyeshwa mu rurimi rukoreshwa mu ntwaro mu gihugu ruvuyemwo. Toutefois, le destinataire qui ne connaît pas la langue dans laquelle l’acte est établi peut en refu-ser la notification et demander que l’acte soit tra-duit et accompagné d’une traduction dans l’une des langues officielles, à la diligence et aux frais de la partie requérante. Ariko, uwugenewe urwandiko atazi ururimi urwandiko rwanditsemwo arashobora kwanka kurwakira agaca asaba ko arushikirizwa ruri kumwe n’urwo rwandiko nyene rwahinduwe muri rumwe mu ndimi zikoreshwa mu ntwaro, bigaku-rikiranwa kandi bikarihirwa amafaranga n’uwa-savye kurumenyeshwa.

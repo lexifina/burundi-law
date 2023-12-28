@@ -1,0 +1,3 @@
+# Article 173
+
+Ingingo ya 173 Si la pièce est reconnue fausse par le juge pénal, elle est rejetée des débats civils avec toutes consé-quences que le juge peut tirer de la cause. Mu gihe umucamanza wa sentare yashashe mu manza z’ivyaha yemeje ko urwandiko atari urw’ukuri, ruca rukurwa mu mburano z’urubanza rw’amatati, umucamanza agashobora gufata ingingo bijanye. Si le prévenu de faux a été acquitté au seul béné-fice du doute, le juge civil apprécie au vu des élé-ments de la cause. Mu gihe uwagirizwa icaha kijanye n’urwandiko atari urw’ukuri yambitswe izera kubera gusa yari yazize umwikeko, umucamanza ashashe mu manza z’amatati aca afata ingingo yihweje ibigize urubanza.

@@ -1,0 +1,5 @@
+# Article 48
+
+Ingingo ya 48 La juridiction est saisie à la diligence de l’une ou de l’autre partie par la remise au greffe d’une copie de l’assignation. La remise est faite dans les trente jours de la réception de l’assignation par le défendeur, faute de quoi l’assignation est caduque. Urubanza rwitwa ko rwashinzwe muri sentare ari uko ikopi y’umutahe w’ukurengutsa uwitwariwe igarukanywe mw’iyandikiro ry’imanza rya sen-tare, bisabwe n’umwe mu baburanyi. Iyo kopi iga-rukanwa mu misi mirongo itatu kuva uwitwariwe yakiriye umutahe w’ukumurengutsa, bitagenze uko na ho umutahe uca uta igihe. A défaut de remise, la requête peut être présentée au président de la juridiction en vue de faire constater la caducité. Ikopi y’umutahe itagarukanywe, urwandiko rw’ukwitwara rurashobora gushikirizwa umu-kuru wa sentare kugira yemeze ko umutahe w’ukurengutsa uwitwariwe wataye igihe.
+
+La caducité est constatée d’office par ordonnance du président de la juridiction. Ingingo y’umukuru wa sentare ni yo yemeza ko umutahe w’ukurengutsa uwitwariwe wataye igihe ata wurinze kubisaba.

@@ -1,0 +1,3 @@
+# Article 114
+
+Ingingo ya 114 Peut intervenir volontairement en appel dès lors qu’elle y a intérêt, la personne qui n’a été ni par-tie, ni représentée en première instance ou qui y a figuré en une autre qualité. Dans ce cas, la déci-sion est rendue en premier et dernier ressort en ce qui la concerne. Uwushobora kwinjira ku gushaka kwiwe mu rubanza rwamaze kwunguruzwa iyo abifisemwo inyungu ni umuntu atigeze aburana muri urwo rubanza, atigeze aserukirwa muri rwo rugitan-gura canke yarugiyemwo atari umuburanyi. Muri ico gihe, ingingo ntabanduka ivyerekeye ica ifa-tirwa muri iyo sentare ku rugero rwa mbere n’urwa nyuma. Section 2 Agace ka 2 De l’intervention forcée Ivyerekeye ukwinjizwa mu rubanza ku gahato

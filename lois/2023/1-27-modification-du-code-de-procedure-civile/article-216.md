@@ -1,0 +1,3 @@
+# Article 216
+
+Ingingo ya 216 Lorsque, sans motif légitime, le demandeur ne comparaît pas à la deuxième audience publique, le défendeur peut demander la radiation ou requérir un jugement sur le fond. Le juge s’assure au préalable que la date d’audience a été notifiée au demandeur défaillant. Le jugement est réputé contradictoire. Mu gihe, ata mvo zishemeye zi bitumye, uwitwaye atarengutse muri sentare, uwitwariwe arasho-bara gusaba ko urubanza rufutwa canke agasaba ko ruburanishwa mw’ido n’ido. Imbere yuko aruca, umucamanza abanza kuraba neza ko uwit-waye atarengutse yari yamenyeshejwe igeneke-rezo ry’ukuruburana. Urubanza rufatwa ko rwaciwe ababuranyi bahinyuzanya.

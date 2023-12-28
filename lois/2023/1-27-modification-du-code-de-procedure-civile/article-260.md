@@ -1,0 +1,3 @@
+# Article 260
+
+Ingingo ya 260 En matière contentieuse, l’appel ne peut être dirigé que contre ceux qui ont été parties en pre-mière instance. Tous ceux qui ont été parties peuvent être intimés. Mu manza zirimwo amatati, ukwunguruza bigi-rirwa gusa ababuranye muri sentare yo ku rugero rwa mbere. Ababuranye bose muri sentare yo ku rugero rwa mbere barashobora kwungururizwa. En matière gracieuse, l’appel est recevable nonobstant l’absence d’autres parties. Mu manza ata matati arimwo, ukwunguruza birakirwa n’aho abandi baburanyi atari ho boba bari. Sous-paragraphe 3 Agace k’agahimba ka 3 L’appel incident Iyunguruza ry’imbonerwaho

@@ -1,0 +1,3 @@
+# Article 43
+
+Ingingo ya 43 Lorsque la demande émane d’un tiers, l’interven-tion est volontaire; elle est faite par comparution volontaire après paiement des frais de consigna-tion. Mu gihe uwundi muntu ari we yisabiye kwinjira mu rubanza, bivugwa ko yinjiye muri urwo rubanza ku gushaka kwiwe; bigirwa mu kuren-guka ku gushaka kwiwe amaze kuriha amafa-ranga y’ugushingisha urubanza. Lorsqu’un tiers est mis en cause par une partie ou sur instruction du juge, le cas échéant, l’interven-tion est dite forcée; elle est formée par voie d’assi-gnation. Mu gihe uwundi muntu akwegewe mu rubanza n’umwe mu baburanyi canke bitegetswe n’umuca-manza, iyo bikenewe, bivugwa ko yinjiye mu rubanza ku gahato; bigirwa biciye mu kumuren-gutsa.

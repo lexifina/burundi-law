@@ -1,0 +1,3 @@
+# Article 468
+
+Ingingo ya 468 Le tribunal arbitral suit les règles de procédure établies pour les tribunaux. Sentare ishashemwo abahuza ikurikiza amate-geko asanzwe ategekanirijwe sentare. Toutefois, les parties peuvent directement ou par référence à un règlement d’arbitrage, régler la procédure arbitrale. Elles peuvent aussi sou-mettre la procédure arbitrale à la loi de procédure de leur choix. Ariko, abafitaniye amatati barashobora bo nyene canke bafatiye ku yandi mategeko y’ukumvika-nisha, gutunganya uburyo bw’ukumvikanisha biciye ku muhuza. Barashobora kandi gusaba ko hakoreshwa amategeko y’ukumvikanisha bihi-tiyemwo.

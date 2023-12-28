@@ -1,0 +1,5 @@
+# Article 51
+
+Ingingo ya 51 Le juge de mise en état a la mission de veiller au déroulement de la procédure, notamment à la célérité de l’échange des conclusions et de la com-munication de toutes les pièces nécessaires à la procédure. Umucamanza ajejwe gusuzuma ko ibikenewe bikwiye kugira urubanza rushobore kubura-nishwa ashinzwe gukurikirana ibijanye n’uru-banza rugomba kuburanishwa, na cane cane gutuma ivyerekeye ukumenyesha imburano hamwe n’ugushikiriza inzandiko vyihuta.
+
+Le juge peut entendre les parties ou leurs avocats et leur faire toutes communications utiles. Il peut également, si besoin est, leur adresser des injonc-tions. Il dresse à cet effet un procès-verbal. Uwo mucamanza arashobora kwumviriza ababu-ranyi canke abashingwamanza babo no kubame-nyesha ibikenewe vyose. Arashobora kandi, iyo bikenewe, kubategeka ivyo bakora. Ku bw’ivyo aragira icegeranyo kivyerekeye. Il exerce sa mission en étroite collaboration avec le président de la juridiction. Akora umurimo ashinzwe afadikanije n’umukuru wa sentare.

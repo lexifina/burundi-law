@@ -1,0 +1,3 @@
+# Article 472
+
+Ingingo ya 472 En cas de pluralité d’arbitres, le tribunal arbitral statue à la majorité des voix de ses membres. Mu gihe ari abahuza benshi, Sentare ishashemwo abahuza ifata ingingo ari uko benshi mu bayigize ari bo bayemeje. Toutefois, tout membre du tribunal peut faire joindre à la sentence soit son opinion particulière, qu’il partage ou non l’avis de la majorité, soit la mention de son dissentiment. Ariko, uwuri mu bagize iyo sentare uwo ari we wese arashobora gufatanya urubanza rwaciwe n’icegeranyo c’ivyiyumviro vyiwe kuri urwo rubanza asangiye canke adasangiye na benshi mu bayigize canke binyuranye n’ingingo yafashwe.

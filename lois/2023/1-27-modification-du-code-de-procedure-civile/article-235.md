@@ -1,0 +1,3 @@
+# Article 235
+
+Ingingo ya 235 Le juge s’assure qu’il s’est écoulé un temps suffi-sant entre l’assignation et l’audience pour que la partie assignée ait pu préparer sa défense. Umucamanza araraba neza ko umwanya wat-anzwe hagati y’ugutanga umutahe wo kurengutsa n’igenekerezo intahe isasirako ukwiye kugira ngo uwarengukijwe abe yateguye imburano ziwe z’ukwiregura. Toutefois, le juge peut prendre par ordonnance toute mesure qu’il juge nécessaire à la sauve-garde des droits des parties en attendant l’audience. Ariko, umucamanza arashobora, biciye mu ngingo, gufata ingingo yose yibaza ko ikenewe kugira ngo uburenganzira bw’ababuranyi bwuba-hirizwe mu kurindira ko intahe isasa.

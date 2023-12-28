@@ -1,0 +1,3 @@
+# Article 162
+
+Ingingo ya 162 Les commissions rogatoires destinées aux juridic-tions étrangères sont adressées au Ministre ayant la justice dans ses attributions qui en assure la transmission conformément aux accords d’entraide judiciaire et, à défaut, selon les usages diplomatiques. Inzandiko z’ugusaba inzego z’ubutungane zo mu bindi bihugu gukora ibikorwa bijanye n’itohoza zirungikirwa Umushikiranganji ajejwe ubutun-gane na we akazirungika hisunzwe amasezerano y’ugufashanya mu bijanye n’ubutungane, ata yahari na ho, hagakoreshwa ibisanzwe bigirwa mu bijanye n’imigenderanire hagati y’ibihugu.

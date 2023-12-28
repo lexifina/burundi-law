@@ -1,0 +1,3 @@
+# Article 191
+
+Ingingo ya 191 L’omission ou l’inexactitude d’une mention desti-née à établir la régularité du jugement ne peut entraîner la nullité de celle-ci s’il est établi par les pièces de procédure, par le procès-verbel d’audience ou par tout autre moyen que les pres-criptions légales ont été, en fait, observées. Ukutandika ikintu kanaka mu vyavuzwe mu rubanza rwaciwe canke ukucandika uko kita-vuzwe ari na co cari kwerekana ko rwaciwe hisunzwe amategeko ntibishobora gutuma ruba impfagusa igihe rwaciwe hakurikijwe inzandiko z’urubanza n’ivyegeranyo vy’abari bagize intahe canke ubundi buryo ubwo ari bwo bwose butege-kanijwe n’amategeko bwari bwubahirijwe.

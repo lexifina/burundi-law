@@ -1,0 +1,3 @@
+# Article 388
+
+Ingingo ya 388 Tout créancier muni d’un titre exécutoire qui constate une créance liquide et exigible, peut, pour en obtenir le paiement saisir entre les mains d’un tiers les créances de son débiteur portant sur une somme d’argent, sous réserve des disposi-tions particulières à la saisie des rémunérations. Uwuheraniwe wese afise urwandiko rurekura ko ingingo yafashwe ikurikizwa rwemeza ko umwenda afitiwe ushobora guharurwa mu mafa-ranga kandi ugeze kurihwa arashobora, kugira yishurwe umwenda afitiwe, gufatisha’ imyenda yerekeye amafaranga uwumuheraniye afitiwe n’uwundi muntu, hubahirijwe ibitegekanijwe vye-rekeye ugufata impembo.

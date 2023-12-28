@@ -1,0 +1,3 @@
+# Article 481
+
+Ingingo ya 481 L’existence d’une sentence arbitrale est établie par la production de l’original accompagné de la convention d’arbitrage ou des copies de ces docu-ments réunissant les conditions requises pour leur authenticité. Ingingo y’umuhuza ifatwa ko ibaho, iyo ishizwe mu rwandiko rw’imvaho ruri kumwe n’amaseze-rano y’ukwumvikanisha canke ikopi z’izo nzan-diko zikwije ibisabwa vyose kugira zemezwe ko ari iz’ukuri. Lorsque les documents ne sont pas rédigés en langue officielle au Burundi, la partie requérante en produit une traduction. Mu gihe izo nzandiko zitanditswe mu rurimi rukoreshwa mu ntwaro, uwubisaba arazihinduza mu rurimi rukoreshwa mu ntwaro.

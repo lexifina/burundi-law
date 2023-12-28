@@ -1,0 +1,3 @@
+# Article 115
+
+Ingingo ya 115 Le juge peut inviter les parties à mettre en cause tous les intéressés dont la présence lui paraît nécessaire à la solution du litige. Umucamanza arashobora gusaba ababuranyi gukwegera mu rubanza abo bose abona ko bake-newe mu gutorera umuti amatati. En matière gracieuse, le juge peut ordonner la mise en cause des personnes dont les droits ou les charges risquent d’être affectés par la décision à prendre. Mu manza ata matati arimwo, umucamanza arashobora gusaba ko hakwegerwa mu rubanza abantu abona ko ingingo yofata ishobora kugira ingaruka ku burenganzira bwabo canke ku vyo bategerejwe.

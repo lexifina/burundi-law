@@ -1,0 +1,5 @@
+# Article 85
+
+Ingingo ya 85 Les actes d’huissier sont portés à la connaissance des intéressés par la notification qui leur en est faite. Inzandiko z’umumenyeshamanza zimenyeshwa abo zerekeye biciye mu rwandiko barungikirwa.
+
+La notification d’un acte judiciaire est signée par la personne ayant reçu la copie. Il est indiqué ses rapports de parenté, d’alliance, de sujétion ou de voisinage avec le destinataire si celui-ci n’est pas personnellement touché. Urwandiko rumenyesha ivyakozwe na sentare rushirwako umukono n’uwakiriye ikopi yarwo. Harerekanwa ubucuti bw’amaraso bafitaniye, ubuturutse ku guhana abageni, ko ari umukozi canke umukoresha wiwe canke ko ari umubanyi w’uwo urwandiko rugenewe iyo uwo rugenewe atari we yarushikirijwe we nyene ubwiwe. L’acte peut être notifié par l’envoi d’une copie sous pli fermé, mais à découvert, recommandé à la poste ou remis par un messager ordinaire contre récépissé. Urwandiko rurashobora kumenyeshwa biciye mu kurungika ikopi yarwo izinze, mw’ibahasha ariko ritugaye, mu kurucisha mw’iposita na yo igatanga icemeza ko yarwakiriye canke rwatanzwe biciye mu butumwa busanzwe hagatangwa icemeza ko rwakiriwe.

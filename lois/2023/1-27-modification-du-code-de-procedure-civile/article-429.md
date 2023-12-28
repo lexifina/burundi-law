@@ -1,0 +1,3 @@
+# Article 429
+
+Ingingo ya 429 L’astreinte est indépendante des dommages-intérêts. Elle est provisoire ou définitive. Elle est prononcée au profit de la partie bénéficiaire de l’exécution. Igihano c’ugutanga ihadabu ry’ugucererwa kuriha kiratandukanye n’ic’ugutanga indishi. Gishobora kuba igihano c’agateganyo canke ntabanduka. Gishingwa ku neza y’umuburanyi yashikirijwe ingingo itegerezwa gukurikizwa. L’astreinte doit être considérée comme provisoire à moins que le juge n’ait précisé son caractère définitif. Igihano c’ugutanga ihadabu ry’ugucererwa kuriha gifatwa nk’igihano c’agateganyo kiretse umucamanza atomoye ko ari ntabanduka.

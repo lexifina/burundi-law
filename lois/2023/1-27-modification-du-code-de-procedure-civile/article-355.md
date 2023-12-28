@@ -1,0 +1,3 @@
+# Article 355
+
+Ingingo ya 355 L’exécution provisoire est ordonnée, même d’office, s’il y a titre authentique, promesse recon-nue ou condamnation précédente par un juge-ment non frappé d’appel. Ishirwa mu ngiro mfatakibanza rirategekwa, n’aho yoba ari sentare ivyibwirije, iyo hariho urwandiko rwemejwe n’amategeko, iyo hari umu-hango wemejwe n’uwawutanze, canke iyo hari urubanza yaheruka gutsindwako rutungurujwe. L’exécution provisoire peut être ordonnée pour une partie seulement de la condamnation. Ishirwa mu ngiro mfatakibanza rirashobora gute-gekwa kugirwa ku gice cerekeye aho yatsinzwe gusa.

@@ -1,0 +1,3 @@
+# Article 381
+
+Ingingo ya 381 Au cas où il s’avère que les objets saisis vont être vendus à vil prix, l’huissier, sur requête du saisis-sant, du saisi ou même d’office, peut remettre la vente à un autre jour et prendre les mesures que commande l’intérêt des parties. Au jour fixé, la vente a lieu à tout prix. Mu gihe biboneka ko ivyafashwe vyohava bigu-rishwa ku giciro kidashemeye, umumenyesha-manza bisabwe n’uwabifatishije, na nyene ivyafashwe canke na we nyene avyibwirije, arashobora guca yungururiza igurishwa uwundi musi, agaca afata ingingo zikingira inyungu z’ababuranyi. Umusi washinzwe ugeze, igurishwa ritegerezwa kuba uko bigenda kwose.
