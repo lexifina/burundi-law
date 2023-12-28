@@ -6,6 +6,6 @@ Ingingo ya 33 Le défendeur doit, sous peine d’être déclaré, même d’offi
 
 1° Izina ryiwe, amatazirano yiwe, ico akora, aho aba, ubwenegihugu bwiwe, igenekerezo yavukiyeko n’aho yavukiye;
 
-2° la forme, la dénomination, le siège social et l’organe qui la représente s’il s’agit d’une per­ sonne morale.
+2° la forme, la dénomination, le siège social et l’organe qui la représente s’il s’agit d’une personne morale.
 
-2° Iyo ari ishirahamwe na ho, umugwi ririmwo, izina ryaryo, ahari icicaro caryo n’urwego ruri­ serukira. Paragraphe 3 Agahimba ka 3 L’assignation Umutahe w’ukurengutsa
+2° Iyo ari ishirahamwe na ho, umugwi ririmwo, izina ryaryo, ahari icicaro caryo n’urwego ruriserukira. Paragraphe 3 Agahimba ka 3 L’assignation Umutahe w’ukurengutsa

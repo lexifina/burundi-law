@@ -1,3 +1,5 @@
 # Article 106
 
-Ingingo ya 106 Lorsqu’un acte destiné à une partie domiciliée en un lieu où elle bénéficierait d’une prorogation de délai est notifié à sa personne en un lieu où ceux qui y demeurent n’en bénéficient point, cette noti-fication n’emporte que les délais ordinaires accor-dés à ces derniers. Mu gihe urwandiko rugenewe umuburanyi acum-bitse ahantu arekuriwe kwongererezwa ikiringo rumenyesherejwe uwo muburanyi we nyene ubwiwe mu kibanza abahaba batongererezwa iki-ringo, uko kubimumenyesha gutuma aca aharu-rirwa ibiringo bisanzwe biharurirwa abo bantu. CHAPITRE V IGICE CA V DE L’INTERVENTION UKWINJIRA MU RUBANZA
+Ingingo ya 106 Lorsqu’un acte destiné à une partie domiciliée en un lieu où elle bénéficierait d’une prorogation de délai est notifié à sa personne en un lieu où ceux qui y demeurent n’en bénéficient point, cette noti-fication n’emporte que les délais ordinaires accor-dés à ces derniers. Mu gihe urwandiko rugenewe umuburanyi acum-bitse ahantu arekuriwe kwongererezwa ikiringo rumenyesherejwe uwo muburanyi we nyene ubwiwe mu kibanza abahaba batongererezwa iki-ringo, uko kubimumenyesha gutuma aca aharu-rirwa ibiringo bisanzwe biharurirwa abo bantu.
+
+CHAPITRE V IGICE CA V DE L’INTERVENTION UKWINJIRA MU RUBANZA

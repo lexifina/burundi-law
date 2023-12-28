@@ -20,7 +20,7 @@ Ingingo ya 189 Le jugement contient l’indication: Urwandiko rw’urubanza rwac
 
 5° du nom du représentant du Ministère Public, s’il y a lieu;
 
-5° Izina ry’uwaserukiye Urwego rw’abashikiriza­ manza, iyo yari ahari;
+5° Izina ry’uwaserukiye Urwego rw’abashikirizamanza, iyo yari ahari;
 
 6° des noms des parties et le cas échéant les noms des avocats ou de toute personne ayant représenté ou assisté les parties.
 

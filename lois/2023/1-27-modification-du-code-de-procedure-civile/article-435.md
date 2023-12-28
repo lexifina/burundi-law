@@ -4,4 +4,6 @@ Ingingo ya 435 A l’expiration du délai imparti et sur autorisation du juge, l
 
 Le juge peut déclarer abandonnés les biens qui ne sont pas susceptibles d’être vendus. Umucamanza arashobora gutangaza ko ama-tungo adashobora kugurishwa ahebwe.
 
-Le produit de la vente est remis à la personne expulsée après déduction des frais et de la créance du bailleur. Ibivuye mu vyagurishijwe bihabwa uwasohowe mu matungo yiwe hamaze gukurwamwo amafa-ranga yagiye arakoreshwa muri ico gikorwa n’amafaranga yaraheranye. CHAPITRE VI IGICE CA VI DE L’EXEQUATUR IVYEREKEYE ISHIRWA MU NGIRO RY’URUBANZA RWACIRlWE MU MAHANGA
+Le produit de la vente est remis à la personne expulsée après déduction des frais et de la créance du bailleur. Ibivuye mu vyagurishijwe bihabwa uwasohowe mu matungo yiwe hamaze gukurwamwo amafa-ranga yagiye arakoreshwa muri ico gikorwa n’amafaranga yaraheranye.
+
+CHAPITRE VI IGICE CA VI DE L’EXEQUATUR IVYEREKEYE ISHIRWA MU NGIRO RY’URUBANZA RWACIRlWE MU MAHANGA

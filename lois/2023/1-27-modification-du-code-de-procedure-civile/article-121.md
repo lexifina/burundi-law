@@ -4,11 +4,11 @@ Ingingo ya 121 A compter de la notification qui en est faite à l’autre partie
 
 1° le décès d’une partie dans les cas où l’action est transmissible;
 
-1° Umwe mu baburanyi apfuye mu gihe uru­ banza rushobora gukurikiranwa n’uwundi;
+1° Umwe mu baburanyi apfuye mu gihe urubanza rushobora gukurikiranwa n’uwundi;
 
 2° la cessation de fonctions du représentant légal d’un incapable;
 
-2° Uwuserukira imbere y’amategeko umubura­ nyi adashoboye kwiburanira ahagaritse imi­ rimo;
+2° Uwuserukira imbere y’amategeko umuburanyi adashoboye kwiburanira ahagaritse imirimo;
 
 3° le recouvrement ou la perte par une partie de la capacité d’ester en justice;
 

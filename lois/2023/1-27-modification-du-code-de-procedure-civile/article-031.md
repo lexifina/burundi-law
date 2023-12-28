@@ -2,7 +2,7 @@
 
 Ingingo ya 31 La requête conjointe est l’acte commun par lequel les parties soumettent au juge leurs prétentions respectives, les points sur lesquels elles sont en désaccord ainsi que leurs moyens respectifs. Urwandiko rw’ukwitura sentare rushikirizwa n’ababuranyi bompi ni urwandiko rusangi aho umwumwe mu baburanyi ashikiriza sentare ibirego vyiwe, ivyo batashoboye kwumvikanako hamwe n’imburano zibishigikira. Elle contient, en outre: Urwo rwandiko, kugira rwakirwe ruba rurimwo, n’ibi bikurikira :
 
-1° les noms, prénoms, profession, domicile, nationalité, date et lieu de naissance de cha­ cun des requérants pour les personnes phy­ siques ainsi que la forme, la dénomination, le siège social et l’organe qui les représente léga­ lement pour les personnes morales;
+1° les noms, prénoms, profession, domicile, nationalité, date et lieu de naissance de chacun des requérants pour les personnes physiques ainsi que la forme, la dénomination, le siège social et l’organe qui les représente légalement pour les personnes morales;
 
 1° Izina ry’umwumwe mu bitwaye, amatazirano yiwe, ico akora, aho aba, ubwenegihugu bwiwe, igenekerezo yavukiyeko n’aho yavukiye mu gihe ari amashirahamwe na ho, umugwi ishirahamwe rimwe rimwe ryose ririmwo, izina ryaryo, ahari icicaro caryo n’urwego ruriserukira imbere y’amategeko;
 

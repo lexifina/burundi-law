@@ -10,14 +10,14 @@ Ingingo ya 436 En matière civile, commerciale, sociale et admi-nistrative, les 
 
 2° Kuba, hisunzwe amategeko y’igihugu ingingo zafatiwemwo, zarabaye ntabanduka;
 
-3° que, d’après la même loi, les expéditions pro­ duites réunissent les conditions nécessaires à leur authenticité;
+3° que, d’après la même loi, les expéditions produites réunissent les conditions nécessaires à leur authenticité;
 
 3° Kuba, hisunzwe ayo mategeko nyene, amakopi y’imanza zaciwe yashikirijwe akwije ibisabwa bikenewe kugira yemerwe ko ari ayo ukuri;
 
-4° que les droits de la défense aient été respec­ tés;
+4° que les droits de la défense aient été respectés;
 
-4° Kuba uburenganzira bw’ukwiregura bwaruba­ hirijwe;
+4° Kuba uburenganzira bw’ukwiregura bwarubahirijwe;
 
-5° que la juridiction étrangère ne soit pas uni­ quement compétente en raison de la nationa­ lité du demandeur.
+5° que la juridiction étrangère ne soit pas uniquement compétente en raison de la nationalité du demandeur.
 
 5° Kuba sentare yo mu mahanga itaziherewe ububasha gusa kubera ubwenegihugu bw’uwitwaye.

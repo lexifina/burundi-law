@@ -12,7 +12,7 @@ Ingingo ya 287 La déclaration d’appel est faite par acte conte-nant outre les
 
 3° les chefs du jugement expressément critiqués auxquels l’appel est limité, sauf si l’appel tend à l’annulation du jugement ou si l’objet du litige est indivisible
 
-3° Ibikurubikuru bigize urubanza bitashimishije uwunguruje vyungururijwe, kiretse iyo ukwunguruza bifise intumbero y’ugusaba ko urubanza rwaciwe rufutwa canke iyo ice­ rekewe n’amatati kitagaburika.
+3° Ibikurubikuru bigize urubanza bitashimishije uwunguruje vyungururijwe, kiretse iyo ukwunguruza bifise intumbero y’ugusaba ko urubanza rwaciwe rufutwa canke iyo icerekewe n’amatati kitagaburika.
 
 La déclaration contient l’exposé des moyens. Urwo rwandiko ruba rurimwo imburano zishigi-kira ivyungururijwe.
 
