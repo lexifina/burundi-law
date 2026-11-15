@@ -23,7 +23,8 @@ The record is in English, as WIPO Lex and the UN Treaty Collection print it, wit
 
 - **[Ask Claude about Burundian law](https://global-law.lexifina.com/v1/try_claude?country=burundi)**: opens Claude with a first question ready.
 - **[Ask ChatGPT](https://global-law.lexifina.com/v1/try_chatgpt?country=burundi)**: the same question in ChatGPT.
-- **[Call the API in your browser](https://global-law.lexifina.com/v1/search_law?query=copyright&jurisdictions=burundi)**: a search of the Burundi record for "copyright", returned as JSON. See the [documentation here](https://lexifina.com/api/global-law).
+- **[Search the Burundi record on our site](https://lexifina.com/law?country=burundi&q=copyright)**: a search for "copyright" in its catalogue of titles, no account needed.
+- **[Developer REST API](https://global-law.lexifina.com/v1/search_law?query=copyright&jurisdiction=burundi)**: the same search as JSON, with no key. See the [documentation here](https://lexifina.com/api/global-law).
 
 Both assistants read the record through the free Global law connector (MCP, `https://global-law.lexifina.com/mcp`); the first time, the chat gives you the link that adds it. Ask in English or in French.
 
