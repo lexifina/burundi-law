@@ -1,5 +1,9 @@
 # Burundi: law history in git
 
+<picture>
+<source media="(prefers-color-scheme: dark)" srcset="data/effort-dark.svg">
+<img alt="Burundian law in this repository: what it holds, changes by the year they took effect, completeness against the official sources, and the correctness of what is held" src="data/effort-light.svg" width="880">
+</picture>
 
 The law of Burundi as a git history, so far as a record of its laws and treaties without their text: one file per law or treaty, one commit per entry on the day recorded for it, and a key naming the record as the commit's author. `git log` lists every entry with its day; picking a date gives what the record held that day.
 
