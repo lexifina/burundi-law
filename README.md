@@ -58,6 +58,7 @@ Each entry is credited to a key naming its record, with an e-mail address that c
 - `tools/check_repo.py` reads every version back from git on the day it took effect and on the day before, and both must match the corpus the history was built from; it also checks that every commit's trailers parse, that there are no merge commits and that no commit is dated in the future.
 - `tools/build.py` writes the history from that corpus in one pass, and the same corpus always gives the same commit hashes. The corpus is not in the repository; [`data/corpus.sha256`](data/corpus.sha256) gives its hash.
 - [`REPRODUCE.md`](REPRODUCE.md), written at the build on 2026-10-30, records the checks as not yet run for that build and no second build compared.
+- [vulnerabilities/](vulnerabilities/): possible drafting mistakes in this law, found by global-law's detectors and checked by hand. Not run yet.
 
 ## What it does not show
 
@@ -80,6 +81,10 @@ Each entry is credited to a key naming its record, with an e-mail address that c
 See [`LICENSE`](LICENSE). Only facts are copied (titles, numbers, dates, links), and no text of any law or treaty: WIPO Lex content is published under CC BY 4.0 and credited to WIPO, which does not endorse this repository; Wikidata's facts are CC0. The history, commit messages, tables and tools are CC0 1.0.
 
 No AI model wrote, translated or corrected legal text, and none runs when the history is built; the scripts were written by an AI model (see [`REPRODUCE.md`](REPRODUCE.md)).
+
+## Visualisations
+
+- [visualisations/](visualisations/): charts drawn from this repository. Not drawn yet.
 
 ## More
 
