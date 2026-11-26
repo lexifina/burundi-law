@@ -1,12 +1,31 @@
-Metadata (titles, dates, numbers, links) taken from WIPO Lex, https://www.wipo.int/wipolex/, retrieved 30 October 2026. Source: World Intellectual Property Organization. WIPO content is published under CC BY 4.0 (https://www.wipo.int/web/terms-of-use); only facts are copied, with no descriptive text. Open facts about the legal system come from Wikidata, https://www.wikidata.org/ (CC0 1.0).
+burundi-law: licence and the terms of each source
 
-No law text is included: no law text, because the official online copies of Burundi's Constitution and statutes (presidence.gov.bi, assemblee.bi) are image scans with no text layer, OCR was not available here, and no text-layer official copy was found. The copyright act (Loi n° 1/021 of 30 December 2005) is itself only a scan on assemblee.bi, so whether it excludes official texts could not be checked, and no third-party copy of a law is used.
+1. Lexifina's own work: CC0 1.0
 
-Catalogue entries for the laws of 2003-2012 record only facts (law number, promulgation date, link) taken from the file names in the public media index of the Assemblée nationale du Burundi, https://assemblee.bi/, retrieved 30 October 2026. No text of any law is copied.
+The arrangement of the history, the commit messages, the folder layout, the tables, README files and tools are
+Lexifina's own work and are dedicated to the public domain under CC0 1.0 Universal:
+https://creativecommons.org/publicdomain/zero/1.0/
 
-Treaty actions (treaty name, action, date, depositary) come from the UN Treaty Collection, https://treaties.un.org/, as facts only; no treaty text is copied.
+2. Law text: Bulletin Officiel du Burundi, from amategeko.gov.bi
 
-Changes made by Lexifina: records were turned into one Markdown file per record, with the dates arranged as a git history. WIPO does not endorse this repository.
+The text of the Constitution, codes, lois, décrets-lois, décrets, ordonnances and other acts in constitution/, codes/,
+lois/, decrets-lois/, decrets/, ordonnances/, arretes/ and autres-actes/ is copied from the PDFs of the Bulletin
+Officiel du Burundi published on "Mémoire du Droit Burundais", the legal portal of the Ministry of Justice of the
+Republic of Burundi (https://amategeko.gov.bi; "une propriété du Ministère ayant la justice dans ses attributions"),
+retrieved from 26 November 2026. The portal states no terms of use. These are official texts of the Republic of
+Burundi, published so that the public may know the law; Burundi's copyright act (Loi n°1/021 du 30 décembre 2005
+portant protection du droit d'auteur et des droits voisins au Burundi) excludes official texts of a legislative,
+administrative or judicial nature from protection. Only the published text is copied. Changes made by Lexifina: the
+text of each act is split into one file per article, the line breaks of the printed columns are joined, and running
+page headers and the "Divers" part of each issue (notices to private persons) are left out. Nothing is translated or
+corrected.
 
-Lexifina's own contributions (the arrangement of the history, the commit messages, the tables and the
-tools) are dedicated to the public domain under CC0 1.0 Universal: https://creativecommons.org/publicdomain/zero/1.0/
+3. Metadata from earlier builds
+
+catalogue/, treaties/: metadata (titles, dates, numbers, links) from WIPO Lex, https://www.wipo.int/wipolex/,
+retrieved 30 October 2026. Source: World Intellectual Property Organization. WIPO content is published under CC BY 4.0
+(https://www.wipo.int/web/terms-of-use); only facts are copied. WIPO does not endorse this repository.
+Catalogue entries for the laws of 2003-2012: facts from the file names in the public media index of the Assemblée
+nationale du Burundi, https://assemblee.bi/, retrieved 30 October 2026.
+un-treaties/: treaty actions from the UN Treaty Collection, https://treaties.un.org/, facts only.
+legal-system/: open facts from Wikidata, https://www.wikidata.org/ (CC0 1.0).

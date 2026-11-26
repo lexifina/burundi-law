@@ -1,98 +1,88 @@
-# Burundi: law history in git
+# Burundi : l’historique du droit dans git
+
+**Français** · [English](README.en.md)
 
 <picture>
 <source media="(prefers-color-scheme: dark)" srcset="data/effort-dark.svg">
-<img alt="Burundian law in this repository: what it holds, changes by the year they took effect, completeness against the official sources, and the correctness of what is held" src="data/effort-light.svg" width="880">
+<img alt="Le droit burundais dans ce dépôt : ce qu’il contient, les modifications par année d’entrée en vigueur, l’exhaustivité au regard des sources officielles et l’exactitude de son contenu" src="data/effort-light.svg" width="880">
 </picture>
 
-The law of Burundi as a git history, so far as a record of its laws and treaties without their text: one file per law or treaty, one commit per entry on the day recorded for it, and a key naming the record as the commit's author. `git log` lists every entry with its day; picking a date gives what the record held that day.
+Le droit du Burundi sous forme d’historique git : un dossier par acte publié au Bulletin Officiel du Burundi (BOB), un fichier par article, un commit par acte au jour de l’acte, et pour auteur de chaque commit l’acte lui-même. `git log` énumère tous les actes avec leur date ; `git blame` désigne l’acte à l’origine de chaque ligne.
 
-Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is Burundi's national law, which global-law reads at `burundi/national/acts/`.
+Fait partie de [lexifina/global-law](https://github.com/lexifina/global-law), un historique git unique pour le droit de chaque pays : ce dépôt contient le droit national burundais, que global-law lit dans `burundi/national/acts/`.
 
-**What is in it now:** a catalogue of 206 laws and orders with no text: 14 WIPO Lex records (title, subject, dates), among them the 2005 Post-transition Interim Constitution, the 2009 Criminal Code and the 2015 Commercial Code, and the 192 laws of 2003-2012 listed on the National Assembly's site (number, promulgation date and a link to the scan); Burundi's signatures, ratifications and accessions for 45 treaties recorded by WIPO Lex and 48 multilateral treaties deposited with the UN Secretary-General (the two lists overlap); and five pages of facts on the legal system (constitution, legislature, courts, official languages, sources). No law or treaty text. [`catalogue/README.md`](catalogue/README.md) lists every law in the catalogue.
+**Contenu actuel :** le texte des lois, décrets, ordonnances et autres actes imprimés dans les numéros du BOB que le portail du Ministère de la Justice, [amategeko.gov.bi](https://amategeko.gov.bi), publie avec une couche texte (la construction est en cours et ajoute les numéros au fur et à mesure), classés par type et par année comme le décrit [`STRUCTURE.md`](STRUCTURE.md) ; les codes adoptés d’un seul tenant sont dans `codes/`. Le registre antérieur des titres de lois et des actes conventionnels, sans texte, reste dans `catalogue/`, `treaties/`, `un-treaties/` et `legal-system/`.
 
-Each entry is one file: `catalogue/law-13386.md` is WIPO Lex's record of the Criminal Code (Law No. 1/05 of 22 April 2009), `catalogue/loi-2003-001.md` the National Assembly's entry for Loi n° 1/01 of 28 March 2003, and `treaties/treaty-19793.md` and `un-treaties/untc-xxvii-7-d.md` the Paris Agreement in each list. The facts on the legal system are in `legal-system/`.
+Chaque acte est un dossier : `decrets/2023/100-193-modalites-pratiques-de-levee-du-gel-d-avancement/` est le décret n°100/193 du 1er septembre 2023, avec son intitulé, son titre et ses visas dans `preambule.md` et chaque article dans `article-001.md`, `article-002.md`, etc.
 
-The record is in English, as WIPO Lex and the UN Treaty Collection print it, with the National Assembly's law numbers in French. The laws themselves are in French.
+Le texte est en français, tel que l’imprime le BOB.
 
-## Questions as git commands
+## Questions sous forme de commandes git
 
-| Question | Command |
+| Question | Commande |
 | --- | --- |
-| What has Burundi signed, ratified or joined, and on what day? | `git log --format="%h %(trailers:key=In-force,valueonly,separator=) %an" -- treaties un-treaties` |
-| Every change to the record of one treaty (the Paris Agreement) | `git log -p -- treaties/treaty-19793.md un-treaties/untc-xxvii-7-d.md` |
-| The UN treaty actions on record on 1 January 2010 | `python tools/on.py 2010-01-01 un-treaties` |
+| Tous les actes enregistrés, avec leur date | `git log --format="%h %(trailers:key=In-force,valueonly,separator=) %an"` |
+| Les lois de 2023 | `git log --format="%(trailers:key=In-force,valueonly,separator=) %s" -- lois/2023` |
+| Où un acte a été publié (numéro du BOB, page, PDF) | `git log --format="%(trailers:key=Source,valueonly)" -- decrets/2023/100-193-*` |
+| Qu’est-ce que le Burundi a signé, ratifié ou adhéré, et à quelle date ? | `git log --format="%h %(trailers:key=In-force,valueonly,separator=) %an" -- treaties un-treaties` |
 
-**Outside git**, we also host this record publicly, for free:
+**En dehors de git**, nous hébergeons aussi ce registre publiquement, gratuitement :
 
-- **[Ask Claude about Burundian law](https://global-law.lexifina.com/v1/try_claude?country=burundi)**: opens Claude with a first question ready.
-- **[Ask ChatGPT](https://global-law.lexifina.com/v1/try_chatgpt?country=burundi)**: the same question in ChatGPT.
-- **[Search the Burundi record on our site](https://lexifina.com/law?country=burundi&q=copyright)**: a search for "copyright" in its catalogue of titles, no account needed.
-- **[Developer REST API](https://global-law.lexifina.com/v1/search_law?query=copyright&jurisdiction=burundi)**: the same search as JSON, with no key. See the [documentation here](https://lexifina.com/api/global-law).
+- **[Interroger Claude sur le droit burundais](https://global-law.lexifina.com/v1/try_claude?country=burundi)** : ouvre Claude avec une première question prête.
+- **[Interroger ChatGPT](https://global-law.lexifina.com/v1/try_chatgpt?country=burundi)** : la même question dans ChatGPT.
+- **[Chercher dans le registre du Burundi sur notre site](https://lexifina.com/law?country=burundi&q=copyright)** : sans compte.
+- **[API REST pour développeurs](https://global-law.lexifina.com/v1/search_law?query=copyright&jurisdiction=burundi)** : la même recherche en JSON, sans clé. Voir la [documentation](https://lexifina.com/api/global-law).
 
-Both assistants read the record through the free Global law connector (MCP, `https://global-law.lexifina.com/mcp`); the first time, the chat gives you the link that adds it. Ask in English or in French.
+Les deux assistants lisent le registre par le connecteur gratuit Global law (MCP, `https://global-law.lexifina.com/mcp`) ; la première fois, la conversation donne le lien qui l’ajoute. Posez vos questions en français ou en anglais.
 
-**Host it yourself easily.** All it takes is git and Python, and the tools run on your machine:
+**L’héberger soi-même, simplement.** Il suffit de git et de Python, et les outils tournent sur votre machine :
 
 ```sh
 git clone --depth 1 https://github.com/lexifina/global-law && cd global-law
 python3 tools/countries.py add burundi/national/acts
-python3 tools/law.py show 2026-01-01 burundi/national/acts/treaties/treaty-19793.md
 ```
 
-Opened in Claude Code, Cursor, VS Code or Codex, the clone also starts a local MCP server with the same tools ([MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md)).
+Ouvert dans Claude Code, Cursor, VS Code ou Codex, le clone lance aussi un serveur MCP local avec les mêmes outils ([MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md)).
 
 ## Dates
 
-Each commit is dated at noon, Africa/Bujumbura, on the day recorded for the entry, and carries it in its `In-force:` trailer:
+Le commit de chaque acte est daté de midi, heure de Bujumbura, au jour de l’acte tel qu’imprimé dans son intitulé (sa signature ou sa promulgation), et porte ce jour dans sa mention `In-force:`. `In-force-basis:` le précise et cite la clause d’entrée en vigueur de l’acte lorsqu’il en a une (le plus souvent « entre en vigueur le jour de sa signature » ou « de sa promulgation ») ; un acte qui entre en vigueur à sa publication au BOB est daté lui aussi de sa propre date, les numéros du BOB ne portant pas de jour de publication. `Source:` indique le numéro du BOB, la page et le PDF, et `Text-source:` que le texte est la couche texte de l’éditeur.
 
-- a treaty, by Burundi's own action: its ratification, accession or similar instrument, else the treaty's entry into force for Burundi, else its signature; the UN list has one version per action;
-- a WIPO Lex law, by the date WIPO Lex records (promulgation, entry into force, commencement or adoption, in that order); where WIPO Lex gives only 1 January of a year, that day is a placeholder;
-- a National Assembly law, by the promulgation date in its PDF's file name;
-- git cannot store dates before 1970, so the 6 earlier commits are dated from 1970-01-01, one second apart, with the real day in `In-force:`. Ask for a date with `tools/on.py`, not `git log --before`.
+git ne peut pas enregistrer de dates antérieures à 1970 : ces commits sont datés du 1er janvier 1970, avec le jour réel dans l’objet et dans `In-force:`.
 
-Each entry is credited to a key naming its record, with an e-mail address that cannot exist: a treaty action to the treaty (`treaty-932@wipo-int.invalid`), catalogue entries to their day (`Catalogue entries of 2009-04-22`); these are not laws. The first UN treaty action and the legal-system page are credited to the publishers. The committer is always Lexifina.
+L’auteur du commit de chaque acte est l’acte lui-même (par exemple `Décret n°100/193 du 1er septembre 2023`), avec une adresse électronique qui ne peut exister ; le committer est toujours Lexifina. Les entrées antérieures du catalogue et des traités sont attribuées comme auparavant (une clé désignant l’entrée).
 
-## How it is checked
+## Ce qu’il ne montre pas
 
-- `tools/check_repo.py` reads every version back from git on the day it took effect and on the day before, and both must match the corpus the history was built from; it also checks that every commit's trailers parse, that there are no merge commits and that no commit is dated in the future.
-- `tools/build.py` writes the history from that corpus in one pass, and the same corpus always gives the same commit hashes. The corpus is not in the repository; [`data/corpus.sha256`](data/corpus.sha256) gives its hash.
-- [`REPRODUCE.md`](REPRODUCE.md), written at the build on 2026-10-30, records the checks as not yet run for that build and no second build compared.
-- [vulnerabilities/](vulnerabilities/): possible drafting mistakes in this law, found by global-law's detectors and checked by hand. Not run yet.
-
-## What it does not show
-
-- **Any law or treaty text.** The official online copies of the Constitution and statutes (presidence.gov.bi, assemblee.bi) are image scans with no text layer, and no official copy with text was found. The 2018 Constitution and the 2017 Penal Code come next, from an official copy with text or from the official scans.
-- **The Constitution in force.** The record names the 2005 Post-transition Interim Constitution, as WIPO Lex does; the 2018 Constitution is not in it.
-- **Titles of the National Assembly's laws.** The 192 entries of 2003-2012 carry a number, a date and a link only; the laws posted there from 2013 on are not listed.
-- **Treaties outside the two lists.** WIPO Lex lists only the treaties it tracks, and the UN list covers the 78 status pages read.
+- **Les numéros du BOB numérisés.** Seuls les numéros dont le PDF porte la couche texte de l’éditeur sont utilisés. Les numéros dont le seul texte est l’OCR de l’éditeur (la plupart des numéros antérieurs à 2010 environ, et tous ceux de 1962) sont réservés pour un passage ultérieur et énumérés dans [`REPRODUCE.md`](REPRODUCE.md) ; nous ne faisons aucune OCR.
+- **Les textes consolidés.** Chaque acte est conservé tel que publié. Un acte modificatif est son propre dossier ; ses modifications ne sont pas encore reportées dans l’acte modifié. Les codes adoptés ou refondus d’un seul tenant sont des versions d’un même dossier dans `codes/`.
+- **La partie *Divers* de chaque numéro** (significations à des personnes nommées, avis de sociétés) : ce n’est pas de la législation.
+- **Les actes postérieurs au dernier BOB du portail.** Les derniers numéros du portail datent du début de 2024 ; la Présidence (presidence.gov.bi) publie les décrets plus récents surtout sous forme de scans.
 
 ## Sources
 
-| Source | Kind | Past versions | Notes |
+| Source | Nature | Versions antérieures | Remarques |
 | --- | --- | --- | --- |
-| [WIPO Lex](https://www.wipo.int/wipolex/en/members/profile/BI) (World Intellectual Property Organization) | Catalogue of laws; treaty actions; the constitution's dates | no, one record per law or treaty | Title, subject, dates and link; no text |
-| [Assemblée nationale du Burundi](https://assemblee.bi/) | Laws of 2003-2012, as PDFs | no | Number and promulgation date from each file name; the PDFs are image scans |
-| [UN Treaty Collection](https://treaties.un.org/) | Multilateral treaties deposited with the UN Secretary-General | each action by Burundi | Burundi's signature, ratification, accession and other action dates |
-| [Wikidata](https://www.wikidata.org/) | Legal system: legislature, courts, official languages | no | Open facts |
+| [Mémoire du Droit Burundais](https://amategeko.gov.bi) (Ministère de la Justice) | Bulletin Officiel du Burundi, PDF des numéros, 1962-2024 | chaque acte tel que publié | Couche texte des numéros nativement numériques ; numéros scannés réservés |
+| [WIPO Lex](https://www.wipo.int/wipolex/en/members/profile/BI) (Organisation Mondiale de la Propriété Intellectuelle) | Catalogue des lois ; actes conventionnels | non | Titre, matière, dates et lien ; pas de texte |
+| [Assemblée nationale du Burundi](https://assemblee.bi/) | Lois de 2003-2012, en PDF | non | Numéro et date de promulgation tirés du nom de chaque fichier |
+| [Collection des traités des Nations Unies](https://treaties.un.org/) | Traités multilatéraux déposés auprès du Secrétaire général | chaque acte du Burundi | Dates des actes |
+| [Wikidata](https://www.wikidata.org/) | Système juridique | non | Faits ouverts |
 
 ## Licence
 
-See [`LICENSE`](LICENSE). Only facts are copied (titles, numbers, dates, links), and no text of any law or treaty: WIPO Lex content is published under CC BY 4.0 and credited to WIPO, which does not endorse this repository; Wikidata's facts are CC0. The history, commit messages, tables and tools are CC0 1.0.
+Voir [`LICENSE`](LICENSE). Le texte juridique est un texte officiel de la République du Burundi, exclu de la protection par la loi sur le droit d’auteur (loi n°1/021 du 30 décembre 2005) ; les faits de WIPO Lex sont sous CC BY 4.0, attribués à l’OMPI, qui ne cautionne pas ce dépôt ; les faits de Wikidata sont sous CC0. L’historique, les messages de commit, les tableaux et les outils sont sous CC0 1.0.
 
-No AI model wrote, translated or corrected legal text, and none runs when the history is built; the scripts were written by an AI model (see [`REPRODUCE.md`](REPRODUCE.md)).
+Aucun modèle d’IA n’a rédigé, traduit ou corrigé de texte juridique, et aucun ne tourne lors de la construction de l’historique ; les scripts ont été écrits par un modèle d’IA (voir [`REPRODUCE.md`](REPRODUCE.md)).
 
 ## Visualisations
 
-- [visualisations/](visualisations/): charts drawn from this repository. Not drawn yet.
+- [visualisations/](visualisations/) : graphiques tirés de ce dépôt. Pas encore dessinés.
 
-## More
+## Plus
 
-From [lexifina/global-law](https://github.com/lexifina/global-law):
+Dans [lexifina/global-law](https://github.com/lexifina/global-law) :
 
-- [FEATURES.md](https://github.com/lexifina/global-law/blob/main/FEATURES.md): every feature, and what every corpus must support (`git blame`, `law.py`, the MCP tools)
-- [FAQ.md](https://github.com/lexifina/global-law/blob/main/FAQ.md): questions and answers · [CONTRIBUTING.md](https://github.com/lexifina/global-law/blob/main/CONTRIBUTING.md): proposing changes · [MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md): the MCP server · [REPRODUCE.md](https://github.com/lexifina/global-law/blob/main/REPRODUCE.md): how it was built · [CHANGELOG.md](https://github.com/lexifina/global-law/blob/main/CHANGELOG.md)
-- [FRESHNESS.md](https://github.com/lexifina/global-law/blob/main/FRESHNESS.md): how current each corpus is · [Monitoring](https://github.com/lexifina/global-law/tree/main/monitoring): whether updates are running · [WATCHING.md](https://github.com/lexifina/global-law/blob/main/WATCHING.md): how each official source is watched for changes
-- [performance/](https://github.com/lexifina/global-law/tree/main/performance): how fast the tools are, measured
-- [visualisations/](https://github.com/lexifina/global-law/tree/main/visualisations): charts and bridges across the world's law
-- [Vulnerabilities](https://github.com/lexifina/global-law/tree/main/vulnerabilities): mistakes in legislation as published
+- [FEATURES.md](https://github.com/lexifina/global-law/blob/main/FEATURES.md) : chaque fonctionnalité · [FAQ.md](https://github.com/lexifina/global-law/blob/main/FAQ.md) : questions et réponses · [CONTRIBUTING.md](https://github.com/lexifina/global-law/blob/main/CONTRIBUTING.md) · [MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md) · [REPRODUCE.md](https://github.com/lexifina/global-law/blob/main/REPRODUCE.md) · [CHANGELOG.md](https://github.com/lexifina/global-law/blob/main/CHANGELOG.md)
+- [FRESHNESS.md](https://github.com/lexifina/global-law/blob/main/FRESHNESS.md) · [Monitoring](https://github.com/lexifina/global-law/tree/main/monitoring) · [WATCHING.md](https://github.com/lexifina/global-law/blob/main/WATCHING.md)
+- [performance/](https://github.com/lexifina/global-law/tree/main/performance) · [visualisations/](https://github.com/lexifina/global-law/tree/main/visualisations) · [Vulnerabilities](https://github.com/lexifina/global-law/tree/main/vulnerabilities)

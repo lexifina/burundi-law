@@ -1,3 +1,33 @@
+# Reproducing burundi-law
+
+## Law text from the Bulletin Officiel du Burundi (build of 26 November 2026 onwards)
+
+- Source: the BOB issue PDFs on https://amategeko.gov.bi (Ministry of Justice). The list of issues comes from the portal's RSS feed (`/feed/?post_type=bob`); each issue's PDF from its attachment page.
+- Requests: at most 5 in flight to the portal, back-off on 429/5xx, every answer cached by the SHA-256 of its URL.
+- Text: the PDF text layer read with PyMuPDF. An issue is used only when its PDF is born-digital (made by Word, FrameMaker, Distiller and the like, with no full-page scan image); issues whose only text is the publisher's OCR (Paper Capture, scanner metadata or full-page images) are held. No OCR is run by us.
+- Split: each act starts at an upper-case heading `<KIND> N°<number> DU <date>`; the title is the upper-case lines after it; articles start at `Article N` / `Art. N`; text before the first article is `preambule.md`. Lines of the printed columns are joined into paragraphs. The issue's table of contents and its *Divers* part are left out.
+- Paths: see STRUCTURE.md. Commits: one per act, 12:00 Africa/Bujumbura on the act's date (UTC+2).
+- Status at this write: 48 PDFs parsed, 554 acts committed (ordonnance ministerielle: 294, decret: 152, ordonnance: 68, loi: 24, ordonnance ministerielle conjointe: 15, decision: 1), 10 held.
+
+### Held
+
+| Reason | Acts |
+| --- | ---: |
+| date not read | 8 |
+| no text | 2 |
+
+- "date not read": the heading's date could not be read, is impossible, or is more than three years from the issue's year (usually an earlier act quoted or annexed inside a later one).
+- "no text": a heading with no article and almost no text after it (often the act is printed only in Kirundi, or the heading is a cross-reference).
+
+BOB issues held because their only text is the publisher's OCR (0):
+
+(none yet)
+
+## What AI did and did not do
+
+The scripts that read the sources and build this repository were written by Claude Code running Claude Opus 5.5 (`claude-opus-5-5`) under Lexifina's direction. No model wrote, translated or corrected legal text, and no model runs at build time.
+
+## Earlier build
 # How this repository was made (Burundi)
 
 This file is written by the build on 2026-10-30, the day the source data was retrieved.
