@@ -8,13 +8,13 @@
 - Publisher-OCR pages skipped as unusable: 625 pages in 180 issues.
 - Split: each act starts at an upper-case heading `<KIND> N°<number> DU <date>`; the title is the upper-case lines after it; articles start at `Article N` / `Art. N`; text before the first article is `preambule.md`. Lines of the printed columns are joined into paragraphs. The issue's table of contents and its *Divers* part are left out.
 - Paths: see STRUCTURE.md. Commits: one per act, 12:00 Africa/Bujumbura on the act's date (UTC+2).
-- Status at this write: 964 PDFs parsed, 8174 acts committed (ordonnance ministerielle: 4038, decret: 2665, ordonnance: 926, loi: 287, ordonnance ministerielle conjointe: 126, decret loi: 34, arrete ministeriel: 26, ordonnance conjointe: 22, loi organique: 19, decision: 15, arrete: 12, reglement: 2, arrete loi: 2), 142 held.
+- Status at this write: 964 PDFs parsed, 8299 acts committed (ordonnance ministerielle: 4038, decret: 2665, ordonnance: 927, loi: 287, arrete ministeriel: 139, ordonnance ministerielle conjointe: 126, decret loi: 34, ordonnance conjointe: 22, loi organique: 19, decision: 16, arrete: 14, arrete loi: 10, reglement: 2), 151 held.
 
 ### Held
 
 | Reason | Acts |
 | --- | ---: |
-| date not read | 116 |
+| date not read | 125 |
 | no text | 26 |
 
 - "date not read": the heading's date could not be read, is impossible, or is more than three years from the issue's year (usually an earlier act quoted or annexed inside a later one).
