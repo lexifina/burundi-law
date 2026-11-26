@@ -15,7 +15,7 @@ Fait partie de [lexifina/global-law](https://github.com/lexifina/global-law), un
 
 Chaque acte est un dossier : `decrets/2023/100-193-modalites-pratiques-de-levee-du-gel-d-avancement/` est le décret n°100/193 du 1er septembre 2023, avec son intitulé, son titre et ses visas dans `preambule.md` et chaque article dans `article-001.md`, `article-002.md`, etc.
 
-Le texte est en français, tel que l’imprime le BOB.
+Le texte est en français, tel que l’imprime le BOB. Les numéros antérieurs à 2010 environ sont des scans dont le seul texte est la couche OCR de l’éditeur : ces actes sont repris tels que cette couche les lit, avec ses erreurs de lecture, et leurs commits portent `Text-source: publisher OCR (known reading errors)` ; les pages dont le texte OCR est inutilisable (surtout des caractères parasites) sont écartées. Aucune OCR n’est faite ici.
 
 ## Questions sous forme de commandes git
 
@@ -54,7 +54,7 @@ L’auteur du commit de chaque acte est l’acte lui-même (par exemple `Décret
 
 ## Ce qu’il ne montre pas
 
-- **Les numéros du BOB numérisés.** Seuls les numéros dont le PDF porte la couche texte de l’éditeur sont utilisés. Les numéros dont le seul texte est l’OCR de l’éditeur (la plupart des numéros antérieurs à 2010 environ, et tous ceux de 1962) sont réservés pour un passage ultérieur et énumérés dans [`REPRODUCE.md`](REPRODUCE.md) ; nous ne faisons aucune OCR.
+- **Les numéros du BOB sans aucun texte.** Les numéros dont le PDF est un scan sans couche texte (beaucoup entre 1962 et 2009, et le BOB n°6/2018, qui publie la Constitution de 2018) ne sont pas repris, et aucune OCR n’est faite ici ; ils sont énumérés dans [`REPRODUCE.md`](REPRODUCE.md). Dans les numéros anciens repris de l’OCR de l’éditeur, un acte dont l’intitulé a été mal lu se trouve dans l’acte qui le précède, et le texte kirundi imprimé à côté du français peut s’y mêler.
 - **Les textes consolidés.** Chaque acte est conservé tel que publié. Un acte modificatif est son propre dossier ; ses modifications ne sont pas encore reportées dans l’acte modifié. Les codes adoptés ou refondus d’un seul tenant sont des versions d’un même dossier dans `codes/`.
 - **La partie *Divers* de chaque numéro** (significations à des personnes nommées, avis de sociétés) : ce n’est pas de la législation.
 - **Les actes postérieurs au dernier BOB du portail.** Les derniers numéros du portail datent du début de 2024 ; la Présidence (presidence.gov.bi) publie les décrets plus récents surtout sous forme de scans.
@@ -78,6 +78,8 @@ Aucun modèle d’IA n’a rédigé, traduit ou corrigé de texte juridique, et 
 ## Visualisations
 
 - [visualisations/](visualisations/) : graphiques tirés de ce dépôt. Pas encore dessinés.
+
+**La jurisprudence** est dans un dépôt distinct, [lexifina/burundi-law-caselaw](https://github.com/lexifina/burundi-law-caselaw) : les arrêts de la Cour constitutionnelle tels que publiés au BOB, un fichier et un commit par arrêt.
 
 ## Plus
 

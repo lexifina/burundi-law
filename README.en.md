@@ -15,7 +15,7 @@ Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git h
 
 Each act is a folder: `decrets/2023/100-193-modalites-pratiques-de-levee-du-gel-d-avancement/` is Décret n°100/193 of 1 September 2023, with its heading, title and visas in `preambule.md` and each article in `article-001.md`, `article-002.md` and so on.
 
-The text is in French, as the BOB prints it.
+The text is in French, as the BOB prints it. Issues from before about 2010 are page scans whose only text is the publisher's own OCR layer: those acts are taken as that layer reads them, with its reading errors, and their commits say `Text-source: publisher OCR (known reading errors)`; pages whose OCR text is unusable (mostly garbage characters) are skipped. No OCR is run here.
 
 ## Questions as git commands
 
@@ -54,7 +54,7 @@ The author of each act's commit is the act itself (for example `Décret n°100/1
 
 ## What it does not show
 
-- **BOB issues that are scans.** Only issues whose PDF carries the publisher's own text layer are used. Issues whose only text is the publisher's OCR (most issues before about 2010, and every issue from 1962) are held for a later pass and listed in [`REPRODUCE.md`](REPRODUCE.md); we run no OCR.
+- **BOB issues with no text at all.** Issues whose PDF is a scan with no text layer (many from 1962 to 2009, and BOB n°6/2018, which prints the 2018 Constitution) are not included, and no OCR is run here; they are listed in [`REPRODUCE.md`](REPRODUCE.md). In the older issues taken from the publisher's OCR, an act whose heading was misread sits inside the act before it, and Kirundi text printed beside the French may be mixed in.
 - **Consolidated texts.** Each act is held as printed. An act that amends another is its own folder; its changes are not yet applied to the act it amends. Codes enacted or recast as a whole are versions of one folder in `codes/`.
 - **The *Divers* part of each issue** (court notices served on named persons, company notices): not legislation.
 - **Acts after the last BOB on the portal.** The portal's latest issues are from early 2024; the Présidence (presidence.gov.bi) posts later décrets mostly as scans.
@@ -78,6 +78,8 @@ No AI model wrote, translated or corrected legal text, and none runs when the hi
 ## Visualisations
 
 - [visualisations/](visualisations/): charts drawn from this repository. Not drawn yet.
+
+**Case law** is in a separate repository, [lexifina/burundi-law-caselaw](https://github.com/lexifina/burundi-law-caselaw): arrêts of the Cour constitutionnelle as printed in the BOB, one file and one commit per arrêt.
 
 ## More
 
