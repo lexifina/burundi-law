@@ -30,6 +30,30 @@ BOB No1/1962, BOB No1/1963, BOB No1/1965, BOB No1/1967, BOB No1/1967, BOB No1/19
 
 - The 2018 Constitution: BOB n°6/2018 and the copy on presidence.gov.bi are image scans with no text layer; not included.
 
+## Second pass, 27 November 2026: core texts and secondary copies
+
+Scripts: `core_extract.py`, `core_build.py`, `held_fix.py`, `faolex_fill.py` (Lexifina build scripts; not in this
+repository).
+
+- Bilingual BOB issues. Issues printed French | Kirundi side by side were read with both columns mixed and their acts
+  held as "no text". They are read again column by column (the French column only, chosen by a French/Kirundi word
+  count per page). This added the Code de procédure pénale of 11 May 2018 (BOB n°3bis/2019), the Code forestier of
+  2016, the Code de procédure pénale of 1999 (as a loi, a later full text being in `codes/`) and other acts.
+- Month names misprinted in headings (JULLET, DECEMBRI<:) are read as the month they stand for.
+- `constitution/`: the Constitution of 18 March 2005 (from *Codes et Lois du Burundi*, tome I, born-digital), then
+  the Constitution of 7 June 2018 (French column of the promulgated scan, OCR layer as found). Both come from the
+  University of Antwerp DPP Burundi library, whose host is gone; the Internet Archive copies are used.
+- `codes/code-des-personnes-et-de-la-famille/` (Décret-loi n°1/024 du 28 avril 1993 as amended by Loi n°1/004 du
+  30 avril 1999, dated by that law) and `codes/code-civil-livre-iii/` (Décret du 30 juillet 1888 as recorded up to
+  Loi n°1/004 du 9 juillet 1996, dated by that law): consolidated text of *Codes et Lois du Burundi* (state at 31
+  December 2006). Lines in the editors' 7-point note type, the alphabetical indexes and running heads are dropped.
+- `codes/code-penal/`: Loi n°1/27 du 29 décembre 2017 from FAOLEX (scan with OCR layer). The BOB copy on the portal
+  (n°12ter/2017) stops at article 508 of 648, so the full FAOLEX copy is kept.
+- FAOLEX fill: every Burundi record listed by ECOLEX with a French PDF, numbered as an act (loi, décret-loi, décret,
+  ordonnance, arrêté) and not already in the repository from the BOB; strategies, plans, policy letters and individual
+  measures (nominations, agréments, concessions) are left out; PDFs with no text layer or an unreadable OCR layer are
+  held. The act's date is the one in its title.
+
 ## What AI did and did not do
 
 The scripts that read the sources and build this repository were written by Claude Code running Claude Opus 5.5 (`claude-opus-5-5`) under Lexifina's direction. No model wrote, translated or corrected legal text, and no model runs at build time.

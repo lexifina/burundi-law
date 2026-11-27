@@ -11,7 +11,7 @@ Le droit du Burundi sous forme d’historique git : un dossier par acte publié 
 
 Fait partie de [lexifina/global-law](https://github.com/lexifina/global-law), un historique git unique pour le droit de chaque pays : ce dépôt contient le droit national burundais, que global-law lit dans `burundi/national/acts/`.
 
-**Contenu actuel :** le texte des lois, décrets, ordonnances et autres actes imprimés dans les numéros du BOB que le portail du Ministère de la Justice, [amategeko.gov.bi](https://amategeko.gov.bi), publie avec une couche texte (la construction est en cours et ajoute les numéros au fur et à mesure), classés par type et par année comme le décrit [`STRUCTURE.md`](STRUCTURE.md) ; les codes adoptés d’un seul tenant sont dans `codes/`. Le registre antérieur des titres de lois et des actes conventionnels, sans texte, reste dans `catalogue/`, `treaties/`, `un-treaties/` et `legal-system/`.
+**Contenu actuel :** le texte des lois, décrets, ordonnances et autres actes imprimés dans les numéros du BOB que le portail du Ministère de la Justice, [amategeko.gov.bi](https://amategeko.gov.bi), publie avec une couche texte (la construction est en cours et ajoute les numéros au fur et à mesure), classés par type et par année comme le décrit [`STRUCTURE.md`](STRUCTURE.md) ; les codes adoptés d’un seul tenant sont dans `codes/`. La Constitution (2005, puis 2018) est dans `constitution/` ; le Code des personnes et de la famille, le Code civil livre III, le Code pénal de 2017 et des actes absents du portail viennent de copies secondaires (FAOLEX, les *Codes et Lois du Burundi*), signalées par `Source-status: secondary copy`. Le registre antérieur des titres de lois et des actes conventionnels, sans texte, reste dans `catalogue/`, `treaties/`, `un-treaties/` et `legal-system/`.
 
 Chaque acte est un dossier : `decrets/2023/100-193-modalites-pratiques-de-levee-du-gel-d-avancement/` est le décret n°100/193 du 1er septembre 2023, avec son intitulé, son titre et ses visas dans `preambule.md` et chaque article dans `article-001.md`, `article-002.md`, etc.
 
@@ -54,7 +54,7 @@ L’auteur du commit de chaque acte est l’acte lui-même (par exemple `Décret
 
 ## Ce qu’il ne montre pas
 
-- **Les numéros du BOB sans aucun texte.** Les numéros dont le PDF est un scan sans couche texte (beaucoup entre 1962 et 2009, et le BOB n°6/2018, qui publie la Constitution de 2018) ne sont pas repris, et aucune OCR n’est faite ici ; ils sont énumérés dans [`REPRODUCE.md`](REPRODUCE.md). Dans les numéros anciens repris de l’OCR de l’éditeur, un acte dont l’intitulé a été mal lu se trouve dans l’acte qui le précède, et le texte kirundi imprimé à côté du français peut s’y mêler.
+- **Les numéros du BOB sans aucun texte.** Les numéros dont le PDF est un scan sans couche texte (beaucoup entre 1962 et 2009) ne sont pas repris (la Constitution de 2018, publiée dans le BOB n°6/2018 scanné, est reprise d’une autre copie du texte promulgué qui porte une couche OCR), et aucune OCR n’est faite ici ; ils sont énumérés dans [`REPRODUCE.md`](REPRODUCE.md). Dans les numéros anciens repris de l’OCR de l’éditeur, un acte dont l’intitulé a été mal lu se trouve dans l’acte qui le précède, et le texte kirundi imprimé à côté du français peut s’y mêler.
 - **Les textes consolidés.** Chaque acte est conservé tel que publié. Un acte modificatif est son propre dossier ; ses modifications ne sont pas encore reportées dans l’acte modifié. Les codes adoptés ou refondus d’un seul tenant sont des versions d’un même dossier dans `codes/`.
 - **La partie *Divers* de chaque numéro** (significations à des personnes nommées, avis de sociétés) : ce n’est pas de la législation.
 - **Les actes postérieurs au dernier BOB du portail.** Les derniers numéros du portail datent du début de 2024 ; la Présidence (presidence.gov.bi) publie les décrets plus récents surtout sous forme de scans.
@@ -64,6 +64,9 @@ L’auteur du commit de chaque acte est l’acte lui-même (par exemple `Décret
 | Source | Nature | Versions antérieures | Remarques |
 | --- | --- | --- | --- |
 | [Mémoire du Droit Burundais](https://amategeko.gov.bi) (Ministère de la Justice) | Bulletin Officiel du Burundi, PDF des numéros, 1962-2024 | chaque acte tel que publié | Couche texte des numéros nativement numériques ; numéros scannés réservés |
+| *Codes et Lois du Burundi*, 2e éd., tome I (état au 31 déc. 2006), bibliothèque DPP Burundi de l’Université d’Anvers (site disparu ; [copie Internet Archive](https://web.archive.org/web/20211228165012/http://medialibrary.uantwerpen.be/oldcontent/container2143/files/DPP%20Burundi/Codes%20et%20lois/Tome1.pdf)) | Constitution de 2005, Code des personnes et de la famille, Code civil livre III | texte consolidé | Copie secondaire, PDF natif ; notes de l’éditeur écartées |
+| [FAOLEX](https://www.fao.org/faolex/) (FAO) | Code pénal de 2017 et actes absents du portail | tels que publiés | Copie secondaire ; couche texte telle que déposée (souvent OCR, signalée) |
+| Constitution promulguée le 7 juin 2018 (scan avec couche OCR), bibliothèque DPP Burundi de l’Université d’Anvers ([copie Internet Archive](https://web.archive.org/web/20210424131712/http://medialibrary.uantwerpen.be/oldcontent/container49546/files/Burundi/Constitution/Constitution%20070618.pdf)) | Constitution de 2018 | non | Copie secondaire ; colonne française |
 | [WIPO Lex](https://www.wipo.int/wipolex/en/members/profile/BI) (Organisation Mondiale de la Propriété Intellectuelle) | Catalogue des lois ; actes conventionnels | non | Titre, matière, dates et lien ; pas de texte |
 | [Assemblée nationale du Burundi](https://assemblee.bi/) | Lois de 2003-2012, en PDF | non | Numéro et date de promulgation tirés du nom de chaque fichier |
 | [Collection des traités des Nations Unies](https://treaties.un.org/) | Traités multilatéraux déposés auprès du Secrétaire général | chaque acte du Burundi | Dates des actes |
@@ -79,7 +82,7 @@ Aucun modèle d’IA n’a rédigé, traduit ou corrigé de texte juridique, et 
 
 - [visualisations/](visualisations/) : graphiques tirés de ce dépôt. Pas encore dessinés.
 
-**La jurisprudence** est dans un dépôt distinct, [lexifina/burundi-law-caselaw](https://github.com/lexifina/burundi-law-caselaw) : les arrêts de la Cour constitutionnelle tels que publiés au BOB, un fichier et un commit par arrêt.
+**La jurisprudence** est dans un dépôt distinct, [lexifina/burundi-law-caselaw](https://github.com/lexifina/burundi-law-caselaw) : les arrêts de la Cour constitutionnelle tels que publiés au BOB et sur le site de la Cour (courconstitutionnelle.gov.bi), un fichier et un commit par arrêt.
 
 ## Plus
 

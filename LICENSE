@@ -20,7 +20,28 @@ text of each act is split into one file per article, the line breaks of the prin
 page headers and the "Divers" part of each issue (notices to private persons) are left out. Nothing is translated or
 corrected.
 
-3. Metadata from earlier builds
+3. Law text from secondary copies (from 27 November 2026)
+
+Where the official portal has no usable copy, the text comes from these copies; each such commit carries a
+"Source-status: secondary copy (...)" trailer naming its source.
+
+- Codes et Lois du Burundi, 2nd edition (state at 31 December 2006), tome I, published with the agreement of the
+  CEDJ and hosted by the University of Antwerp (DPP Burundi library; the host is gone, the copy used is the Internet
+  Archive's: https://web.archive.org/web/20211228165012/http://medialibrary.uantwerpen.be/oldcontent/container2143/
+  files/DPP%20Burundi/Codes%20et%20lois/Tome1.pdf). Only the official text of the Constitution of 2005, the Code des
+  personnes et de la famille and Code civil livre III is copied; the editors' notes, indexes and headings are left
+  out.
+- The promulgated Constitution of 7 June 2018 (scan with an OCR text layer), same library, Internet Archive copy:
+  https://web.archive.org/web/20210424131712/http://medialibrary.uantwerpen.be/oldcontent/container49546/files/
+  Burundi/Constitution/Constitution%20070618.pdf. The French column is copied.
+- FAOLEX, the FAO database of national legislation (https://www.fao.org/faolex/), records listed through ECOLEX
+  (https://www.ecolex.org). FAO terms: reproduction and dissemination for non-commercial purposes are authorised
+  provided the source is fully acknowledged (https://www.fao.org/contact-us/terms/en/): source FAOLEX, Food and
+  Agriculture Organization of the United Nations. FAO does not endorse this repository.
+
+These texts are official texts of the Republic of Burundi (see section 2); nothing is translated or corrected.
+
+4. Metadata from earlier builds
 
 catalogue/, treaties/: metadata (titles, dates, numbers, links) from WIPO Lex, https://www.wipo.int/wipolex/,
 retrieved 30 October 2026. Source: World Intellectual Property Organization. WIPO content is published under CC BY 4.0
